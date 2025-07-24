@@ -1,20 +1,20 @@
-1.  [【藤井隆vs高橋弘樹】芸歴34年「自分にOK出せない」飽きずに仕事を続けられるワケとは？【ReHacQ】](https://www.youtube.com/watch?v=ofvpSrmt2t4)
+1.  [【後藤達也vs川邊健太郎】サービスが変わる？AI時代の生存戦略【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=0hjm24AnY8U)
+    -   公開日: 2025-07-24
+    -   視聴数: 1,069
+    -   **いいね数: 34**
+2.  [【藤井隆vs高橋弘樹】芸歴34年「自分にOK出せない」飽きずに仕事を続けられるワケとは？【ReHacQ】](https://www.youtube.com/watch?v=ofvpSrmt2t4)
     -   公開日: 2025-07-23
     -   視聴数: 5,944
     -   **いいね数: 335**
-2.  [【年商20億の実業家vs高橋弘樹】海外華やか生活から一転..波乱万丈の人生！？どんな環境でも成果を出す適応力の秘訣とは？【ReHacQ】](https://www.youtube.com/watch?v=so5AsG4q1NA)
+3.  [【年商20億の実業家vs高橋弘樹】海外華やか生活から一転..波乱万丈の人生！？どんな環境でも成果を出す適応力の秘訣とは？【ReHacQ】](https://www.youtube.com/watch?v=so5AsG4q1NA)
     -   公開日: 2025-07-22
     -   視聴数: 470
     -   **いいね数: 16**
-3.  [【人間関係の最重要事項】精神科医が教える！他人に流されず"好きな自分"を保つ方法とは？【藤野智哉＆肉乃小路ニクヨ】](https://www.youtube.com/watch?v=W76wF7DnppE)
+4.  [【人間関係の最重要事項】精神科医が教える！他人に流されず"好きな自分"を保つ方法とは？【藤野智哉＆肉乃小路ニクヨ】](https://www.youtube.com/watch?v=W76wF7DnppE)
     -   公開日: 2025-07-22
     -   視聴数: 2,564
     -   **いいね数: 122**
-4.  [【国民民主党会見】玉木代表定例会見 7月22日（火）【ReHacQ】](https://www.youtube.com/watch?v=qaYcK_tvstM)
+5.  [【国民民主党会見】玉木代表定例会見 7月22日（火）【ReHacQ】](https://www.youtube.com/watch?v=qaYcK_tvstM)
     -   公開日: 2025-07-22
     -   視聴数: 19,753
     -   **いいね数: 463**
-5.  [【参院選2025】安野たかひろ緊急生出演！当選直後に直撃\...【チームみらい】](https://www.youtube.com/watch?v=SVmdkY3S__E)
-    -   公開日: 2025-07-21
-    -   視聴数: 42,543
-    -   **いいね数: 4,165**
