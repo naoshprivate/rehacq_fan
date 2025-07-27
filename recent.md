@@ -1,20 +1,20 @@
-1.  [【ReHacQ生配信】夏の夜のまったり雑談【西田亮介vs宇佐美典也】](https://www.youtube.com/watch?v=SHkI3HrdQJI)
+1.  [【イスラエル大使の主張】イランを攻撃\...なぜ？正当性は？ホロコーストから90年\...平和を望むワケ【須賀川拓】](https://www.youtube.com/watch?v=06vuAAFoZbE)
+    -   公開日: 2025-07-27
+    -   視聴数: 2,974
+    -   **いいね数: 125**
+2.  [【ひろゆきvsビッグダディ】衝撃の過去！夜逃げ・タコ部屋・用心棒...ビッグダディが明かす壮絶人生【林下清志vsナレソメ勝倉】](https://www.youtube.com/watch?v=N0NY2rGkMZw)
+    -   公開日: 2025-07-27
+    -   視聴数: 11,191
+    -   **いいね数: 536**
+3.  [【ReHacQ生配信】夏の夜のまったり雑談【西田亮介vs宇佐美典也】](https://www.youtube.com/watch?v=SHkI3HrdQJI)
     -   公開日: 2025-07-26
     -   視聴数: 28,656
     -   **いいね数: 784**
-2.  [【ReHacQ生配信】チームみらい幹事長とまったり雑談【チームみらい高山さとしvs西田亮介】](https://www.youtube.com/watch?v=4vBs3DL5S2w)
+4.  [【ReHacQ生配信】チームみらい幹事長とまったり雑談【チームみらい高山さとしvs西田亮介】](https://www.youtube.com/watch?v=4vBs3DL5S2w)
     -   公開日: 2025-07-26
     -   視聴数: 77,585
     -   **いいね数: 1,223**
-3.  [【ひろゆきvs石丸伸二】銭湯で深夜に大激論!?高松高裁にひろゆき興奮【賠償金支払い旅⑨】](https://www.youtube.com/watch?v=v6ejDSf8M8Q)
+5.  [【ひろゆきvs石丸伸二】銭湯で深夜に大激論!?高松高裁にひろゆき興奮【賠償金支払い旅⑨】](https://www.youtube.com/watch?v=v6ejDSf8M8Q)
     -   公開日: 2025-07-26
     -   視聴数: 26,865
     -   **いいね数: 2,480**
-4.  [【高橋弘樹vs進化生物学者】行動生態学の視点から人間を研究！進化生物学とは？【ReHacQ教養】](https://www.youtube.com/watch?v=tiEGp1cAHoM)
-    -   公開日: 2025-07-25
-    -   視聴数: 4,475
-    -   **いいね数: 228**
-5.  [【後藤達也vs川邊健太郎】サービスが変わる？AI時代の生存戦略【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=0hjm24AnY8U)
-    -   公開日: 2025-07-24
-    -   視聴数: 69,910
-    -   **いいね数: 860**
