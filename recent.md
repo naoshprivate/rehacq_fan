@@ -1,20 +1,20 @@
-1.  [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](https://www.youtube.com/watch?v=cNONDXA1V18)
+1.  [【ひろゆきvs地方首長】人口増加中の特区でも課題山積\...なぜ？過疎地域町長が衝撃的な対策を激白【スーツvsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=8eDWyLWHX_c)
+    -   公開日: 2025-08-03
+    -   視聴数: 3,430
+    -   **いいね数: 119**
+2.  [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](https://www.youtube.com/watch?v=cNONDXA1V18)
     -   公開日: 2025-08-02
     -   視聴数: 171,656
     -   **いいね数: 5,173**
-2.  [【国民民主党&維新&日本保守党】初当選！国会で何やるんですか？【山田吉彦&新実彰平&北村晴男&ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=AcxQZHnuzMc)
+3.  [【国民民主党&維新&日本保守党】初当選！国会で何やるんですか？【山田吉彦&新実彰平&北村晴男&ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=AcxQZHnuzMc)
     -   公開日: 2025-08-02
     -   視聴数: 213,283
     -   **いいね数: 5,771**
-3.  [【高橋弘樹vsキラキラ企業戦士】起業失敗→三井不動産へ！パナソニック...新規事業でキャリア確変！シンキャリア論【ReHacQ】](https://www.youtube.com/watch?v=DlwV6wXkfcw)
+4.  [【高橋弘樹vsキラキラ企業戦士】起業失敗→三井不動産へ！パナソニック...新規事業でキャリア確変！シンキャリア論【ReHacQ】](https://www.youtube.com/watch?v=DlwV6wXkfcw)
     -   公開日: 2025-08-01
     -   視聴数: 2,984
     -   **いいね数: 58**
-4.  [【大統領令に署名】15%関税で混迷する世界経済\...通商ルールは誰のもの？【菅原淳一&藤代宏一】](https://www.youtube.com/watch?v=1fRj3pR4oag)
+5.  [【大統領令に署名】15%関税で混迷する世界経済\...通商ルールは誰のもの？【菅原淳一&藤代宏一】](https://www.youtube.com/watch?v=1fRj3pR4oag)
     -   公開日: 2025-08-01
     -   視聴数: 2,720
     -   **いいね数: 58**
-5.  [【生配信】立憲民主党・野田佳彦代表 記者会見 8月1日（金）【ReHacQ】](https://www.youtube.com/watch?v=Jt4GQsWhC4E)
-    -   公開日: 2025-08-01
-    -   視聴数: 4,677
-    -   **いいね数: 73**
