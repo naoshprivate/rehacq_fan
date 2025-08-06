@@ -1,20 +1,20 @@
-1.  [【ゆうちゃみvs近大マグロ】日本文化のブランド戦略最前線！世界の心を掴むには？【ReHacQvs高橋弘樹】](https://www.youtube.com/watch?v=hwTQDuHBTt8)
+1.  [【ReHacQ緊急生配信】平成生まれの議員\...国会で何をする？【立憲vs国民vs維新vs自民vsみらい】](https://www.youtube.com/watch?v=uWcy3kCV-3E)
+    -   公開日: 2025-08-06
+    -   視聴数: 7,915
+    -   **いいね数: 265**
+2.  [【高橋弘樹vs歴史学者】授業では聞けない日本史！人生を賭ける...編纂の世界と楽しさとは？【ReHacQ 教養】](https://www.youtube.com/watch?v=uAIFFxmhEYg)
+    -   公開日: 2025-08-06
+    -   視聴数: 9,680
+    -   **いいね数: 423**
+3.  [【ゆうちゃみvs近大マグロ】日本文化のブランド戦略最前線！世界の心を掴むには？【ReHacQvs高橋弘樹】](https://www.youtube.com/watch?v=hwTQDuHBTt8)
     -   公開日: 2025-08-05
     -   視聴数: 1,374
     -   **いいね数: 45**
-2.  [【生配信】国民民主党・玉木代表定例会見 8月5日（火）【ReHacQ】](https://www.youtube.com/watch?v=IxzdLJASVBk)
+4.  [【生配信】国民民主党・玉木代表定例会見 8月5日（火）【ReHacQ】](https://www.youtube.com/watch?v=IxzdLJASVBk)
     -   公開日: 2025-08-05
     -   視聴数: 20,345
     -   **いいね数: 336**
-3.  [【ReHacQSP】まるで"月面" 街が完全に破壊されたガザ北部\...すべての建物にハマスがいたのか？【須賀川拓vs高橋和夫】](https://www.youtube.com/watch?v=m4DOst3C5EQ)
+5.  [【ReHacQSP】まるで"月面" 街が完全に破壊されたガザ北部\...すべての建物にハマスがいたのか？【須賀川拓vs高橋和夫】](https://www.youtube.com/watch?v=m4DOst3C5EQ)
     -   公開日: 2025-08-04
     -   視聴数: 9,197
     -   **いいね数: 307**
-4.  [【メンタル強者になる】声と呼吸で劇的に変わるコミュニケーション！言葉の攻撃に動じないためのオススメ技術とは？【呂布カルマ】](https://www.youtube.com/watch?v=E2Ayc48Egyw)
-    -   公開日: 2025-08-04
-    -   視聴数: 8,753
-    -   **いいね数: 292**
-5.  [【ひろゆきvs地方首長】人口増加中の特区でも課題山積\...なぜ？過疎地域町長が衝撃的な対策を激白【スーツvsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=8eDWyLWHX_c)
-    -   公開日: 2025-08-03
-    -   視聴数: 3,430
-    -   **いいね数: 119**
