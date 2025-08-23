@@ -1,16 +1,16 @@
 1.  [【経済界が注視】FRB パウエル議長講演で利下げの可能性は語られるか？@ジャクソンホール【鈴⽊敏之＆永濱利廣】](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)
     -   公開日: 2025-08-22
-    -   視聴数: 47,771
+    -   視聴数: 47,834
     -   **いいね数: 431**
     -   出演者: 森本智子, 永濱利廣, 鈴⽊敏之
 1.  [【赤沢大臣が緊急出演】重要告白！日米関税交渉について…メディアの罪【ReHacQ高橋弘樹&永濱利廣】](https://www.youtube.com/watch?v=ZDudUHeL1XQ)
     -   公開日: 2025-08-22
-    -   視聴数: 126,087
-    -   **いいね数: 3,663**
+    -   視聴数: 126,772
+    -   **いいね数: 3,665**
     -   出演者: 永濱利廣, 赤沢亮正, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】あつまれ！立憲の森【岸谷蘭丸vs立憲民主党】](https://www.youtube.com/watch?v=DRl-K2Duye0)
     -   公開日: 2025-08-21
-    -   視聴数: 221,606
+    -   視聴数: 221,771
     -   **いいね数: 2,860**
     -   出演者: 中谷一馬, 宗野創, 小川淳也, 岸谷蘭丸, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvsバンクアカデミー】NISAの出口戦略完全版！米国株＆日本株どう選ぶ？【小林亮平】](https://www.youtube.com/watch?v=3MeO6NcrJEk)
