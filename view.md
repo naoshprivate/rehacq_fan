@@ -2,8 +2,8 @@
 
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
-    -   視聴数: 3,435,679
-    -   **いいね数: 53,312**
+    -   視聴数: 3,446,282
+    -   **いいね数: 53,363**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 河村たかし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
@@ -42,8 +42,8 @@
     -   出演者: 野村泰紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](https://www.youtube.com/watch?v=0ecD5gpE0i8)
     -   公開日: 2024-11-09
-    -   視聴数: 2,216,111
-    -   **いいね数: 31,886**
+    -   視聴数: 2,225,609
+    -   **いいね数: 31,951**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 河村たかし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](https://www.youtube.com/watch?v=Thz0fKoe98c)
     -   公開日: 2023-07-23
@@ -82,8 +82,8 @@
     -   出演者: 斎藤元彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](https://www.youtube.com/watch?v=XJbgK1m8j2Q)
     -   公開日: 2024-06-23
-    -   視聴数: 1,993,545
-    -   **いいね数: 22,830**
+    -   視聴数: 1,996,233
+    -   **いいね数: 22,844**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](https://www.youtube.com/watch?v=TkJRmw7WPeI)
     -   公開日: 2023-10-10
@@ -134,7 +134,7 @@
     -   公開日: 2023-07-14
     -   視聴数: 1,497,139
     -   **いいね数: 17,247**
-    -   出演者: 野村泰紀
+    -   出演者: 野村泰紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](https://www.youtube.com/watch?v=qMR_6XOPwvY)
     -   公開日: 2024-01-21
     -   視聴数: 1,472,925
@@ -205,6 +205,11 @@
     -   視聴数: 1,292,538
     -   **いいね数: 23,433**
     -   出演者: 
+1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](https://www.youtube.com/watch?v=gpoohY5z6MI)
+    -   公開日: 2024-08-16
+    -   視聴数: 1,265,548
+    -   **いいね数: 12,409**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
     -   公開日: 2025-01-06
     -   視聴数: 1,261,718
@@ -215,11 +220,6 @@
     -   視聴数: 1,258,299
     -   **いいね数: 31,091**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](https://www.youtube.com/watch?v=gpoohY5z6MI)
-    -   公開日: 2024-08-16
-    -   視聴数: 1,255,694
-    -   **いいね数: 12,347**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=v6K85s-g9Oc)
     -   公開日: 2025-02-05
     -   視聴数: 1,246,671
@@ -270,16 +270,16 @@
     -   視聴数: 1,116,076
     -   **いいね数: 21,287**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=jfuZDsUN4JY)
+    -   公開日: 2024-10-13
+    -   視聴数: 1,108,222
+    -   **いいね数: 7,191**
+    -   出演者: 小西洋之, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](https://www.youtube.com/watch?v=EYKExpig3-4)
     -   公開日: 2023-05-28
     -   視聴数: 1,108,099
     -   **いいね数: 18,484**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=jfuZDsUN4JY)
-    -   公開日: 2024-10-13
-    -   視聴数: 1,105,686
-    -   **いいね数: 7,186**
-    -   出演者: 小西洋之, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](https://www.youtube.com/watch?v=-67Yfoti-W0)
     -   公開日: 2024-08-07
     -   視聴数: 1,100,733
@@ -354,7 +354,7 @@
     -   公開日: 2023-07-07
     -   視聴数: 1,036,878
     -   **いいね数: 16,379**
-    -   出演者: 野村泰紀
+    -   出演者: 野村泰紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](https://www.youtube.com/watch?v=Lb9U4acxhs4)
     -   公開日: 2024-09-07
     -   視聴数: 1,028,761
@@ -400,16 +400,16 @@
     -   視聴数: 964,458
     -   **いいね数: 10,052**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
+1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](https://www.youtube.com/watch?v=hvJ0lBxFILU)
+    -   公開日: 2024-08-04
+    -   視聴数: 949,163
+    -   **いいね数: 14,783**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](https://www.youtube.com/watch?v=V2AJCMmVW2I)
     -   公開日: 2024-09-19
     -   視聴数: 946,744
     -   **いいね数: 15,117**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
-1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](https://www.youtube.com/watch?v=hvJ0lBxFILU)
-    -   公開日: 2024-08-04
-    -   視聴数: 933,051
-    -   **いいね数: 14,551**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](https://www.youtube.com/watch?v=Ipck99H_vjU)
     -   公開日: 2025-01-13
     -   視聴数: 922,783
@@ -484,7 +484,7 @@
     -   公開日: 2023-03-26
     -   視聴数: 833,986
     -   **いいね数: 16,182**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
+    -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【ひろゆきvs維新】戦慄！ロシア&万博で大激論【鈴木宗男離党の裏】](https://www.youtube.com/watch?v=zhduUUDxw4Q)
     -   公開日: 2023-10-22
     -   視聴数: 833,149
