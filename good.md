@@ -97,8 +97,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](https://www.youtube.com/watch?v=qemKsOkKAYM)
     -   公開日: 2023-08-01
-    -   視聴数: 2,449,844
-    -   **いいね数: 26,996**
+    -   視聴数: 2,452,025
+    -   **いいね数: 27,009**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](https://www.youtube.com/watch?v=I8__R-9OwwA)
     -   公開日: 2024-07-03
@@ -112,8 +112,8 @@
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
-    -   視聴数: 3,231,129
-    -   **いいね数: 25,703**
+    -   視聴数: 3,233,793
+    -   **いいね数: 25,707**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 米山隆一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](https://www.youtube.com/watch?v=IWqndzRAJnQ)
     -   公開日: 2023-11-07
@@ -232,8 +232,8 @@
     -   出演者: スーツ
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](https://www.youtube.com/watch?v=Thz0fKoe98c)
     -   公開日: 2023-07-23
-    -   視聴数: 2,149,796
-    -   **いいね数: 19,361**
+    -   視聴数: 2,151,797
+    -   **いいね数: 19,369**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](https://www.youtube.com/watch?v=Lb9U4acxhs4)
     -   公開日: 2024-09-07
@@ -322,13 +322,13 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
     -   公開日: 2023-05-23
-    -   視聴数: 1,118,227
-    -   **いいね数: 16,559**
+    -   視聴数: 1,119,391
+    -   **いいね数: 16,563**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](https://www.youtube.com/watch?v=_qzFJpEy_rI)
     -   公開日: 2025-07-14
-    -   視聴数: 758,405
-    -   **いいね数: 16,493**
+    -   視聴数: 759,467
+    -   **いいね数: 16,488**
     -   出演者: 横田一, 立花孝志, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
