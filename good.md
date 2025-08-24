@@ -189,7 +189,7 @@
     -   公開日: 2024-01-21
     -   視聴数: 1,472,925
     -   **いいね数: 21,286**
-    -   出演者: 
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](https://www.youtube.com/watch?v=uY0Jmw4wR7Y)
     -   公開日: 2024-10-04
     -   視聴数: 1,686,911
