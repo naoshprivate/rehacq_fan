@@ -57,8 +57,8 @@
     -   出演者: 大澤芳清, 斎藤元彦, 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, 立花孝志
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
-    -   視聴数: 2,567,624
-    -   **いいね数: 32,407**
+    -   視聴数: 2,573,201
+    -   **いいね数: 32,457**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](https://www.youtube.com/watch?v=0ecD5gpE0i8)
     -   公開日: 2024-11-09
@@ -215,16 +215,16 @@
     -   視聴数: 489,395
     -   **いいね数: 20,489**
     -   出演者: 増山誠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
+    -   公開日: 2023-12-28
+    -   視聴数: 1,062,589
+    -   **いいね数: 20,444**
+    -   出演者: 0, 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](https://www.youtube.com/watch?v=CxDT2FaGi8o)
     -   公開日: 2025-07-09
     -   視聴数: 1,077,095
     -   **いいね数: 20,434**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
-    -   公開日: 2023-12-28
-    -   視聴数: 1,057,269
-    -   **いいね数: 20,393**
-    -   出演者: 0, 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](https://www.youtube.com/watch?v=CepOZXVtsCo)
     -   公開日: 2023-10-25
     -   視聴数: 1,328,344
@@ -412,8 +412,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](https://www.youtube.com/watch?v=xcbxnXpIizM)
     -   公開日: 2023-12-07
-    -   視聴数: 1,394,067
-    -   **いいね数: 15,201**
+    -   視聴数: 1,397,088
+    -   **いいね数: 15,216**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](https://www.youtube.com/watch?v=V2AJCMmVW2I)
     -   公開日: 2024-09-19
