@@ -82,8 +82,8 @@
     -   出演者: 野村泰紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
     -   公開日: 2024-07-18
-    -   視聴数: 1,801,391
-    -   **いいね数: 28,097**
+    -   視聴数: 1,801,611
+    -   **いいね数: 28,096**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=LyTuLE37l4A)
     -   公開日: 2025-02-19
@@ -202,8 +202,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
-    -   視聴数: 978,429
-    -   **いいね数: 20,692**
+    -   視聴数: 981,353
+    -   **いいね数: 20,695**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](https://www.youtube.com/watch?v=WyDR8GuPC_k)
     -   公開日: 2023-05-06
