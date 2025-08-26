@@ -205,16 +205,16 @@
     -   視聴数: 1,292,538
     -   **いいね数: 23,433**
     -   出演者: 
+1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
+    -   公開日: 2025-01-06
+    -   視聴数: 1,268,604
+    -   **いいね数: 13,437**
+    -   出演者: 田中渓, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](https://www.youtube.com/watch?v=gpoohY5z6MI)
     -   公開日: 2024-08-16
     -   視聴数: 1,265,548
     -   **いいね数: 12,409**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
-1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
-    -   公開日: 2025-01-06
-    -   視聴数: 1,261,718
-    -   **いいね数: 13,389**
-    -   出演者: 田中渓, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](https://www.youtube.com/watch?v=nhJYpgzPBJU)
     -   公開日: 2025-04-09
     -   視聴数: 1,258,698
@@ -412,8 +412,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](https://www.youtube.com/watch?v=Ipck99H_vjU)
     -   公開日: 2025-01-13
-    -   視聴数: 922,783
-    -   **いいね数: 13,040**
+    -   視聴数: 927,256
+    -   **いいね数: 13,088**
     -   出演者: 田中渓, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
