@@ -87,8 +87,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=LyTuLE37l4A)
     -   公開日: 2025-02-19
-    -   視聴数: 770,735
-    -   **いいね数: 28,093**
+    -   視聴数: 770,810
+    -   **いいね数: 28,092**
     -   出演者: 増山誠, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】第一部…大激論！議席0「再生の道」の真意は？第二部…「あつまれ！落選の森」候補者vs石丸代表！衝撃の真実【ReHacQ西田亮介】](https://www.youtube.com/watch?v=tg3vnK5st1E)
     -   公開日: 2025-06-23
@@ -122,8 +122,8 @@
     -   出演者: 柳沢正史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](https://www.youtube.com/watch?v=23N6ICQ55-c)
     -   公開日: 2025-01-16
-    -   視聴数: 1,433,447
-    -   **いいね数: 25,031**
+    -   視聴数: 1,433,855
+    -   **いいね数: 25,026**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 横田一, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 箕輪厚介, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=B5-KBz_t3wU)
     -   公開日: 2025-04-29
@@ -157,8 +157,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二 緊急生出演】石丸新党「再生の道」とは？会見参加できなかったメディア質問会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=7V56CikEagk)
     -   公開日: 2025-01-15
-    -   視聴数: 845,548
-    -   **いいね数: 22,174**
+    -   視聴数: 845,827
+    -   **いいね数: 22,169**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸新党は？記者会見】なぜテレ朝に激怒？謎だらけ新党の全容は？【ReHacQSP】](https://www.youtube.com/watch?v=lM0cVpbgv5w)
     -   公開日: 2025-01-15
@@ -282,8 +282,8 @@
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=k2jbKFIP--s)
     -   公開日: 2025-01-26
-    -   視聴数: 1,001,028
-    -   **いいね数: 17,907**
+    -   視聴数: 1,005,085
+    -   **いいね数: 17,918**
     -   出演者: 石破茂, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=loEb4IWVkAs)
     -   公開日: 2025-08-07
@@ -475,6 +475,11 @@
     -   視聴数: 657,869
     -   **いいね数: 14,266**
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=TRuYLYqTUDU)
+    -   公開日: 2025-08-09
+    -   視聴数: 800,492
+    -   **いいね数: 14,249**
+    -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](https://www.youtube.com/watch?v=PcMXSTSfqto)
     -   公開日: 2024-09-10
     -   視聴数: 1,181,667
@@ -490,11 +495,6 @@
     -   視聴数: 682,803
     -   **いいね数: 13,847**
     -   出演者: 前原こうしょく, 宮代翔太, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=TRuYLYqTUDU)
-    -   公開日: 2025-08-09
-    -   視聴数: 759,240
-    -   **いいね数: 13,828**
-    -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](https://www.youtube.com/watch?v=4yiyaq0q6xQ)
     -   公開日: 2024-03-09
     -   視聴数: 1,220,634
