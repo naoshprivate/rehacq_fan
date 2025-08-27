@@ -7,8 +7,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
-    -   視聴数: 2,002,588
-    -   **いいね数: 58,324**
+    -   視聴数: 2,012,351
+    -   **いいね数: 58,349**
     -   出演者: 斎藤元彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
@@ -17,8 +17,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 河村たかし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6Vww3vD7jHg)
     -   公開日: 2024-11-19
-    -   視聴数: 2,126,124
-    -   **いいね数: 43,582**
+    -   視聴数: 2,126,438
+    -   **いいね数: 43,571**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)
     -   公開日: 2025-04-13
@@ -52,8 +52,8 @@
     -   出演者: 
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](https://www.youtube.com/watch?v=b-bNBgMhpNM)
     -   公開日: 2024-11-01
-    -   視聴数: 1,538,282
-    -   **いいね数: 32,495**
+    -   視聴数: 1,538,477
+    -   **いいね数: 32,494**
     -   出演者: 大澤芳清, 斎藤元彦, 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, 立花孝志
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
@@ -132,8 +132,8 @@
     -   出演者: 米山隆一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](https://www.youtube.com/watch?v=DQkpV-2rV3I)
     -   公開日: 2024-12-23
-    -   視聴数: 997,930
-    -   **いいね数: 24,546**
+    -   視聴数: 999,932
+    -   **いいね数: 24,548**
     -   出演者: 吉村洋文, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](https://www.youtube.com/watch?v=TkJRmw7WPeI)
     -   公開日: 2023-10-10
@@ -142,8 +142,8 @@
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](https://www.youtube.com/watch?v=0P-1c-mn2mc)
     -   公開日: 2024-12-08
-    -   視聴数: 1,292,538
-    -   **いいね数: 23,433**
+    -   視聴数: 1,292,583
+    -   **いいね数: 23,431**
     -   出演者: 
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](https://www.youtube.com/watch?v=XJbgK1m8j2Q)
     -   公開日: 2024-06-23
@@ -277,8 +277,8 @@
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
-    -   視聴数: 920,071
-    -   **いいね数: 18,193**
+    -   視聴数: 920,154
+    -   **いいね数: 18,188**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=k2jbKFIP--s)
     -   公開日: 2025-01-26
@@ -367,8 +367,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](https://www.youtube.com/watch?v=V9X86suY1Xs)
     -   公開日: 2024-12-17
-    -   視聴数: 693,815
-    -   **いいね数: 15,725**
+    -   視聴数: 695,216
+    -   **いいね数: 15,724**
     -   出演者: 川松真一朗, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](https://www.youtube.com/watch?v=F4WmVdF4M8c)
     -   公開日: 2024-11-21
@@ -487,8 +487,8 @@
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本誠真会vs高橋弘樹】日本誠真会にNG無し質問！【西田亮介vs吉野としあき】](https://www.youtube.com/watch?v=sbvCaoV8dpM)
     -   公開日: 2025-07-15
-    -   視聴数: 327,469
-    -   **いいね数: 14,145**
+    -   視聴数: 327,889
+    -   **いいね数: 14,144**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸伸二vs地方議員　地方財政の現実とは？【ReHacQ】](https://www.youtube.com/watch?v=MkLbROvzUB4)
     -   公開日: 2025-03-03

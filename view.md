@@ -52,8 +52,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6Vww3vD7jHg)
     -   公開日: 2024-11-19
-    -   視聴数: 2,126,124
-    -   **いいね数: 43,582**
+    -   視聴数: 2,126,438
+    -   **いいね数: 43,571**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](https://www.youtube.com/watch?v=hio2XdBPW5Y)
     -   公開日: 2024-02-24
@@ -77,8 +77,8 @@
     -   出演者: 柳沢正史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
-    -   視聴数: 2,002,588
-    -   **いいね数: 58,324**
+    -   視聴数: 2,012,351
+    -   **いいね数: 58,349**
     -   出演者: 斎藤元彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](https://www.youtube.com/watch?v=XJbgK1m8j2Q)
     -   公開日: 2024-06-23
@@ -127,8 +127,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 西村ゆか
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](https://www.youtube.com/watch?v=b-bNBgMhpNM)
     -   公開日: 2024-11-01
-    -   視聴数: 1,538,282
-    -   **いいね数: 32,495**
+    -   視聴数: 1,538,477
+    -   **いいね数: 32,494**
     -   出演者: 大澤芳清, 斎藤元彦, 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, 立花孝志
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](https://www.youtube.com/watch?v=lp7PPFsnQAE)
     -   公開日: 2023-07-14
@@ -162,8 +162,8 @@
     -   出演者: 
 1.  [【ひろゆきvs衆院選2024】ほぼ落選！音喜多駿が緊急参戦…なぜ負けた？石丸伸二VTR出演&緊急生電話【藤井サチvsさとうさおりvs高橋弘樹】](https://www.youtube.com/watch?v=AmCukzP6Gwc)
     -   公開日: 2024-10-27
-    -   視聴数: 1,414,310
-    -   **いいね数: 11,678**
+    -   視聴数: 1,414,402
+    -   **いいね数: 11,677**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](https://www.youtube.com/watch?v=DnaUPmvmoHU)
     -   公開日: 2023-11-30
@@ -202,8 +202,8 @@
     -   出演者: スーツ
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](https://www.youtube.com/watch?v=0P-1c-mn2mc)
     -   公開日: 2024-12-08
-    -   視聴数: 1,292,538
-    -   **いいね数: 23,433**
+    -   視聴数: 1,292,583
+    -   **いいね数: 23,431**
     -   出演者: 
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
     -   公開日: 2025-01-06
@@ -382,8 +382,8 @@
     -   出演者: 石破茂, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](https://www.youtube.com/watch?v=DQkpV-2rV3I)
     -   公開日: 2024-12-23
-    -   視聴数: 997,930
-    -   **いいね数: 24,546**
+    -   視聴数: 999,932
+    -   **いいね数: 24,548**
     -   出演者: 吉村洋文, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
@@ -422,8 +422,8 @@
     -   出演者: 田中渓, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
-    -   視聴数: 920,071
-    -   **いいね数: 18,193**
+    -   視聴数: 920,154
+    -   **いいね数: 18,188**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](https://www.youtube.com/watch?v=kJ2-KHagA8s)
     -   公開日: 2024-12-31
@@ -432,7 +432,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](https://www.youtube.com/watch?v=yFtpS4iZXlg)
     -   公開日: 2024-12-08
-    -   視聴数: 910,790
+    -   視聴数: 910,923
     -   **いいね数: 12,409**
     -   出演者: 
 1.  [【ひろゆきvs公明党】創価学会は納得？公明党の存在意義とは？徹底議論…【党宣伝局長が参戦！】](https://www.youtube.com/watch?v=nd1_O8GADYw)
