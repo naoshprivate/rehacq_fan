@@ -87,7 +87,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](https://www.youtube.com/watch?v=TkJRmw7WPeI)
     -   公開日: 2023-10-10
-    -   視聴数: 1,822,045
+    -   視聴数: 1,822,331
     -   **いいね数: 23,638**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
@@ -292,8 +292,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 箕輪厚介, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](https://www.youtube.com/watch?v=yfbTb_WzSTM)
     -   公開日: 2023-08-20
-    -   視聴数: 1,098,471
-    -   **いいね数: 12,477**
+    -   視聴数: 1,099,068
+    -   **いいね数: 12,482**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 東出昌大
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
     -   公開日: 2025-07-20
@@ -332,8 +332,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 石破茂
 1.  [【石丸伸二vs高橋弘樹】第一部…大激論！議席0「再生の道」の真意は？第二部…「あつまれ！落選の森」候補者vs石丸代表！衝撃の真実【ReHacQ西田亮介】](https://www.youtube.com/watch?v=tg3vnK5st1E)
     -   公開日: 2025-06-23
-    -   視聴数: 1,069,243
-    -   **いいね数: 27,104**
+    -   視聴数: 1,070,309
+    -   **いいね数: 27,100**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
@@ -367,7 +367,7 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](https://www.youtube.com/watch?v=3rx30yJXsLs)
     -   公開日: 2023-10-01
-    -   視聴数: 1,010,490
+    -   視聴数: 1,010,563
     -   **いいね数: 15,554**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=xVW1qk9pj9s)
