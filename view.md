@@ -117,8 +117,8 @@
     -   出演者: 米山隆一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=3WIDjkmg6xY)
     -   公開日: 2025-02-02
-    -   視聴数: 1,642,677
-    -   **いいね数: 21,644**
+    -   視聴数: 1,643,706
+    -   **いいね数: 21,649**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](https://www.youtube.com/watch?v=4G8qsbpfLNo)
     -   公開日: 2024-02-20
@@ -222,8 +222,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=v6K85s-g9Oc)
     -   公開日: 2025-02-05
-    -   視聴数: 1,246,671
-    -   **いいね数: 17,574**
+    -   視聴数: 1,248,979
+    -   **いいね数: 17,581**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
     -   公開日: 2024-06-15
@@ -247,8 +247,8 @@
     -   出演者: 内田稔, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](https://www.youtube.com/watch?v=PcMXSTSfqto)
     -   公開日: 2024-09-10
-    -   視聴数: 1,181,667
-    -   **いいね数: 14,171**
+    -   視聴数: 1,188,201
+    -   **いいね数: 14,217**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](https://www.youtube.com/watch?v=7_sdf9uZUiU)
     -   公開日: 2024-07-31
@@ -267,8 +267,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](https://www.youtube.com/watch?v=mf37-gaqcFE)
     -   公開日: 2025-04-06
-    -   視聴数: 1,116,076
-    -   **いいね数: 21,287**
+    -   視聴数: 1,117,190
+    -   **いいね数: 21,294**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](https://www.youtube.com/watch?v=EYKExpig3-4)
     -   公開日: 2023-05-28
