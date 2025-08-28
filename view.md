@@ -2,8 +2,8 @@
 
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
-    -   視聴数: 3,446,282
-    -   **いいね数: 53,363**
+    -   視聴数: 3,459,848
+    -   **いいね数: 53,458**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 河村たかし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
@@ -42,8 +42,8 @@
     -   出演者: 野村泰紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs日本保守党】河村たかしが激怒！政治屋をぶっつぶす【西田亮介vsリハックマReHacQ】](https://www.youtube.com/watch?v=0ecD5gpE0i8)
     -   公開日: 2024-11-09
-    -   視聴数: 2,225,609
-    -   **いいね数: 31,951**
+    -   視聴数: 2,238,027
+    -   **いいね数: 32,041**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 河村たかし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](https://www.youtube.com/watch?v=Thz0fKoe98c)
     -   公開日: 2023-07-23
@@ -82,8 +82,8 @@
     -   出演者: 斎藤元彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](https://www.youtube.com/watch?v=XJbgK1m8j2Q)
     -   公開日: 2024-06-23
-    -   視聴数: 1,996,233
-    -   **いいね数: 22,844**
+    -   視聴数: 1,998,999
+    -   **いいね数: 22,859**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](https://www.youtube.com/watch?v=TkJRmw7WPeI)
     -   公開日: 2023-10-10
@@ -205,16 +205,16 @@
     -   視聴数: 1,292,583
     -   **いいね数: 23,431**
     -   出演者: 
+1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](https://www.youtube.com/watch?v=gpoohY5z6MI)
+    -   公開日: 2024-08-16
+    -   視聴数: 1,278,556
+    -   **いいね数: 12,506**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
     -   公開日: 2025-01-06
     -   視聴数: 1,268,604
     -   **いいね数: 13,437**
     -   出演者: 田中渓, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](https://www.youtube.com/watch?v=gpoohY5z6MI)
-    -   公開日: 2024-08-16
-    -   視聴数: 1,265,548
-    -   **いいね数: 12,409**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](https://www.youtube.com/watch?v=nhJYpgzPBJU)
     -   公開日: 2025-04-09
     -   視聴数: 1,258,698
@@ -270,16 +270,16 @@
     -   視聴数: 1,117,190
     -   **いいね数: 21,294**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=jfuZDsUN4JY)
+    -   公開日: 2024-10-13
+    -   視聴数: 1,111,436
+    -   **いいね数: 7,205**
+    -   出演者: 小西洋之, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](https://www.youtube.com/watch?v=EYKExpig3-4)
     -   公開日: 2023-05-28
     -   視聴数: 1,109,176
     -   **いいね数: 18,491**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=jfuZDsUN4JY)
-    -   公開日: 2024-10-13
-    -   視聴数: 1,108,222
-    -   **いいね数: 7,191**
-    -   出演者: 小西洋之, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](https://www.youtube.com/watch?v=-67Yfoti-W0)
     -   公開日: 2024-08-07
     -   視聴数: 1,105,409
@@ -407,8 +407,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](https://www.youtube.com/watch?v=hvJ0lBxFILU)
     -   公開日: 2024-08-04
-    -   視聴数: 949,163
-    -   **いいね数: 14,783**
+    -   視聴数: 963,653
+    -   **いいね数: 14,974**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](https://www.youtube.com/watch?v=V2AJCMmVW2I)
     -   公開日: 2024-09-19
