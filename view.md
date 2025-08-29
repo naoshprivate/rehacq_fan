@@ -470,6 +470,11 @@
     -   視聴数: 849,226
     -   **いいね数: 16,175**
     -   出演者: 中田敦彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=loEb4IWVkAs)
+    -   公開日: 2025-08-07
+    -   視聴数: 845,866
+    -   **いいね数: 18,402**
+    -   出演者: カルロス・ゴーン, 須賀川拓
 1.  [【石丸伸二 緊急生出演】石丸新党「再生の道」とは？会見参加できなかったメディア質問会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=7V56CikEagk)
     -   公開日: 2025-01-15
     -   視聴数: 845,827
@@ -495,8 +500,3 @@
     -   視聴数: 833,955
     -   **いいね数: 9,234**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 藤田文武, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ひろゆき&石丸伸二&後藤達也】祝！100万人突破…生配信【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=mAj8Oc-Mj_Y)
-    -   公開日: 2024-10-07
-    -   視聴数: 826,558
-    -   **いいね数: 13,177**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
