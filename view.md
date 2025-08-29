@@ -297,8 +297,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 東出昌大
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
     -   公開日: 2025-07-20
-    -   視聴数: 1,094,987
-    -   **いいね数: 8,161**
+    -   視聴数: 1,095,728
+    -   **いいね数: 8,158**
     -   出演者: 宇佐美典也, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
@@ -452,8 +452,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
     -   公開日: 2025-02-27
-    -   視聴数: 885,396
-    -   **いいね数: 11,588**
+    -   視聴数: 892,425
+    -   **いいね数: 11,617**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 河野龍太郎
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](https://www.youtube.com/watch?v=T6-FWvACzn8)
     -   公開日: 2025-04-30
@@ -480,6 +480,11 @@
     -   視聴数: 844,591
     -   **いいね数: 13,448**
     -   出演者: 中田敦彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
+    -   公開日: 2025-03-06
+    -   視聴数: 836,451
+    -   **いいね数: 10,490**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 河野龍太郎
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
     -   視聴数: 835,567
@@ -490,11 +495,6 @@
     -   視聴数: 833,955
     -   **いいね数: 9,234**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 藤田文武, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
-    -   公開日: 2025-03-06
-    -   視聴数: 829,891
-    -   **いいね数: 10,453**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 河野龍太郎
 1.  [【ひろゆき&石丸伸二&後藤達也】祝！100万人突破…生配信【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=mAj8Oc-Mj_Y)
     -   公開日: 2024-10-07
     -   視聴数: 826,558
