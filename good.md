@@ -360,16 +360,16 @@
     -   視聴数: 801,704
     -   **いいね数: 16,085**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
+1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](https://www.youtube.com/watch?v=o9Ymcad1RXE)
+    -   公開日: 2025-08-27
+    -   視聴数: 532,880
+    -   **いいね数: 15,917**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
     -   公開日: 2024-06-15
     -   視聴数: 1,231,498
     -   **いいね数: 15,913**
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](https://www.youtube.com/watch?v=o9Ymcad1RXE)
-    -   公開日: 2025-08-27
-    -   視聴数: 526,623
-    -   **いいね数: 15,879**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](https://www.youtube.com/watch?v=V9X86suY1Xs)
     -   公開日: 2024-12-17
     -   視聴数: 695,216
