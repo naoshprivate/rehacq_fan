@@ -47,8 +47,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](https://www.youtube.com/watch?v=QoFBeE9_9n4)
     -   公開日: 2024-06-24
-    -   視聴数: 1,428,202
-    -   **いいね数: 33,527**
+    -   視聴数: 1,428,568
+    -   **いいね数: 33,523**
     -   出演者: 
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
@@ -107,8 +107,8 @@
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](https://www.youtube.com/watch?v=I8__R-9OwwA)
     -   公開日: 2024-07-03
-    -   視聴数: 635,493
-    -   **いいね数: 26,337**
+    -   視聴数: 635,534
+    -   **いいね数: 26,334**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
@@ -277,8 +277,8 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【百田尚樹vs高橋弘樹】日本保守党にNG無し質問！【ReHacQvs日本保守党】](https://www.youtube.com/watch?v=66XALKEKYqA)
     -   公開日: 2025-07-19
-    -   視聴数: 422,464
-    -   **いいね数: 18,321**
+    -   視聴数: 424,275
+    -   **いいね数: 18,325**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
@@ -332,8 +332,8 @@
     -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
-    -   視聴数: 1,064,434
-    -   **いいね数: 16,416**
+    -   視聴数: 1,064,837
+    -   **いいね数: 16,424**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](https://www.youtube.com/watch?v=5iuWBR80ZWs)
     -   公開日: 2023-07-07
@@ -342,8 +342,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](https://www.youtube.com/watch?v=o9Ymcad1RXE)
     -   公開日: 2025-08-27
-    -   視聴数: 568,845
-    -   **いいね数: 16,279**
+    -   視聴数: 569,944
+    -   **いいね数: 16,280**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
@@ -367,8 +367,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
     -   公開日: 2024-06-15
-    -   視聴数: 1,231,498
-    -   **いいね数: 15,913**
+    -   視聴数: 1,231,668
+    -   **いいね数: 15,914**
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](https://www.youtube.com/watch?v=V9X86suY1Xs)
     -   公開日: 2024-12-17
