@@ -1,27 +1,27 @@
 # 最近の動画
 1.  [【スーツvs羽田圭介】旅のプロ初共演！知られざる北海道旅【ReHacQ旅】](https://www.youtube.com/watch?v=e0eDv9p18jk)
     -   公開日: 2025-08-31
-    -   視聴数: 2,989
-    -   **いいね数: 138**
+    -   視聴数: 5,313
+    -   **いいね数: 272**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), 羽田圭介
 1.  [【野村泰紀vs宇宙の力】時間と空間は意味ない...多次元の宇宙とは？【ReHacQリベラルアーツ・高橋弘樹】](https://www.youtube.com/watch?v=Zor71qqLF8Q)
     -   公開日: 2025-08-31
-    -   視聴数: 13,149
-    -   **いいね数: 615**
+    -   視聴数: 19,946
+    -   **いいね数: 782**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs絨毯爆撃】サンジポ緊急生配信レバノンの戦争最前線 メディア初取材 衝撃の現実【石丸伸二＆ReHacQ戦場ジャーナリスト須賀川拓】](https://www.youtube.com/watch?v=jC8CwQH46KY)
     -   公開日: 2025-08-30
-    -   視聴数: 128,711
-    -   **いいね数: 4,373**
+    -   視聴数: 131,265
+    -   **いいね数: 4,434**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【ひろゆきvs石丸伸二】温泉で衝撃告白…なぜ代表やめる？ReHacQ旅⑤【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=6SbjPoQzx0Y)
     -   公開日: 2025-08-30
-    -   視聴数: 226,241
-    -   **いいね数: 10,728**
+    -   視聴数: 230,667
+    -   **いいね数: 10,823**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【NVIDIA決算】予想上回り過去最高の約6.9兆円...市場の反応は？【永濱利廣＆宮嶋貴之】](https://www.youtube.com/watch?v=cttUgH1xh9U)
     -   公開日: 2025-08-29
-    -   視聴数: 27,694
+    -   視聴数: 27,814
     -   **いいね数: 217**
     -   出演者: 宮嶋貴之, [横川楓](/rehacq_fan/people/横川楓 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 
@@ -62,8 +62,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
-    -   視聴数: 2,012,351
-    -   **いいね数: 58,349**
+    -   視聴数: 2,024,256
+    -   **いいね数: 58,372**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
@@ -72,8 +72,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6Vww3vD7jHg)
     -   公開日: 2024-11-19
-    -   視聴数: 2,126,438
-    -   **いいね数: 43,571**
+    -   視聴数: 2,127,329
+    -   **いいね数: 43,566**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)
     -   公開日: 2025-04-13
@@ -85,7 +85,7 @@
 # 時系列データ
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 12,186,720, いいね数: 237,188
+-   動画数: 65, 視聴数: 12,204,584, いいね数: 237,675
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -121,11 +121,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,224,977, いいね数: 372,912
+-   動画数: 37, 視聴数: 21,238,048, いいね数: 372,924
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 21,950,763, いいね数: 339,093
+-   動画数: 72, 視聴数: 21,957,993, いいね数: 339,087
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -204,4 +204,4 @@
 -   動画数: 14, 視聴数: 7,759,034, いいね数: 140,970
 
 ---
-2025-08-31 22:00
+2025-08-31 23:00
