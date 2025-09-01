@@ -297,8 +297,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
     -   公開日: 2025-07-20
-    -   視聴数: 1,095,728
-    -   **いいね数: 8,158**
+    -   視聴数: 1,096,294
+    -   **いいね数: 8,157**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
@@ -445,16 +445,16 @@
     -   視聴数: 910,996
     -   **いいね数: 12,409**
     -   出演者: 
+1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
+    -   公開日: 2025-02-27
+    -   視聴数: 900,547
+    -   **いいね数: 11,684**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](https://www.youtube.com/watch?v=B7bchnNcYhI)
     -   公開日: 2023-10-07
     -   視聴数: 896,074
     -   **いいね数: 9,970**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
-1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
-    -   公開日: 2025-02-27
-    -   視聴数: 892,425
-    -   **いいね数: 11,617**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](https://www.youtube.com/watch?v=T6-FWvACzn8)
     -   公開日: 2025-04-30
     -   視聴数: 879,681
@@ -485,16 +485,16 @@
     -   視聴数: 845,866
     -   **いいね数: 18,402**
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
+    -   公開日: 2025-03-06
+    -   視聴数: 843,410
+    -   **いいね数: 10,560**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](https://www.youtube.com/watch?v=JxdSFPP3_Bg)
     -   公開日: 2025-05-13
     -   視聴数: 842,480
     -   **いいね数: 6,392**
     -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
-    -   公開日: 2025-03-06
-    -   視聴数: 836,451
-    -   **いいね数: 10,490**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
     -   視聴数: 836,262
