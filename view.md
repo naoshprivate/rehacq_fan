@@ -92,8 +92,8 @@
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
     -   公開日: 2024-07-18
-    -   視聴数: 1,801,824
-    -   **いいね数: 28,094**
+    -   視聴数: 1,802,102
+    -   **いいね数: 28,095**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](https://www.youtube.com/watch?v=oHDV4qfKJSw)
     -   公開日: 2024-08-08
@@ -170,16 +170,16 @@
     -   視聴数: 1,400,610
     -   **いいね数: 13,596**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](https://www.youtube.com/watch?v=7PgJY5fY5NY)
+    -   公開日: 2024-04-26
+    -   視聴数: 1,399,968
+    -   **いいね数: 10,128**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](https://www.youtube.com/watch?v=xcbxnXpIizM)
     -   公開日: 2023-12-07
     -   視聴数: 1,399,711
     -   **いいね数: 15,232**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](https://www.youtube.com/watch?v=7PgJY5fY5NY)
-    -   公開日: 2024-04-26
-    -   視聴数: 1,396,452
-    -   **いいね数: 10,120**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】前兵庫県知事が緊急生出演...「パワハラ」「告発文書」「PC文書」の真相は？【ReHacQ】](https://www.youtube.com/watch?v=jNGjngpf05U)
     -   公開日: 2024-10-03
     -   視聴数: 1,371,065
@@ -392,8 +392,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
-    -   視聴数: 983,561
-    -   **いいね数: 20,696**
+    -   視聴数: 986,907
+    -   **いいね数: 20,703**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](https://www.youtube.com/watch?v=18Lb1U5pt0k)
     -   公開日: 2025-05-18
