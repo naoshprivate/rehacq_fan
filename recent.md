@@ -1,26 +1,26 @@
 1.  [【高橋弘樹vs大企業】新時代のマスメディアへ_高橋弘樹 初ピッチ挑戦で大企業と協業なるか？【ReHacQ】](https://www.youtube.com/watch?v=FC0PzLb1saY)
     -   公開日: 2025-09-02
-    -   視聴数: 5,840
-    -   **いいね数: 305**
+    -   視聴数: 10,219
+    -   **いいね数: 409**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本維新の会】藤田文武共同代表 記者会見　9月2日(火)【ReHacQ】](https://www.youtube.com/watch?v=uoHuB_uvuSQ)
     -   公開日: 2025-09-02
-    -   視聴数: 5,645
-    -   **いいね数: 135**
+    -   視聴数: 6,662
+    -   **いいね数: 153**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 9月2日（火）【ReHacQ】](https://www.youtube.com/watch?v=aLQOKHiA9L0)
     -   公開日: 2025-09-02
-    -   視聴数: 16,063
-    -   **いいね数: 254**
+    -   視聴数: 16,526
+    -   **いいね数: 258**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【赤沢亮生vs高橋弘樹】激白120分！関税は10分…なぜ渡米延期？借金漬けで政治家に…南海トラフと富士山噴火リスクとは？防災担当大臣が徹底議論！ReHacQ【永濱利廣】](https://www.youtube.com/watch?v=UyennZ68-Lk)
     -   公開日: 2025-09-01
-    -   視聴数: 79,983
-    -   **いいね数: 1,737**
+    -   視聴数: 81,193
+    -   **いいね数: 1,759**
     -   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 赤沢亮正
 1.  [【妊活専門医vs元ゴールドマン・サックス】卵子凍結の成功率80%は本当？変わるべきは社会制度？妊活と女性キャリア最前線【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=d_dkHgvQgoQ)
     -   公開日: 2025-09-01
-    -   視聴数: 61,898
-    -   **いいね数: 1,662**
+    -   視聴数: 64,264
+    -   **いいね数: 1,703**
     -   出演者: 岡田有香, [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
