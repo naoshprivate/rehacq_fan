@@ -157,8 +157,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](https://www.youtube.com/watch?v=QoFBeE9_9n4)
     -   公開日: 2024-06-24
-    -   視聴数: 1,428,568
-    -   **いいね数: 33,523**
+    -   視聴数: 1,428,959
+    -   **いいね数: 33,517**
     -   出演者: 
 1.  [【ひろゆきvs衆院選2024】ほぼ落選！音喜多駿が緊急参戦…なぜ負けた？石丸伸二VTR出演&緊急生電話【藤井サチvsさとうさおりvs高橋弘樹】](https://www.youtube.com/watch?v=AmCukzP6Gwc)
     -   公開日: 2024-10-27
@@ -232,8 +232,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
     -   公開日: 2024-06-15
-    -   視聴数: 1,231,668
-    -   **いいね数: 15,914**
+    -   視聴数: 1,231,784
+    -   **いいね数: 15,910**
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](https://www.youtube.com/watch?v=If8msXol9zo)
     -   公開日: 2024-07-27
@@ -347,8 +347,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
-    -   視聴数: 1,064,837
-    -   **いいね数: 16,424**
+    -   視聴数: 1,065,254
+    -   **いいね数: 16,428**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
     -   公開日: 2023-11-01

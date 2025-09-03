@@ -47,8 +47,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](https://www.youtube.com/watch?v=QoFBeE9_9n4)
     -   公開日: 2024-06-24
-    -   視聴数: 1,428,568
-    -   **いいね数: 33,523**
+    -   視聴数: 1,428,959
+    -   **いいね数: 33,517**
     -   出演者: 
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
@@ -107,8 +107,8 @@
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](https://www.youtube.com/watch?v=I8__R-9OwwA)
     -   公開日: 2024-07-03
-    -   視聴数: 635,534
-    -   **いいね数: 26,334**
+    -   視聴数: 635,570
+    -   **いいね数: 26,330**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
@@ -342,8 +342,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
-    -   視聴数: 1,064,837
-    -   **いいね数: 16,424**
+    -   視聴数: 1,065,254
+    -   **いいね数: 16,428**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
@@ -367,8 +367,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
     -   公開日: 2024-06-15
-    -   視聴数: 1,231,668
-    -   **いいね数: 15,914**
+    -   視聴数: 1,231,784
+    -   **いいね数: 15,910**
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](https://www.youtube.com/watch?v=V9X86suY1Xs)
     -   公開日: 2024-12-17
