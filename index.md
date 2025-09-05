@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【日経平均続伸】自動車関税引き下げと8月の米雇用統計...重要イベント続くマーケットの反応は？【熊野英生＆糸島孝俊＆森本智子】](https://www.youtube.com/watch?v=W5RuC2DH5hY)
     -   公開日: 2025-09-05
-    -   視聴数: 7,196
-    -   **いいね数: 134**
+    -   視聴数: 15,373
+    -   **いいね数: 166**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), 糸島孝俊
     - [![](https://img.youtube.com/vi/W5RuC2DH5hY/hqdefault.jpg)](https://www.youtube.com/watch?v=W5RuC2DH5hY)
-1.  [【高橋弘樹vs辞め外務省】脱炭素...なぜ中国が覇権？外交官を辞め群馬の山奥に移住したワケとは【ReHacQ】](https://www.youtube.com/watch?v=p2jDfLSd2P0)
+1.  [【辞め外務省vs中国の覇権】危険！再生エネルギー独占でいいのか？国力上げるため起業【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=p2jDfLSd2P0)
     -   公開日: 2025-09-05
-    -   視聴数: 5,827
-    -   **いいね数: 196**
+    -   視聴数: 9,695
+    -   **いいね数: 245**
     -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p2jDfLSd2P0/hqdefault.jpg)](https://www.youtube.com/watch?v=p2jDfLSd2P0)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月5日（金）【ReHacQ】](https://www.youtube.com/watch?v=eOmvJpVbk4c)
     -   公開日: 2025-09-05
-    -   視聴数: 11,231
-    -   **いいね数: 63**
+    -   視聴数: 11,603
+    -   **いいね数: 67**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/eOmvJpVbk4c/hqdefault.jpg)](https://www.youtube.com/watch?v=eOmvJpVbk4c)
 1.  [【後藤達也vs円安】経済界に課題山積...景気を良くするには…【元日銀理事門間一夫】](https://www.youtube.com/watch?v=SJzr8wS2qAw)
     -   公開日: 2025-09-04
-    -   視聴数: 98,187
-    -   **いいね数: 1,796**
+    -   視聴数: 102,026
+    -   **いいね数: 1,840**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
     - [![](https://img.youtube.com/vi/SJzr8wS2qAw/hqdefault.jpg)](https://www.youtube.com/watch?v=SJzr8wS2qAw)
 1.  [【高橋弘樹vs不動産Gメン滝島】不動産Gメンが不動産業界の闇を暴く…業界のタブーを大暴露【ReHacQ】](https://www.youtube.com/watch?v=HdZfc0_wWwk)
     -   公開日: 2025-09-04
-    -   視聴数: 208,834
-    -   **いいね数: 4,031**
+    -   視聴数: 219,796
+    -   **いいね数: 4,166**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 滝島一統, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/HdZfc0_wWwk/hqdefault.jpg)](https://www.youtube.com/watch?v=HdZfc0_wWwk)
 
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 12, 視聴数: 853,990, いいね数: 15,095
+-   動画数: 12, 視聴数: 883,428, いいね数: 15,374
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 12,997,707, いいね数: 248,279
+-   動画数: 65, 視聴数: 13,006,267, いいね数: 248,349
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,701,776, いいね数: 351,639
+-   動画数: 76, 視聴数: 19,702,053, いいね数: 351,635
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -142,27 +142,27 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,129,274, いいね数: 317,470
+-   動画数: 43, 視聴数: 19,132,166, いいね数: 317,481
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,484,291, いいね数: 290,168
+-   動画数: 44, 視聴数: 15,486,682, いいね数: 290,168
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,431,527, いいね数: 140,777
+-   動画数: 31, 視聴数: 10,433,800, いいね数: 140,797
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,390,814, いいね数: 79,048
+-   動画数: 29, 視聴数: 6,394,205, いいね数: 79,065
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,300,317, いいね数: 98,154
+-   動画数: 34, 視聴数: 9,303,335, いいね数: 98,166
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 8,962,848, いいね数: 108,776
+-   動画数: 44, 視聴数: 8,962,934, いいね数: 108,777
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,772,045, いいね数: 140,989
 
 ---
-2025-09-05 23:00
+2025-09-06 01:00
