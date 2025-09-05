@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【日経平均続伸】自動車関税引き下げと8月の米雇用統計...重要イベント続くマーケットの反応は？【熊野英生＆糸島孝俊＆森本智子】](https://www.youtube.com/watch?v=W5RuC2DH5hY)
     -   公開日: 2025-09-05
-    -   視聴数: 4,988
-    -   **いいね数: 77**
+    -   視聴数: 7,196
+    -   **いいね数: 134**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), 糸島孝俊
     - [![](https://img.youtube.com/vi/W5RuC2DH5hY/hqdefault.jpg)](https://www.youtube.com/watch?v=W5RuC2DH5hY)
 1.  [【高橋弘樹vs辞め外務省】脱炭素...なぜ中国が覇権？外交官を辞め群馬の山奥に移住したワケとは【ReHacQ】](https://www.youtube.com/watch?v=p2jDfLSd2P0)
     -   公開日: 2025-09-05
-    -   視聴数: 3,227
-    -   **いいね数: 151**
+    -   視聴数: 5,827
+    -   **いいね数: 196**
     -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p2jDfLSd2P0/hqdefault.jpg)](https://www.youtube.com/watch?v=p2jDfLSd2P0)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月5日（金）【ReHacQ】](https://www.youtube.com/watch?v=eOmvJpVbk4c)
     -   公開日: 2025-09-05
-    -   視聴数: 10,993
+    -   視聴数: 11,231
     -   **いいね数: 63**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/eOmvJpVbk4c/hqdefault.jpg)](https://www.youtube.com/watch?v=eOmvJpVbk4c)
 1.  [【後藤達也vs円安】経済界に課題山積...景気を良くするには…【元日銀理事門間一夫】](https://www.youtube.com/watch?v=SJzr8wS2qAw)
     -   公開日: 2025-09-04
-    -   視聴数: 95,731
-    -   **いいね数: 1,772**
+    -   視聴数: 98,187
+    -   **いいね数: 1,796**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
     - [![](https://img.youtube.com/vi/SJzr8wS2qAw/hqdefault.jpg)](https://www.youtube.com/watch?v=SJzr8wS2qAw)
 1.  [【高橋弘樹vs不動産Gメン滝島】不動産Gメンが不動産業界の闇を暴く…業界のタブーを大暴露【ReHacQ】](https://www.youtube.com/watch?v=HdZfc0_wWwk)
     -   公開日: 2025-09-04
-    -   視聴数: 202,516
-    -   **いいね数: 3,945**
+    -   視聴数: 208,834
+    -   **いいね数: 4,031**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 滝島一統, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/HdZfc0_wWwk/hqdefault.jpg)](https://www.youtube.com/watch?v=HdZfc0_wWwk)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 12, 視聴数: 838,717, いいね数: 14,875
+-   動画数: 12, 視聴数: 853,990, いいね数: 15,095
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 12,957,943, いいね数: 247,908
+-   動画数: 65, 視聴数: 12,997,707, いいね数: 248,279
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,696,787, いいね数: 351,630
+-   動画数: 76, 視聴数: 19,701,776, いいね数: 351,639
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,082,690, いいね数: 280,878
+-   動画数: 77, 視聴数: 15,087,112, いいね数: 280,927
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -122,23 +122,23 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 16,962,661, いいね数: 287,467
+-   動画数: 48, 視聴数: 16,969,955, いいね数: 287,547
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,131,601, いいね数: 307,642
+-   動画数: 60, 視聴数: 18,132,238, いいね数: 307,649
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,303,767, いいね数: 373,313
+-   動画数: 37, 視聴数: 21,309,325, いいね数: 373,335
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 21,990,368, いいね数: 339,278
+-   動画数: 72, 視聴数: 21,990,664, いいね数: 339,280
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,250,917, いいね数: 218,195
+-   動画数: 50, 視聴数: 14,251,067, いいね数: 218,194
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,772,045, いいね数: 140,989
 
 ---
-2025-09-05 22:00
+2025-09-05 23:00
