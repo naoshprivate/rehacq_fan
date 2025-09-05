@@ -297,8 +297,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
     -   公開日: 2025-07-20
-    -   視聴数: 1,096,294
-    -   **いいね数: 8,157**
+    -   視聴数: 1,096,661
+    -   **いいね数: 8,158**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
@@ -447,8 +447,8 @@
     -   出演者: 
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
     -   公開日: 2025-02-27
-    -   視聴数: 900,547
-    -   **いいね数: 11,684**
+    -   視聴数: 908,078
+    -   **いいね数: 11,739**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](https://www.youtube.com/watch?v=B7bchnNcYhI)
     -   公開日: 2023-10-07
@@ -480,6 +480,11 @@
     -   視聴数: 850,538
     -   **いいね数: 16,186**
     -   出演者: [中田敦彦](/rehacq_fan/people/中田敦彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
+    -   公開日: 2025-03-06
+    -   視聴数: 850,433
+    -   **いいね数: 10,620**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【中田敦彦vs高橋弘樹#3】すべての働く人へ！中年の危機どう克服？シン・中田敦彦の幸福論【ReHacQvsYouTube大学】](https://www.youtube.com/watch?v=bAgYLjP2LPc)
     -   公開日: 2025-01-03
     -   視聴数: 847,226
@@ -490,11 +495,6 @@
     -   視聴数: 846,345
     -   **いいね数: 22,165**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
-    -   公開日: 2025-03-06
-    -   視聴数: 843,410
-    -   **いいね数: 10,560**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
     -   視聴数: 836,664
