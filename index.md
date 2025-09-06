@@ -1,31 +1,31 @@
 # 最近の動画
-1.  [【高橋弘樹vsAI】社会課題はAIで解決出来る？AIビジネスで地方創生【ReHacQ】](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
-    -   公開日: 2025-09-06
-    -   視聴数: 1
-    -   **いいね数: 12**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/ZP9GpoGzpPk/hqdefault.jpg)](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
 1.  [【ひろゆきvsデジタル大臣】激白！外国勢力のSNSによる選挙介入!?サイバーセキュリティ最前線【平将明vs西田亮介】](https://www.youtube.com/watch?v=QMR96_ZTFQc)
     -   公開日: 2025-09-06
     -   視聴数: 2
-    -   **いいね数: 12**
+    -   **いいね数: 34**
     -   出演者: 
     - [![](https://img.youtube.com/vi/QMR96_ZTFQc/hqdefault.jpg)](https://www.youtube.com/watch?v=QMR96_ZTFQc)
+1.  [【高橋弘樹vsAI】社会課題はAIで解決出来る？AIビジネスで地方創生【ReHacQ】](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
+    -   公開日: 2025-09-06
+    -   視聴数: 2,533
+    -   **いいね数: 70**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ZP9GpoGzpPk/hqdefault.jpg)](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
 1.  [【日経平均続伸】自動車関税引き下げと8月の米雇用統計...重要イベント続くマーケットの反応は？【熊野英生＆糸島孝俊＆森本智子】](https://www.youtube.com/watch?v=W5RuC2DH5hY)
     -   公開日: 2025-09-05
-    -   視聴数: 31,028
+    -   視聴数: 31,470
     -   **いいね数: 301**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), 糸島孝俊
     - [![](https://img.youtube.com/vi/W5RuC2DH5hY/hqdefault.jpg)](https://www.youtube.com/watch?v=W5RuC2DH5hY)
 1.  [【辞め外務省vs中国の覇権】危険！再生エネルギー独占でいいのか？国力上げるため起業【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=p2jDfLSd2P0)
     -   公開日: 2025-09-05
-    -   視聴数: 31,944
-    -   **いいね数: 609**
+    -   視聴数: 32,910
+    -   **いいね数: 620**
     -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/p2jDfLSd2P0/hqdefault.jpg)](https://www.youtube.com/watch?v=p2jDfLSd2P0)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月5日（金）【ReHacQ】](https://www.youtube.com/watch?v=eOmvJpVbk4c)
     -   公開日: 2025-09-05
-    -   視聴数: 12,574
+    -   視聴数: 12,632
     -   **いいね数: 72**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/eOmvJpVbk4c/hqdefault.jpg)](https://www.youtube.com/watch?v=eOmvJpVbk4c)
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 12, 視聴数: 1,024,855, いいね数: 17,282
+-   動画数: 13, 視聴数: 1,033,760, いいね数: 17,418
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 13,040,611, いいね数: 248,752
+-   動画数: 65, 視聴数: 13,045,343, いいね数: 248,809
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,702,892, いいね数: 351,645
+-   動画数: 76, 視聴数: 19,711,471, いいね数: 351,817
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,521,176, いいね数: 191,560
+-   動画数: 63, 視聴数: 14,532,240, いいね数: 191,677
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -162,23 +162,23 @@
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 8,963,534, いいね数: 108,786
+-   動画数: 44, 視聴数: 8,963,546, いいね数: 108,786
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,829,338, いいね数: 184,857
+-   動画数: 34, 視聴数: 14,829,507, いいね数: 184,864
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,272,731, いいね数: 118,023
+-   動画数: 30, 視聴数: 9,272,868, いいね数: 118,028
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,178,216, いいね数: 118,963
+-   動画数: 30, 視聴数: 9,178,284, いいね数: 118,965
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,019,169, いいね数: 141,191
+-   動画数: 25, 視聴数: 13,019,187, いいね数: 141,191
 
 #### [2023年10月](videos/202310 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,772,257, いいね数: 140,994
 
 ---
-2025-09-06 20:00
+2025-09-06 21:00
