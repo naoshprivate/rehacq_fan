@@ -475,6 +475,11 @@
     -   視聴数: 351,948
     -   **いいね数: 14,499**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
+    -   公開日: 2025-06-10
+    -   視聴数: 675,400
+    -   **いいね数: 14,431**
+    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
     -   視聴数: 1,095,356
@@ -485,11 +490,6 @@
     -   視聴数: 1,080,738
     -   **いいね数: 14,380**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
-1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
-    -   公開日: 2025-06-10
-    -   視聴数: 669,316
-    -   **いいね数: 14,376**
-    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](https://www.youtube.com/watch?v=PcMXSTSfqto)
     -   公開日: 2024-09-10
     -   視聴数: 1,196,896
