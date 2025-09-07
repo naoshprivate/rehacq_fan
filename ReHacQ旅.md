@@ -1,5 +1,29 @@
 # ReHacQ旅
 
+## ひろゆき、石丸伸二、後藤達也、高橋弘樹
+
+1.  [【ひろゆきvs石丸伸二】温泉で衝撃告白…なぜ代表やめる？ReHacQ旅⑤【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=6SbjPoQzx0Y)
+    -   公開日: 2025-08-30
+    -   視聴数: 304,385
+    -   **いいね数: 12,165**
+1.  [【ひろゆきvs能登の職人】復興の現実…行政への想い…ReHacQ旅④【石丸伸二vs後藤達也】](https://www.youtube.com/watch?v=_vOWo2VNv1w)
+    -   公開日: 2025-08-24
+    -   視聴数: 205,044
+    -   **いいね数: 7,230**
+1.  [【ひろゆきvs能登の伝統塩作り】石丸伸二も緊急参戦...参院選直後に語る思いとは？ReHacQ旅③【後藤達也】](https://www.youtube.com/watch?v=4vSlGVFPH-U)
+    -   公開日: 2025-08-20
+    -   視聴数: 342,873
+    -   **いいね数: 10,910**
+1.  [【ひろゆきvs能登の祭り】震災からの復活…祭りで感じた住民の想い、ReHacQ旅②【後藤達也】](https://www.youtube.com/watch?v=CIU2JkEx1_k)
+    -   公開日: 2025-08-17
+    -   視聴数: 169,464
+    -   **いいね数: 5,355**
+1.  [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](https://www.youtube.com/watch?v=valNrdZIvz0)
+    -   公開日: 2025-08-13
+    -   視聴数: 241,293
+    -   **いいね数: 7,087**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+
 ## 宇内梨沙vsいけちゃん女子旅 @鳥取
 
 1.  [【宇内梨沙vsいけちゃん女子旅】鳥取の隠された魅力！石破茂が大好きなラーメンは？【ReHacQ】](https://www.youtube.com/watch?v=phNQGqZQuNE)
@@ -262,8 +286,53 @@
     -   **いいね数: 16,081**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 
+
+## 東出昌大、斎藤幸平 @山梨
+
+1.  [【東出昌大の幸福論】悠々閑々に生きたい…【斎藤幸平vs富士急ハイランドvs山内瑞葵】](https://www.youtube.com/watch?v=KBQko2ler5M)
+    -   公開日: 2024-06-02
+    -   視聴数: 124,482
+    -   **いいね数: 2,076**
+    -   出演者: 山内瑞葵, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"):
+1.  [【東出昌大vs斎藤幸平】天空の村！絶景の大根畑…農家民泊【高橋弘樹】](https://www.youtube.com/watch?v=Awyqkgxu-9w)
+    -   公開日: 2024-05-04
+    -   視聴数: 144,308
+    -   **いいね数: 2,187**
+    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【東出昌大が絶句】衝撃の瞬間！東出をノックアウトする子ども…天空の露天風呂【高橋弘樹&斎藤幸平】](https://www.youtube.com/watch?v=CTm7yMHnSV4)
+    -   公開日: 2024-04-27
+    -   視聴数: 312,271
+    -   **いいね数: 3,326**
+    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【東出昌大が絶句…】山梨の電飾村…26年かけたカラフルな家たち【斎藤幸平と日蓮宗総本山へ】](https://www.youtube.com/watch?v=v5IYoV-wkPY)
+    -   公開日: 2024-04-22
+    -   視聴数: 159,517
+    -   **いいね数: 2,037**
+    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【東出昌大と町中華】餃子と醤油ラーメン、絶品の町【斎藤幸平も絶句】](https://www.youtube.com/watch?v=y4Ke27uyupg)
+    -   公開日: 2024-04-14
+    -   視聴数: 573,655
+    -   **いいね数: 4,520**
+    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【東出昌大vs高橋弘樹】結婚とは…男2人まったり旅【ひろゆきもびっくり】](https://www.youtube.com/watch?v=-s9bnb6Fnkw)
+    -   公開日: 2024-04-07
+    -   視聴数: 347,637
+    -   **いいね数: 4,174**
+    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+
+
 ## 茂木敏充 @足利
 
+1.  [【スーツの足利旅】生まれ故郷で聞く…茂木敏充の野望【35年前、なぜ立候補？】](https://www.youtube.com/watch?v=XlxNeGDHteA)
+    -   公開日: 2024-08-25
+    -   視聴数: 121,506
+    -   **いいね数: 2,257**
+    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink")
+1.  [【スーツvs茂木敏充】自民党のドン！300円のかき氷&思い出の図書館【栃木県・足利旅】](https://www.youtube.com/watch?v=F-V7zJExTPE)
+    -   公開日: 2024-08-17
+    -   視聴数: 189,183
+    -   **いいね数: 3,056**
+    -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink")
 1.  [【スーツvs茂木敏充】町中華で餃子ビール！トランプ外交の裏話と絶品チャーハン【栃木県・足利】](https://www.youtube.com/watch?v=uJzoql06jxg)
     -   公開日: 2024-08-10
     -   視聴数: 537,468
@@ -344,6 +413,33 @@
     -   **いいね数: 21,286**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 
+
+##  川上量生, 斎藤幸平, 野村泰紀 @仙台、福島
+
+1.  [【川上量生vs 野村泰紀】おじさん3人！仙台旅【斎藤幸平】](https://www.youtube.com/watch?v=aWIbpn0pXLM)
+    -   公開日: 2023-12-30
+    -   視聴数: 56,998
+    -   **いいね数: 1,103**
+    -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+1.  [【川上量生vs脱成長】仙台で高級ホテル！マルクス主義者が激怒【南三陸グルメ旅】](https://www.youtube.com/watch?v=lkPNZHjrorc)
+    -   公開日: 2023-11-26
+    -   視聴数: 106,113
+    -   **いいね数: 1,774**
+    -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【なぜ東電辞めた？】元東電マンと行く…福島原発20km圏内の旅【斎藤幸平vs野村泰紀】](https://www.youtube.com/watch?v=R0u-1MMZtes)
+    -   公開日: 2023-11-19
+    -   視聴数: 110,614
+    -   **いいね数: 2,492**
+1.  [【福島原発の旅】田んぼにカエルが！日常の奇跡味わう復興旅【デカ盛り！海鮮丼】](https://www.youtube.com/watch?v=dHoeKd7UDeE)
+    -   公開日: 2023-11-10
+    -   視聴数: 66,811
+    -   **いいね数: 1,614**
+    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【巨大石炭タウン】「資本主義サイコー！」マルクス主義者が唸った伊勢エビ【斎藤幸平&野村泰紀】](https://www.youtube.com/watch?v=vJKhCj05sbQ)
+    -   公開日: 2023-11-03
+    -   視聴数: 110,736
+    -   **いいね数: 2,239**
+
 ## ひろゆきvs若新雄純 @富山
 
 1.  [【ひろゆきvs若新雄純】学べるReHacQ旅in富山！ついに最終回【NewsPicks間に合うか？】](https://www.youtube.com/watch?v=6KUuY7PGG7A)
@@ -376,4 +472,5 @@
     -   視聴数: 321,439
     -   **いいね数: 5,185**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+
 
