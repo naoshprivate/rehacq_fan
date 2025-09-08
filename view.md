@@ -372,8 +372,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=xVW1qk9pj9s)
     -   公開日: 2025-01-22
-    -   視聴数: 1,020,632
-    -   **いいね数: 15,297**
+    -   視聴数: 1,024,638
+    -   **いいね数: 15,311**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=k2jbKFIP--s)
     -   公開日: 2025-01-26
@@ -387,8 +387,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](https://www.youtube.com/watch?v=DQkpV-2rV3I)
     -   公開日: 2024-12-23
-    -   視聴数: 1,007,436
-    -   **いいね数: 24,555**
+    -   視聴数: 1,009,009
+    -   **いいね数: 24,554**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
