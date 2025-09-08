@@ -214,7 +214,7 @@
     -   公開日: 2023-05-06
     -   視聴数: 1,463,334
     -   **いいね数: 20,530**
-    -   出演者: 
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](https://www.youtube.com/watch?v=_Oje8CA9ZhU)
     -   公開日: 2025-03-10
     -   視聴数: 489,998
@@ -304,7 +304,7 @@
     -   公開日: 2023-07-14
     -   視聴数: 1,517,433
     -   **いいね数: 17,366**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](https://www.youtube.com/watch?v=Lcj1tooXlSk)
     -   公開日: 2025-02-18
     -   視聴数: 917,282
@@ -329,7 +329,7 @@
     -   公開日: 2023-05-23
     -   視聴数: 1,121,661
     -   **いいね数: 16,561**
-    -   出演者: 
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, 大井基行, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](https://www.youtube.com/watch?v=_qzFJpEy_rI)
     -   公開日: 2025-07-14
     -   視聴数: 762,261
@@ -339,7 +339,7 @@
     -   公開日: 2023-07-07
     -   視聴数: 1,048,154
     -   **いいね数: 16,455**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=_FPkSBwYeFs)
     -   公開日: 2024-05-13
     -   視聴数: 1,065,609
@@ -349,7 +349,7 @@
     -   公開日: 2023-03-26
     -   視聴数: 836,908
     -   **いいね数: 16,225**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
+    -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【中田敦彦vs高橋弘樹】衝撃告白！兵庫県知事選&自民党総裁選…大物出演の裏側とは？【ReHacQ &YouTube大学コラボ】](https://www.youtube.com/watch?v=ZnXwCAVJ7Gs)
     -   公開日: 2024-12-28
     -   視聴数: 851,091
@@ -362,7 +362,7 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](https://www.youtube.com/watch?v=0p6zOpzlS34)
     -   公開日: 2024-08-11
-    -   視聴数: 802,735
+    -   視聴数: 802,742
     -   **いいね数: 16,092**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)

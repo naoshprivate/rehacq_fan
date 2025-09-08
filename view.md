@@ -134,7 +134,7 @@
     -   公開日: 2023-07-14
     -   視聴数: 1,517,433
     -   **いいね数: 17,366**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](https://www.youtube.com/watch?v=qMR_6XOPwvY)
     -   公開日: 2024-01-21
     -   視聴数: 1,475,315
@@ -144,7 +144,7 @@
     -   公開日: 2023-05-06
     -   視聴数: 1,463,334
     -   **いいね数: 20,530**
-    -   出演者: 
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](https://www.youtube.com/watch?v=Ue3JGrtEO3Y)
     -   公開日: 2023-11-19
     -   視聴数: 1,451,266
@@ -269,7 +269,7 @@
     -   公開日: 2023-05-23
     -   視聴数: 1,121,661
     -   **いいね数: 16,561**
-    -   出演者: 
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, 大井基行, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](https://www.youtube.com/watch?v=mf37-gaqcFE)
     -   公開日: 2025-04-06
     -   視聴数: 1,120,180
@@ -354,7 +354,7 @@
     -   公開日: 2023-07-07
     -   視聴数: 1,048,154
     -   **いいね数: 16,455**
-    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+    -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
     -   公開日: 2023-11-01
     -   視聴数: 1,048,018
