@@ -19,8 +19,8 @@
     - [![](https://img.youtube.com/vi/wfxy8kaWJY0/hqdefault.jpg)](https://www.youtube.com/watch?v=wfxy8kaWJY0)
 1.  [【緊急生配信】石破総裁が退任...自民党の今後は？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=cgbYI5gWHz0)
     -   公開日: 2025-09-08
-    -   視聴数: 241,317
-    -   **いいね数: 3,302**
+    -   視聴数: 244,152
+    -   **いいね数: 3,323**
     -   出演者: [土田しん](/rehacq_fan/people/土田しん "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/cgbYI5gWHz0/hqdefault.jpg)](https://www.youtube.com/watch?v=cgbYI5gWHz0)
 1.  [【スーツvs羽田圭介】プロが教える！動物園の隠された楽しみ方【ReHacQ旅トマム北海道②】](https://www.youtube.com/watch?v=yVXPK3-LpVE)
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 20, 視聴数: 2,134,384, いいね数: 39,648
+-   動画数: 20, 視聴数: 2,137,458, いいね数: 39,682
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -134,15 +134,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,012,640, いいね数: 339,374
+-   動画数: 72, 視聴数: 22,013,215, いいね数: 339,375
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,274,534, いいね数: 218,386
+-   動画数: 50, 視聴数: 14,274,535, いいね数: 218,386
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,178,723, いいね数: 317,864
+-   動画数: 43, 視聴数: 19,178,728, いいね数: 317,864
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,786,355, いいね数: 141,029
 
 ---
-2025-09-09 12:00
+2025-09-09 13:00
