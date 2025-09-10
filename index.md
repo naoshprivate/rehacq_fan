@@ -1,8 +1,8 @@
 # 最近の動画
 1.  [【緊急生配信】戦線拡大イスラエルがカタール空爆…アメリカも激怒の情勢を徹底解説【須賀川拓＆田中浩一郎】](https://www.youtube.com/watch?v=IE6TloRJdt8)
     -   公開日: 2025-09-10
-    -   視聴数: 27,146
-    -   **いいね数: 633**
+    -   視聴数: 33,985
+    -   **いいね数: 692**
     -   出演者: 田中浩一郎, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)
 1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sCMqFjcW5ao)
@@ -13,20 +13,20 @@
     - [![](https://img.youtube.com/vi/sCMqFjcW5ao/hqdefault.jpg)](https://www.youtube.com/watch?v=sCMqFjcW5ao)
 1.  [【羽田圭介VS不動産投資家】買うなら絶対JR線沿い！業者が言わない不動産リスクの裏側とは？【ReHacQ】](https://www.youtube.com/watch?v=SkpOBjRe6jc)
     -   公開日: 2025-09-10
-    -   視聴数: 6,975
-    -   **いいね数: 97**
+    -   視聴数: 8,120
+    -   **いいね数: 103**
     -   出演者: セカニチ, [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/SkpOBjRe6jc/hqdefault.jpg)](https://www.youtube.com/watch?v=SkpOBjRe6jc)
 1.  [【ひろゆきvs須賀川拓】衝撃の“大麻渓谷”ドラッグ蔓延のレバノンで一体なにが？ドラッグディーラー懐柔計画【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=VdiEaIwcNlU)
     -   公開日: 2025-09-09
-    -   視聴数: 121,196
-    -   **いいね数: 3,050**
+    -   視聴数: 123,708
+    -   **いいね数: 3,072**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/VdiEaIwcNlU/hqdefault.jpg)](https://www.youtube.com/watch?v=VdiEaIwcNlU)
 1.  [【まったり緊急生配信ReHacQs】ひろゆきvs須藤元気 今後どうする？【ReHacQ高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
     -   公開日: 2025-09-09
-    -   視聴数: 147,702
-    -   **いいね数: 2,822**
+    -   視聴数: 149,035
+    -   **いいね数: 2,826**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uNLLCRX9Rtg/hqdefault.jpg)](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
 
@@ -90,31 +90,31 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 26, 視聴数: 2,751,152, いいね数: 49,997
+-   動画数: 26, 視聴数: 2,766,570, いいね数: 50,107
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 12,883,378, いいね数: 242,521
+-   動画数: 64, 視聴数: 12,883,715, いいね数: 242,527
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,816,559, いいね数: 352,892
+-   動画数: 76, 視聴数: 19,816,931, いいね数: 352,890
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,212,125, いいね数: 282,406
+-   動画数: 77, 視聴数: 15,212,630, いいね数: 282,410
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,588,874, いいね数: 192,080
+-   動画数: 63, 視聴数: 14,589,676, いいね数: 192,086
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,244,832, いいね数: 340,873
+-   動画数: 58, 視聴数: 21,247,184, いいね数: 340,898
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,811,620, いいね数: 247,740
+-   動画数: 61, 視聴数: 13,813,023, いいね数: 247,755
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -126,7 +126,7 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,163,340, いいね数: 307,782
+-   動画数: 60, 視聴数: 18,163,474, いいね数: 307,782
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -190,7 +190,7 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,389,957, いいね数: 127,404
+-   動画数: 33, 視聴数: 11,389,974, いいね数: 127,406
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -206,11 +206,11 @@
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,477,444, いいね数: 103,099
+-   動画数: 28, 視聴数: 6,477,509, いいね数: 103,099
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,786,642, いいね数: 141,028
+-   動画数: 14, 視聴数: 7,786,645, いいね数: 141,028
 
 ---
-2025-09-11 01:00
+2025-09-11 02:00
