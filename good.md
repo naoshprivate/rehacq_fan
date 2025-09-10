@@ -52,8 +52,8 @@
     -   出演者: 
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
-    -   視聴数: 2,592,547
-    -   **いいね数: 32,604**
+    -   視聴数: 2,594,716
+    -   **いいね数: 32,628**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](https://www.youtube.com/watch?v=b-bNBgMhpNM)
     -   公開日: 2024-11-01
@@ -207,8 +207,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
     -   公開日: 2023-12-28
-    -   視聴数: 1,087,965
-    -   **いいね数: 20,662**
+    -   視聴数: 1,090,365
+    -   **いいね数: 20,688**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](https://www.youtube.com/watch?v=WyDR8GuPC_k)
     -   公開日: 2023-05-06
@@ -415,16 +415,16 @@
     -   視聴数: 1,025,287
     -   **いいね数: 15,312**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](https://www.youtube.com/watch?v=xcbxnXpIizM)
+    -   公開日: 2023-12-07
+    -   視聴数: 1,409,172
+    -   **いいね数: 15,292**
+    -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](https://www.youtube.com/watch?v=hvJ0lBxFILU)
     -   公開日: 2024-08-04
     -   視聴数: 993,500
     -   **いいね数: 15,280**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
-1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](https://www.youtube.com/watch?v=xcbxnXpIizM)
-    -   公開日: 2023-12-07
-    -   視聴数: 1,407,460
-    -   **いいね数: 15,277**
-    -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](https://www.youtube.com/watch?v=kJ2-KHagA8s)
     -   公開日: 2024-12-31
     -   視聴数: 917,469
