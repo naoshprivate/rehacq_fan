@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【緊急生配信】戦線拡大イスラエルがカタール空爆…アメリカも激怒の情勢を徹底解説【須賀川拓＆田中浩一郎】](https://www.youtube.com/watch?v=IE6TloRJdt8)
+    -   公開日: 2025-09-10
+    -   視聴数: 6,728
+    -   **いいね数: 189**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)
 1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sCMqFjcW5ao)
     -   公開日: 2025-09-10
-    -   視聴数: 2,693
-    -   **いいね数: 74**
+    -   視聴数: 4,902
+    -   **いいね数: 194**
     -   出演者: アミール・オハナ, 大治朋子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/sCMqFjcW5ao/hqdefault.jpg)](https://www.youtube.com/watch?v=sCMqFjcW5ao)
 1.  [【羽田圭介VS不動産投資家】買うなら絶対JR線沿い！業者が言わない不動産リスクの裏側とは？【ReHacQ】](https://www.youtube.com/watch?v=SkpOBjRe6jc)
     -   公開日: 2025-09-10
-    -   視聴数: 1,747
-    -   **いいね数: 51**
+    -   視聴数: 3,750
+    -   **いいね数: 63**
     -   出演者: セカニチ, [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/SkpOBjRe6jc/hqdefault.jpg)](https://www.youtube.com/watch?v=SkpOBjRe6jc)
 1.  [【ひろゆきvs須賀川拓】衝撃の“大麻渓谷”ドラッグ蔓延のレバノンで一体なにが？ドラッグディーラー懐柔計画【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=VdiEaIwcNlU)
     -   公開日: 2025-09-09
-    -   視聴数: 104,773
-    -   **いいね数: 2,854**
+    -   視聴数: 109,696
+    -   **いいね数: 2,920**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/VdiEaIwcNlU/hqdefault.jpg)](https://www.youtube.com/watch?v=VdiEaIwcNlU)
 1.  [【まったり緊急生配信ReHacQs】ひろゆきvs須藤元気 今後どうする？【ReHacQ高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
     -   公開日: 2025-09-09
-    -   視聴数: 141,472
-    -   **いいね数: 2,774**
+    -   視聴数: 143,625
+    -   **いいね数: 2,788**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uNLLCRX9Rtg/hqdefault.jpg)](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
-1.  [【生配信】国民民主党・玉木代表定例会見 9月9日（火）【ReHacQ】](https://www.youtube.com/watch?v=iIxqHktgt6M)
-    -   公開日: 2025-09-09
-    -   視聴数: 18,981
-    -   **いいね数: 201**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-    - [![](https://img.youtube.com/vi/iIxqHktgt6M/hqdefault.jpg)](https://www.youtube.com/watch?v=iIxqHktgt6M)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 25, 視聴数: 2,677,608, いいね数: 48,812
+-   動画数: 26, 視聴数: 2,699,997, いいね数: 49,258
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 12,883,331, いいね数: 242,521
+-   動画数: 64, 視聴数: 12,883,371, いいね数: 242,521
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,198,663, いいね数: 282,238
+-   動画数: 77, 視聴数: 15,198,668, いいね数: 282,237
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -142,27 +142,27 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,185,840, いいね数: 317,917
+-   動画数: 43, 視聴数: 19,187,503, いいね数: 317,933
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,510,272, いいね数: 290,194
+-   動画数: 44, 視聴数: 15,511,749, いいね数: 290,191
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,444,353, いいね数: 140,868
+-   動画数: 31, 視聴数: 10,445,202, いいね数: 140,872
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,400,358, いいね数: 79,097
+-   動画数: 29, 視聴数: 6,401,770, いいね数: 79,098
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,314,722, いいね数: 98,227
+-   動画数: 34, 視聴数: 9,316,364, いいね数: 98,231
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 8,983,276, いいね数: 108,900
+-   動画数: 44, 視聴数: 8,983,336, いいね数: 108,901
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,786,590, いいね数: 141,029
 
 ---
-2025-09-10 21:00
+2025-09-10 22:00

@@ -361,8 +361,8 @@
     -   出演者: 岩永やす代, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】徐浩予vs柳ヶ瀬裕文...帰化問題どうする？【渡部カンコロンゴ清花】](https://www.youtube.com/watch?v=ANsP4Ndwe5c)
     -   公開日: 2025-06-18
-    -   視聴数: 69,413
-    -   **いいね数: 1,041**
+    -   視聴数: 69,418
+    -   **いいね数: 1,040**
     -   出演者: 徐浩予, 柳ヶ瀬裕文, 渡部カンコロンゴ清花
 1.  [【世界の一流直伝】成果を出す！仕事デキる人の意外な休日術とは？【越川慎司】](https://www.youtube.com/watch?v=wxSh49pqD78)
     -   公開日: 2025-06-18
@@ -1793,8 +1793,8 @@
 # プレイリスト (140): ライブ
 1.  [【生配信】参政党・記者会見 9月8日（月）【ReHacQ】](https://www.youtube.com/watch?v=wfxy8kaWJY0)
     -   公開日: 2025-09-08
-    -   視聴数: 53,484
-    -   **いいね数: 775**
+    -   視聴数: 53,719
+    -   **いいね数: 776**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 9月2日（火）【ReHacQ】](https://www.youtube.com/watch?v=aLQOKHiA9L0)
     -   公開日: 2025-09-02
@@ -2595,73 +2595,73 @@
     -   出演者: チャエン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs青汁王子】青汁ヒルズ解体決定…青汁王子「人生最大の危機」【信用取引の罠】](https://www.youtube.com/watch?v=EIZxyd2QZWY)
     -   公開日: 2024-08-26
-    -   視聴数: 596,495
+    -   視聴数: 596,508
     -   **いいね数: 6,297**
     -   出演者: 三崎優太, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也がAI時代分析】チャエンが分析！AIを解像度高く攻略せよ！【ReHacQ SP】](https://www.youtube.com/watch?v=3V-_AAG1eKk)
     -   公開日: 2024-08-22
-    -   視聴数: 90,609
+    -   視聴数: 90,621
     -   **いいね数: 1,396**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs岡田斗司夫】AI出現！人類は老害化？過剰ホワイト社会の弊害【宮崎駿】](https://www.youtube.com/watch?v=aHfLArP4Q_8)
     -   公開日: 2024-08-15
-    -   視聴数: 731,962
-    -   **いいね数: 14,681**
+    -   視聴数: 733,361
+    -   **いいね数: 14,696**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs岐阜暴威】なぜ損切り出来ない？短期トレードからiDeCoの可能性は【日経平均】](https://www.youtube.com/watch?v=17A64EJ_v18)
     -   公開日: 2024-08-02
-    -   視聴数: 138,131
+    -   視聴数: 138,202
     -   **いいね数: 1,625**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs逆神投資家】1年で資産-1300万円…損切りできないワケ【岐阜暴威と日経平均】](https://www.youtube.com/watch?v=57BK0qmtqz8)
     -   公開日: 2024-08-01
-    -   視聴数: 301,933
-    -   **いいね数: 2,921**
+    -   視聴数: 302,101
+    -   **いいね数: 2,922**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
-    -   視聴数: 991,196
+    -   視聴数: 992,496
     -   **いいね数: 20,712**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【ReHacQ vs 読書のプロ】なぜ読書が大切？社会人が読むべき本【斎藤祐馬】](https://www.youtube.com/watch?v=sxzMmBhHwrM)
     -   公開日: 2024-07-23
-    -   視聴数: 41,760
+    -   視聴数: 41,769
     -   **いいね数: 578**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
     -   公開日: 2024-07-18
-    -   視聴数: 1,802,432
-    -   **いいね数: 28,089**
+    -   視聴数: 1,802,487
+    -   **いいね数: 28,087**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【シン•起業塾】ビジネスパーソンに読書は必要?【斎藤祐馬】](https://www.youtube.com/watch?v=cGa2IFMwQHc)
     -   公開日: 2024-07-16
-    -   視聴数: 42,516
-    -   **いいね数: 600**
+    -   視聴数: 42,523
+    -   **いいね数: 599**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvs亀山敬司②】売上目標なし!?仕事を好きになるには【後藤達也】](https://www.youtube.com/watch?v=9MghqysVdlg)
     -   公開日: 2024-07-13
-    -   視聴数: 79,998
+    -   視聴数: 80,052
     -   **いいね数: 895**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs亀山敬司】新規事業へ…投資会社目指す戦略【DMM TVなぜ？】](https://www.youtube.com/watch?v=9IUFqjfddEo)
     -   公開日: 2024-07-04
-    -   視聴数: 117,862
+    -   視聴数: 117,914
     -   **いいね数: 1,225**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs井村俊哉】損失7.5億円で投資スタイル激変？井村ファンド創設の真意は【テスタと…】](https://www.youtube.com/watch?v=V4PyFY3FxeA)
     -   公開日: 2024-06-27
-    -   視聴数: 200,943
+    -   視聴数: 201,002
     -   **いいね数: 2,311**
     -   出演者: [井村俊哉](/rehacq_fan/people/井村俊哉 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs井村俊哉】カリスマ投資家が初告白…40億集中投資する大注目株は](https://www.youtube.com/watch?v=My_J-YmpNTo)
     -   公開日: 2024-06-20
-    -   視聴数: 360,018
+    -   視聴数: 360,118
     -   **いいね数: 3,781**
     -   出演者: [井村俊哉](/rehacq_fan/people/井村俊哉 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vsテスタ】純利益100億円超え…オルカンより長期個別株に投資するワケ【S&P500】](https://www.youtube.com/watch?v=EBbnketiXeE)
     -   公開日: 2024-06-13
-    -   視聴数: 559,646
-    -   **いいね数: 5,826**
+    -   視聴数: 560,245
+    -   **いいね数: 5,830**
     -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【長期金利で激変！？①】住宅ローンどうなる？専門家が徹底解説【ReHacQ】](https://www.youtube.com/watch?v=_lYNBLp2YHU)
     -   公開日: 2024-06-07
@@ -2670,102 +2670,102 @@
     -   出演者: 江口亮介
 1.  [【後藤達也×テスタ】日経平均が激変？新NISAおすすめの銘柄は【オルカン・S&P500】](https://www.youtube.com/watch?v=p0g4tjWXiC0)
     -   公開日: 2024-06-06
-    -   視聴数: 337,469
+    -   視聴数: 337,548
     -   **いいね数: 4,424**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs井村俊哉】トランプ政権誕生時の米国株と円安どうなる？【電撃取材】](https://www.youtube.com/watch?v=Xsk5BBfswaw)
     -   公開日: 2024-06-05
-    -   視聴数: 239,833
+    -   視聴数: 239,845
     -   **いいね数: 3,054**
     -   出演者: [井村俊哉](/rehacq_fan/people/井村俊哉 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs三浦瑠麗】21年の結婚生活を卒業…検察と週刊誌のリーク問題とは【週刊文春】](https://www.youtube.com/watch?v=LVpT0cUUBvo)
     -   公開日: 2024-05-30
-    -   視聴数: 205,681
+    -   視聴数: 205,716
     -   **いいね数: 1,963**
     -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ReHacQvs海外不動産】円安時代に資産どうする!?【分散投資】](https://www.youtube.com/watch?v=a7AFbWCj3BE)
     -   公開日: 2024-05-28
-    -   視聴数: 36,538
+    -   視聴数: 36,540
     -   **いいね数: 248**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink")
 1.  [【後藤達也vs三浦瑠麗】炎上はなぜ起きる？SNS時代で明らかになるマスメディアの問題【上川陽子が…】](https://www.youtube.com/watch?v=bLxDvBFlT50)
     -   公開日: 2024-05-23
-    -   視聴数: 125,468
+    -   視聴数: 125,479
     -   **いいね数: 1,475**
     -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【S&P500・日本株】円安時代に備える資産形成術とは【ゴールドマンサックスvs三菱UFJ銀行】](https://www.youtube.com/watch?v=nF6-5DJuWSg)
     -   公開日: 2024-05-22
-    -   視聴数: 95,511
-    -   **いいね数: 1,115**
+    -   視聴数: 95,513
+    -   **いいね数: 1,114**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学
 1.  [【新NISAと円安】日銀の為替介入…日本経済の今後は【ゴールドマンサックスvs三菱UFJ銀行】](https://www.youtube.com/watch?v=C0bAeeV7Uqw)
     -   公開日: 2024-05-17
-    -   視聴数: 77,284
+    -   視聴数: 77,286
     -   **いいね数: 991**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学
 1.  [【後藤達也も驚愕】円急落で日本経済どうなる？S&P500の今後は【河野龍太郎】](https://www.youtube.com/watch?v=MBLaW0VDl1w)
     -   公開日: 2024-05-09
-    -   視聴数: 798,569
+    -   視聴数: 799,281
     -   **いいね数: 8,315**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【後藤達也が解説】急激円安の行方！今後の日本経済は？【河野龍太郎】](https://www.youtube.com/watch?v=XFMhC9TNz8Y)
     -   公開日: 2024-05-02
-    -   視聴数: 587,412
-    -   **いいね数: 6,327**
+    -   視聴数: 588,060
+    -   **いいね数: 6,329**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](https://www.youtube.com/watch?v=7PgJY5fY5NY)
     -   公開日: 2024-04-26
-    -   視聴数: 1,403,564
-    -   **いいね数: 10,135**
+    -   視聴数: 1,404,952
+    -   **いいね数: 10,136**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【日本株vs奥野一成】目から鱗！伸びる長期個別株の見方とは？【トヨタvs信越化学】](https://www.youtube.com/watch?v=bDZ68hbuUGk)
     -   公開日: 2024-04-25
-    -   視聴数: 209,887
-    -   **いいね数: 2,397**
+    -   視聴数: 209,938
+    -   **いいね数: 2,399**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvsトーマツ】革命家っぽいプレゼンとは？【高橋弘樹vs斎藤祐馬】](https://www.youtube.com/watch?v=bbrHZLPAeQE)
     -   公開日: 2024-04-23
-    -   視聴数: 43,296
+    -   視聴数: 43,306
     -   **いいね数: 545**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), 永石和恵, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【SMAPをブレイク】鈴木おさむ！51歳で全て捨て「新仕事」挑むわけ【ジャニーズ崩壊のきっかけとは？】](https://www.youtube.com/watch?v=d3v4HRh81bw)
     -   公開日: 2024-04-20
-    -   視聴数: 202,087
-    -   **いいね数: 1,987**
+    -   視聴数: 202,126
+    -   **いいね数: 1,986**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【高橋弘樹vs斎藤祐馬】必見！成功する起業家のプレゼン術盗め！【トーマツのプレゼンの魔術師】](https://www.youtube.com/watch?v=E3A6ABF2i7I)
     -   公開日: 2024-04-15
-    -   視聴数: 51,780
+    -   視聴数: 51,784
     -   **いいね数: 602**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), 永石和恵, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【インデックス投資vs奥野一成】バフェットの基本！長期個別株で…買うべき銘柄は？【S&P500、オルカンは？】](https://www.youtube.com/watch?v=1Zrelw8jZ58)
     -   公開日: 2024-04-12
-    -   視聴数: 271,499
+    -   視聴数: 271,594
     -   **いいね数: 2,494**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs星野リゾート】仰天行動！コロナ禍からV字回復したマーケティング思考術【高橋弘樹】](https://www.youtube.com/watch?v=LtlbsAHlYxQ)
     -   公開日: 2024-04-04
-    -   視聴数: 94,977
-    -   **いいね数: 1,488**
+    -   視聴数: 95,009
+    -   **いいね数: 1,489**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 星野佳路
 1.  [【斎藤祐馬vs高橋弘樹】2年目で倒産する人、しない人【大きな仕事するには？】](https://www.youtube.com/watch?v=io-4-MxNgz0)
     -   公開日: 2024-04-02
-    -   視聴数: 98,911
-    -   **いいね数: 1,219**
+    -   視聴数: 98,934
+    -   **いいね数: 1,220**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs星野リゾートのドン】目から鱗！危機旅館を再生する必殺技【高橋弘樹】](https://www.youtube.com/watch?v=4yAHRBlwFgU)
     -   公開日: 2024-03-28
-    -   視聴数: 172,448
-    -   **いいね数: 2,248**
+    -   視聴数: 172,484
+    -   **いいね数: 2,249**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 星野佳路
 1.  [【高橋弘樹…倒産の確率は？】トーマツ・斎藤祐馬が暴く！株式会社tonariの実態【ひろゆき・若新…見たか！】](https://www.youtube.com/watch?v=rZR3bgwNdGM)
     -   公開日: 2024-03-26
-    -   視聴数: 117,133
+    -   視聴数: 117,156
     -   **いいね数: 1,650**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs賃上げ】春闘が激アツ！2024、絶対給料上げるには!?【ReHacQ】](https://www.youtube.com/watch?v=UOvyO4ytqEM)
     -   公開日: 2024-03-26
-    -   視聴数: 153,283
+    -   視聴数: 153,284
     -   **いいね数: 1,625**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs米国株】S&P500を牽引するアップルとテスラが大暴落！？今後どうなる？【岡元兵八郎】](https://www.youtube.com/watch?v=ZKGhZkQs45o)
@@ -5564,7 +5564,7 @@
 # プレイリスト (12): ReHacQキャリア塾
 1.  [【高橋弘樹vsキラキラ企業戦士】起業失敗→三井不動産へ！パナソニック…新規事業でキャリア確変！シンキャリア論【ReHacQ】](https://www.youtube.com/watch?v=DlwV6wXkfcw)
     -   公開日: 2025-08-01
-    -   視聴数: 31,909
+    -   視聴数: 31,949
     -   **いいね数: 217**
     -   出演者: 宮島勇也, 田中一弘, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsAI失業の危機】米国は大惨事！なぜ日本はAI利用９%？【ReHacQ】](https://www.youtube.com/watch?v=bgEcNoD_ZIk)
