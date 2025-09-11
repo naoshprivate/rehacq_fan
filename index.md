@@ -1,8 +1,14 @@
 # 最近の動画
+1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sfANUB9tMXo)
+    -   公開日: 2025-09-11
+    -   視聴数: 1,612
+    -   **いいね数: 58**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/sfANUB9tMXo/hqdefault.jpg)](https://www.youtube.com/watch?v=sfANUB9tMXo)
 1.  [【緊急生配信】戦線拡大イスラエルがカタール空爆…アメリカも激怒の情勢を徹底解説【須賀川拓＆田中浩一郎】](https://www.youtube.com/watch?v=IE6TloRJdt8)
     -   公開日: 2025-09-10
-    -   視聴数: 49,335
-    -   **いいね数: 833**
+    -   視聴数: 63,014
+    -   **いいね数: 1,044**
     -   出演者: 田中浩一郎, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)
 1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sCMqFjcW5ao)
@@ -13,22 +19,16 @@
     - [![](https://img.youtube.com/vi/sCMqFjcW5ao/hqdefault.jpg)](https://www.youtube.com/watch?v=sCMqFjcW5ao)
 1.  [【羽田圭介VS不動産投資家】買うなら絶対JR線沿い！業者が言わない不動産リスクの裏側とは？【ReHacQ】](https://www.youtube.com/watch?v=SkpOBjRe6jc)
     -   公開日: 2025-09-10
-    -   視聴数: 9,901
-    -   **いいね数: 114**
+    -   視聴数: 13,204
+    -   **いいね数: 149**
     -   出演者: セカニチ, [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/SkpOBjRe6jc/hqdefault.jpg)](https://www.youtube.com/watch?v=SkpOBjRe6jc)
 1.  [【ひろゆきvs須賀川拓】衝撃の“大麻渓谷”ドラッグ蔓延のレバノンで一体なにが？ドラッグディーラー懐柔計画【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=VdiEaIwcNlU)
     -   公開日: 2025-09-09
-    -   視聴数: 128,154
-    -   **いいね数: 3,127**
+    -   視聴数: 132,616
+    -   **いいね数: 3,217**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/VdiEaIwcNlU/hqdefault.jpg)](https://www.youtube.com/watch?v=VdiEaIwcNlU)
-1.  [【まったり緊急生配信ReHacQs】ひろゆきvs須藤元気 今後どうする？【ReHacQ高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
-    -   公開日: 2025-09-09
-    -   視聴数: 151,970
-    -   **いいね数: 2,839**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/uNLLCRX9Rtg/hqdefault.jpg)](https://www.youtube.com/watch?v=uNLLCRX9Rtg)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 26, 視聴数: 2,798,973, いいね数: 50,385
+-   動画数: 27, 視聴数: 2,835,143, いいね数: 50,927
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 12,895,024, いいね数: 242,648
+-   動画数: 64, 視聴数: 12,896,640, いいね数: 242,670
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,816,931, いいね数: 352,890
+-   動画数: 76, 視聴数: 19,822,326, いいね数: 352,972
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,590,136, いいね数: 192,085
+-   動画数: 63, 視聴数: 14,596,233, いいね数: 192,129
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -170,19 +170,19 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,277,690, いいね数: 118,059
+-   動画数: 30, 視聴数: 9,277,732, いいね数: 118,059
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,204,409, いいね数: 119,198
+-   動画数: 30, 視聴数: 9,204,444, いいね数: 119,197
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,034,311, いいね数: 141,293
+-   動画数: 25, 視聴数: 13,034,341, いいね数: 141,293
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,057,032, いいね数: 169,456
+-   動画数: 33, 視聴数: 12,057,035, いいね数: 169,456
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,786,645, いいね数: 141,028
 
 ---
-2025-09-11 07:00
+2025-09-11 12:00
