@@ -112,8 +112,8 @@
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](https://www.youtube.com/watch?v=uY0Jmw4wR7Y)
     -   公開日: 2024-10-04
-    -   視聴数: 1,689,093
-    -   **いいね数: 21,112**
+    -   視聴数: 1,689,475
+    -   **いいね数: 21,110**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=3WIDjkmg6xY)
     -   公開日: 2025-02-02
@@ -190,16 +190,16 @@
     -   視聴数: 1,365,911
     -   **いいね数: 15,640**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【橋下徹vs石丸伸二vsひろゆき】酔うまで生テレビ【ReHacQ&ABEMAコラボ】](https://www.youtube.com/watch?v=keQnFHx1atQ)
+    -   公開日: 2024-10-04
+    -   視聴数: 1,359,486
+    -   **いいね数: 13,201**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](https://www.youtube.com/watch?v=CepOZXVtsCo)
     -   公開日: 2023-10-25
     -   視聴数: 1,358,375
     -   **いいね数: 20,458**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
-1.  [【橋下徹vs石丸伸二vsひろゆき】酔うまで生テレビ【ReHacQ&ABEMAコラボ】](https://www.youtube.com/watch?v=keQnFHx1atQ)
-    -   公開日: 2024-10-04
-    -   視聴数: 1,357,309
-    -   **いいね数: 13,190**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](https://www.youtube.com/watch?v=SEqkSNRqrUE)
     -   公開日: 2025-01-06
     -   視聴数: 1,309,372
@@ -247,8 +247,8 @@
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](https://www.youtube.com/watch?v=9Ost8DSs1uU)
     -   公開日: 2024-09-14
-    -   視聴数: 1,198,801
-    -   **いいね数: 18,653**
+    -   視聴数: 1,199,577
+    -   **いいね数: 18,656**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](https://www.youtube.com/watch?v=7_sdf9uZUiU)
     -   公開日: 2024-07-31
@@ -260,6 +260,11 @@
     -   視聴数: 1,129,424
     -   **いいね数: 33,775**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](https://www.youtube.com/watch?v=dKXQC1J0VLw)
+    -   公開日: 2025-07-29
+    -   視聴数: 1,127,842
+    -   **いいね数: 15,497**
+    -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](https://www.youtube.com/watch?v=-67Yfoti-W0)
     -   公開日: 2024-08-07
     -   視聴数: 1,124,950
@@ -290,11 +295,6 @@
     -   視聴数: 1,104,087
     -   **いいね数: 21,647**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](https://www.youtube.com/watch?v=dKXQC1J0VLw)
-    -   公開日: 2025-07-29
-    -   視聴数: 1,103,067
-    -   **いいね数: 15,219**
-    -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](https://www.youtube.com/watch?v=yfbTb_WzSTM)
     -   公開日: 2023-08-20
     -   視聴数: 1,101,134
