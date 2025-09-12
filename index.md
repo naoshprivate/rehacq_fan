@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
     -   公開日: 2025-09-12
-    -   視聴数: 2,466
-    -   **いいね数: 148**
-    -   出演者: 
+    -   視聴数: 4,070
+    -   **いいね数: 195**
+    -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/fV8NwgLDkrI/hqdefault.jpg)](https://www.youtube.com/watch?v=fV8NwgLDkrI)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=INoIZSWiMWw)
     -   公開日: 2025-09-12
-    -   視聴数: 2,018
-    -   **いいね数: 35**
-    -   出演者: 
+    -   視聴数: 3,123
+    -   **いいね数: 43**
+    -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/INoIZSWiMWw/hqdefault.jpg)](https://www.youtube.com/watch?v=INoIZSWiMWw)
 1.  [【高橋弘樹vs前野隆司】日本人の幸せは二極化!? 幸せとはなにか？【ウェルビーイング】](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
     -   公開日: 2025-09-11
-    -   視聴数: 33,842
-    -   **いいね数: 760**
+    -   視聴数: 35,528
+    -   **いいね数: 794**
     -   出演者: 前野隆司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qYLUxdwmXTQ/hqdefault.jpg)](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
 1.  [【高橋弘樹vsエリート女性議員】医師・官僚を経てなぜ政治家に？ママさん議員の苦悩激白...【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=9GWqjmXHk8M)
     -   公開日: 2025-09-11
-    -   視聴数: 33,816
-    -   **いいね数: 670**
+    -   視聴数: 35,778
+    -   **いいね数: 704**
     -   出演者: 国光あやの, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/9GWqjmXHk8M/hqdefault.jpg)](https://www.youtube.com/watch?v=9GWqjmXHk8M)
 1.  [【イスラエル議長の主張】「“ガザ飢饉”はでっち上げ」国会議長が激怒...なぜ？「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sfANUB9tMXo)
     -   公開日: 2025-09-11
-    -   視聴数: 43,326
-    -   **いいね数: 860**
+    -   視聴数: 43,988
+    -   **いいね数: 872**
     -   出演者: アミール・オハナ, 大治朋子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/sfANUB9tMXo/hqdefault.jpg)](https://www.youtube.com/watch?v=sfANUB9tMXo)
 
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 31, 視聴数: 3,075,989, いいね数: 54,720
+-   動画数: 31, 視聴数: 3,168,028, いいね数: 55,924
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 12,964,615, いいね数: 243,383
+-   動画数: 64, 視聴数: 12,968,473, いいね数: 243,428
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,855,099, いいね数: 353,326
+-   動画数: 76, 視聴数: 19,856,954, いいね数: 353,323
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -142,11 +142,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,191,658, いいね数: 317,959
+-   動画数: 43, 視聴数: 19,197,267, いいね数: 318,015
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,511,877, いいね数: 290,190
+-   動画数: 44, 視聴数: 15,516,529, いいね数: 290,197
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -198,19 +198,19 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,742,564, いいね数: 94,884
+-   動画数: 27, 視聴数: 7,742,586, いいね数: 94,884
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,277,395, いいね数: 111,981
+-   動画数: 24, 視聴数: 7,277,415, いいね数: 111,980
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,477,823, いいね数: 103,097
+-   動画数: 28, 視聴数: 6,477,881, いいね数: 103,097
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 7,788,589, いいね数: 141,030
 
 ---
-2025-09-12 12:00
+2025-09-12 13:00

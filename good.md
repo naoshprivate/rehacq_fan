@@ -177,8 +177,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](https://www.youtube.com/watch?v=7_sdf9uZUiU)
     -   公開日: 2024-07-31
-    -   視聴数: 1,181,359
-    -   **いいね数: 21,380**
+    -   視聴数: 1,185,266
+    -   **いいね数: 21,387**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](https://www.youtube.com/watch?v=qMR_6XOPwvY)
     -   公開日: 2024-01-21
@@ -197,8 +197,8 @@
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](https://www.youtube.com/watch?v=-67Yfoti-W0)
     -   公開日: 2024-08-07
-    -   視聴数: 1,124,950
-    -   **いいね数: 20,932**
+    -   視聴数: 1,128,367
+    -   **いいね数: 20,955**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](https://www.youtube.com/watch?v=qWE1MsRmb7k)
     -   公開日: 2024-07-25
@@ -277,8 +277,8 @@
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【百田尚樹vs高橋弘樹】日本保守党にNG無し質問！【ReHacQvs日本保守党】](https://www.youtube.com/watch?v=66XALKEKYqA)
     -   公開日: 2025-07-19
-    -   視聴数: 426,726
-    -   **いいね数: 18,325**
+    -   視聴数: 427,089
+    -   **いいね数: 18,320**
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
