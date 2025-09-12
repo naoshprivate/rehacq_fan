@@ -106,8 +106,8 @@
     -   出演者: 小山正武, 斉藤直明, 田中康夫, 福山あつし, 高橋のりみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤井隆vs高橋弘樹】芸歴34年「自分にOK出せない」飽きずに仕事を続けられるワケとは？【ReHacQ】](https://www.youtube.com/watch?v=ofvpSrmt2t4)
     -   公開日: 2025-07-23
-    -   視聴数: 160,863
-    -   **いいね数: 2,842**
+    -   視聴数: 161,356
+    -   **いいね数: 2,852**
     -   出演者: 藤井隆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【年商20億の実業家vs高橋弘樹】海外華やか生活から一転..波乱万丈の人生！？どんな環境でも成果を出す適応力の秘訣とは？【ReHacQ】](https://www.youtube.com/watch?v=so5AsG4q1NA)
     -   公開日: 2025-07-22
@@ -141,13 +141,13 @@
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本誠真会vs高橋弘樹】日本誠真会にNG無し質問！【西田亮介vs吉野としあき】](https://www.youtube.com/watch?v=sbvCaoV8dpM)
     -   公開日: 2025-07-15
-    -   視聴数: 328,343
-    -   **いいね数: 14,131**
+    -   視聴数: 328,418
+    -   **いいね数: 14,126**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本改革党vs高橋弘樹】日本改革党にNG無し質問！【ReHacQvsくつざわ亮治】](https://www.youtube.com/watch?v=At1SrtO-iC8)
     -   公開日: 2025-07-15
-    -   視聴数: 42,706
-    -   **いいね数: 967**
+    -   視聴数: 42,723
+    -   **いいね数: 966**
     -   出演者: くつざわ亮治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](https://www.youtube.com/watch?v=_qzFJpEy_rI)
     -   公開日: 2025-07-14
@@ -231,7 +231,7 @@
     -   出演者: 千代田修平, 白木英美
 1.  [【国民民主党会見】玉木代表定例会見 7月1日（火）【ReHacQ】](https://www.youtube.com/watch?v=S6jKJW2jCCA)
     -   公開日: 2025-07-01
-    -   視聴数: 23,771
+    -   視聴数: 23,774
     -   **いいね数: 290**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選の公約発表【ReHacQ】](https://www.youtube.com/watch?v=wLflSz9GRuM)
@@ -1883,8 +1883,8 @@
     -   出演者: [小川淳也](/rehacq_fan/people/小川淳也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】参院選大阪選挙区ネット討論会【高橋弘樹】](https://www.youtube.com/watch?v=PW0NpDQzNOc)
     -   公開日: 2025-07-16
-    -   視聴数: 405,197
-    -   **いいね数: 6,167**
+    -   視聴数: 405,283
+    -   **いいね数: 6,163**
     -   出演者: 
 1.  [【ReHacQ討論会】参院選東京選挙区ネット討論会 第2部【高橋弘樹】](https://www.youtube.com/watch?v=wnkvmWVE_f8)
     -   公開日: 2025-07-13
@@ -1898,12 +1898,12 @@
     -   出演者: よしざわ恵理, 吉永アイ, 土居けんしん, 増田昇, 早川幹夫, 高橋健司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】なぜその仕事やっているんですか？カメラを手に戦地へ、なぜ？命を賭ける衝撃理由とは...【須賀川拓vs横田徹】](https://www.youtube.com/watch?v=e02Gz9w7fhU)
     -   公開日: 2025-06-26
-    -   視聴数: 68,086
-    -   **いいね数: 1,362**
+    -   視聴数: 68,581
+    -   **いいね数: 1,375**
     -   出演者: 横田徹, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【生配信】公明党・斉藤鉄夫代表 公約発表会見　6月26日（木）【ReHacQ】](https://www.youtube.com/watch?v=2sON50IafOM)
     -   公開日: 2025-06-26
-    -   視聴数: 16,339
+    -   視聴数: 16,341
     -   **いいね数: 355**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
 1.  [【ReHacQ高橋弘樹】みうらじゅん&再生の道「落選の森」裏話…創価学会と日蓮【６月振り返り配信】](https://www.youtube.com/watch?v=12mttvnNKbU)
@@ -1943,123 +1943,123 @@
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQまったり生配信】TBS報道特集からの返信&フーコーと伊藤痴遊&井上喜久子はまだ17歳？&NHKの社食…なんでもいいから反省したい【高橋弘樹】](https://www.youtube.com/watch?v=LP77QQz4ALo)
     -   公開日: 2025-03-22
-    -   視聴数: 259,176
-    -   **いいね数: 4,972**
+    -   視聴数: 259,200
+    -   **いいね数: 4,968**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【円安に衝撃リスク】利下げ圧力！トランプvsFRB …日経平均に影響は？石丸伸二の師匠vs藤井サチ【第一生命研究所・藤代 宏一vs元東京三菱銀行・内田稔】](https://www.youtube.com/watch?v=n5HfycsJkuw)
     -   公開日: 2025-03-21
-    -   視聴数: 81,398
-    -   **いいね数: 1,129**
+    -   視聴数: 81,408
+    -   **いいね数: 1,128**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
 1.  [【緊急生配信】石丸伸二vsニセコ町議…役場が反論！前回の生配信について…【ReHacQ】](https://www.youtube.com/watch?v=jdjOlvu79z8)
     -   公開日: 2025-03-07
-    -   視聴数: 364,960
+    -   視聴数: 365,192
     -   **いいね数: 10,582**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二との対談について】緊急生配信！都民ファ代表からお知らせ【ReHacQ】](https://www.youtube.com/watch?v=3B_bfmKdDd0)
     -   公開日: 2025-02-15
-    -   視聴数: 235,169
-    -   **いいね数: 5,833**
+    -   視聴数: 235,177
+    -   **いいね数: 5,829**
     -   出演者: [森村隆行](/rehacq_fan/people/森村隆行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主党&維新と違いは？】緊急生配信！石破内閣予算の何がダメ？重徳政調会長が本気で反撃【立憲民主党vsReHacQ】](https://www.youtube.com/watch?v=26pk3dR-ctM)
     -   公開日: 2025-02-14
-    -   視聴数: 108,246
+    -   視聴数: 108,251
     -   **いいね数: 826**
     -   出演者: 重徳和彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】企業のガバナンスとは？【黒岩里奈vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=ma24Hp6REWY)
     -   公開日: 2025-02-05
-    -   視聴数: 213,856
-    -   **いいね数: 3,350**
+    -   視聴数: 214,153
+    -   **いいね数: 3,349**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
 1.  [【ReHacQ生配信】フジテレビと文春問題...ジャーナリズムとは？【三浦瑠麗vs堀潤vs石戸諭vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=hkLF-GCuq-E)
     -   公開日: 2025-01-31
-    -   視聴数: 498,800
-    -   **いいね数: 4,698**
+    -   視聴数: 498,875
+    -   **いいね数: 4,696**
     -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立憲民主党vsReHacQ】国民民主党に勝てる？次のエースとまったり激論忘年会【西田亮介＆高橋弘樹】](https://www.youtube.com/watch?v=kAQAk9HcMe0)
     -   公開日: 2024-12-30
-    -   視聴数: 250,595
-    -   **いいね数: 2,039**
+    -   視聴数: 250,627
+    -   **いいね数: 2,037**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs秋元司】IR汚職で懲役4年判決...真相激白【まもなく収監..?】](https://www.youtube.com/watch?v=rS4nineo6S8)
     -   公開日: 2024-12-28
-    -   視聴数: 142,019
-    -   **いいね数: 1,691**
+    -   視聴数: 142,030
+    -   **いいね数: 1,690**
     -   出演者: 秋元司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【奈良県知事に反対】自民党・奈良県議が激白！【西田亮介vs高橋弘樹ReHacQ】](https://www.youtube.com/watch?v=m9zChiblH4I)
     -   公開日: 2024-12-24
-    -   視聴数: 147,141
+    -   視聴数: 147,150
     -   **いいね数: 1,875**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](https://www.youtube.com/watch?v=DQkpV-2rV3I)
     -   公開日: 2024-12-23
-    -   視聴数: 1,009,118
-    -   **いいね数: 24,552**
+    -   視聴数: 1,009,828
+    -   **いいね数: 24,549**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【川上量生vs福永活也】激怒！緊急生配信【ReHacQ】](https://www.youtube.com/watch?v=B4dT3i9oW9s)
     -   公開日: 2024-12-19
-    -   視聴数: 368,428
-    -   **いいね数: 5,737**
+    -   視聴数: 368,629
+    -   **いいね数: 5,734**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](https://www.youtube.com/watch?v=V9X86suY1Xs)
     -   公開日: 2024-12-17
-    -   視聴数: 699,991
-    -   **いいね数: 15,720**
+    -   視聴数: 700,583
+    -   **いいね数: 15,718**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選とメディアの構造】熱狂とアンチ生む「嫌われ者」の正体とは？【箕輪厚介vs石戸諭！ReHacQ生配信】](https://www.youtube.com/watch?v=5p_aiSRM6sA)
     -   公開日: 2024-12-16
-    -   視聴数: 162,420
-    -   **いいね数: 1,969**
+    -   視聴数: 162,431
+    -   **いいね数: 1,968**
     -   出演者: [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木氏と何話した？】新代表に聞く！兵庫県知事選…国民民主党との関係...社会保障改革の肝！維新のこれから【吉村洋文vs高橋弘樹…ReHacQ生配信】](https://www.youtube.com/watch?v=7oTdHnO078E)
     -   公開日: 2024-12-13
-    -   視聴数: 487,360
-    -   **いいね数: 8,910**
+    -   視聴数: 487,945
+    -   **いいね数: 8,907**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](https://www.youtube.com/watch?v=yFtpS4iZXlg)
     -   公開日: 2024-12-08
-    -   視聴数: 911,147
-    -   **いいね数: 12,404**
+    -   視聴数: 911,210
+    -   **いいね数: 12,401**
     -   出演者: 
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](https://www.youtube.com/watch?v=0P-1c-mn2mc)
     -   公開日: 2024-12-08
-    -   視聴数: 1,292,882
-    -   **いいね数: 23,419**
+    -   視聴数: 1,292,963
+    -   **いいね数: 23,416**
     -   出演者: 
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](https://www.youtube.com/watch?v=EmOGwtR3x6I)
     -   公開日: 2024-12-07
-    -   視聴数: 920,338
-    -   **いいね数: 18,178**
+    -   視聴数: 920,369
+    -   **いいね数: 18,173**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【韓国が大混乱】非常戒厳令…ユン大統領が失脚？大惨事回避なるか【ReHacQSP】](https://www.youtube.com/watch?v=5WBxgPs8Vz4)
     -   公開日: 2024-12-06
-    -   視聴数: 180,003
+    -   視聴数: 180,006
     -   **いいね数: 2,073**
     -   出演者: 浅羽祐樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsジョージア大使】暴徒襲撃…野党指導者続々逮捕…ジョージア緊迫が意味する重大な世界の危機【世界戦争党とは？】](https://www.youtube.com/watch?v=rORpa3bZbxw)
     -   公開日: 2024-12-05
-    -   視聴数: 207,841
+    -   視聴数: 207,851
     -   **いいね数: 4,483**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安野貴博vs高橋弘樹】なぜ東京都のアドバイザーに？…兵庫県知事選メディアの危機…キラキラ広報会議の新事実…石丸新党は？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=BFFmfWDEH6Q)
     -   公開日: 2024-11-22
-    -   視聴数: 412,902
-    -   **いいね数: 7,703**
+    -   視聴数: 412,959
+    -   **いいね数: 7,702**
     -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主党に勝てるの誰？】日本維新の会代表選！ReHacQ討論会…経済政策は？大阪都構想は？兵庫県知事選の評価は？石丸伸二新党と連携は？【高橋弘樹vs吉村洋文vs金村龍那vs空本誠喜vs松沢成文】](https://www.youtube.com/watch?v=x0EJwQx-pIg)
     -   公開日: 2024-11-22
-    -   視聴数: 200,259
+    -   視聴数: 200,266
     -   **いいね数: 2,739**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), 松沢しげふみ, 空本せいき, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6Vww3vD7jHg)
     -   公開日: 2024-11-19
-    -   視聴数: 2,130,030
-    -   **いいね数: 43,551**
+    -   視聴数: 2,131,102
+    -   **いいね数: 43,548**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【稲村和美vs高橋弘樹】敗因は？激戦の兵庫県知事選を振り返る【ReHacQ生配信】](https://www.youtube.com/watch?v=zotM7TzK6aQ)
     -   公開日: 2024-11-19
-    -   視聴数: 793,286
-    -   **いいね数: 11,005**
+    -   視聴数: 793,331
+    -   **いいね数: 11,003**
     -   出演者: 稲村和美, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
@@ -4448,8 +4448,8 @@
     -   出演者: 小林武彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs全米トップ医師】皆んな幸せに社会保障費削減できない？診察地獄を一元化！薬漬けも回避！患者も医療費もハッピーめざせ！アメリカ発「ガチ老年科」とは？【ReHacQ】](https://www.youtube.com/watch?v=jsMrjyR5js8)
     -   公開日: 2025-06-30
-    -   視聴数: 126,600
-    -   **いいね数: 2,719**
+    -   視聴数: 129,082
+    -   **いいね数: 2,775**
     -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【トランプvs天才政治学者】大統領令連発！どうなるアメリカ？トランプの思惑をガチ分析！【高橋弘樹vsアメリカ】](https://www.youtube.com/watch?v=kvKvHxA3Ivk)
     -   公開日: 2025-06-28
@@ -5826,7 +5826,7 @@
     -   出演者: 南部誠一郎, 赤石太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs凄腕経営者】大阪万博で話題の「空飛ぶクルマ」・「ドローンショー」！日本最先端の技術が集結！【ReHacQvsMorning Pitch】](https://www.youtube.com/watch?v=w15LSyBqLew)
     -   公開日: 2025-07-01
-    -   視聴数: 22,321
+    -   視聴数: 22,336
     -   **いいね数: 265**
     -   出演者: 佐々木孔明, 福澤知浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹VS天才実業家】菌で世界を救え！一歩先の菌活医療【ReHacQ】](https://www.youtube.com/watch?v=XJI8OHI9pjc)
