@@ -1,31 +1,31 @@
+1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
+    -   公開日: 2025-09-12
+    -   視聴数: 2,466
+    -   **いいね数: 148**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/fV8NwgLDkrI/hqdefault.jpg)](https://www.youtube.com/watch?v=fV8NwgLDkrI)
+1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=INoIZSWiMWw)
+    -   公開日: 2025-09-12
+    -   視聴数: 2,018
+    -   **いいね数: 35**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/INoIZSWiMWw/hqdefault.jpg)](https://www.youtube.com/watch?v=INoIZSWiMWw)
 1.  [【高橋弘樹vs前野隆司】日本人の幸せは二極化!? 幸せとはなにか？【ウェルビーイング】](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
     -   公開日: 2025-09-11
-    -   視聴数: 22,771
-    -   **いいね数: 550**
+    -   視聴数: 33,842
+    -   **いいね数: 760**
     -   出演者: 前野隆司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qYLUxdwmXTQ/hqdefault.jpg)](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
 1.  [【高橋弘樹vsエリート女性議員】医師・官僚を経てなぜ政治家に？ママさん議員の苦悩激白...【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=9GWqjmXHk8M)
     -   公開日: 2025-09-11
-    -   視聴数: 23,524
-    -   **いいね数: 456**
+    -   視聴数: 33,816
+    -   **いいね数: 670**
     -   出演者: 国光あやの, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/9GWqjmXHk8M/hqdefault.jpg)](https://www.youtube.com/watch?v=9GWqjmXHk8M)
-1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sfANUB9tMXo)
+1.  [【イスラエル議長の主張】「“ガザ飢饉”はでっち上げ」国会議長が激怒...なぜ？「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sfANUB9tMXo)
     -   公開日: 2025-09-11
-    -   視聴数: 39,695
-    -   **いいね数: 790**
+    -   視聴数: 43,326
+    -   **いいね数: 860**
     -   出演者: アミール・オハナ, 大治朋子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/sfANUB9tMXo/hqdefault.jpg)](https://www.youtube.com/watch?v=sfANUB9tMXo)
-1.  [【緊急生配信】戦線拡大イスラエルがカタール空爆…アメリカも激怒の情勢を徹底解説【須賀川拓＆田中浩一郎】](https://www.youtube.com/watch?v=IE6TloRJdt8)
-    -   公開日: 2025-09-10
-    -   視聴数: 87,321
-    -   **いいね数: 1,274**
-    -   出演者: 田中浩一郎, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)
-1.  [【イスラエル議長の主張】“飢饉”はでっち上げ...イスラエル国会議長が主張「ガザ占領は不可欠だ」【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=sCMqFjcW5ao)
-    -   公開日: 2025-09-10
-    -   視聴数: 4,902
-    -   **いいね数: 194**
-    -   出演者: アミール・オハナ, 大治朋子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/sCMqFjcW5ao/hqdefault.jpg)](https://www.youtube.com/watch?v=sCMqFjcW5ao)
 
