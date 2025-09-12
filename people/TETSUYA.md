@@ -2,13 +2,13 @@
 
 1.  [【ひろゆきvsアフリカ旅】棺桶工場で衝撃！コーラの棺桶？EXILEが絶句【ReHacQ旅】](https://www.youtube.com/watch?v=WsXY3apN3BM)
     -   公開日: 2025-02-08
-    -   視聴数: 71,093
-    -   **いいね数: 1,045**
+    -   視聴数: 71,600
+    -   **いいね数: 1,056**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき×EXILE】アフリカガーナの医療最前線！ワクチンどう届ける【ドローン＆謎の車】](https://www.youtube.com/watch?v=JQaEQQSnGT8)
     -   公開日: 2025-02-01
-    -   視聴数: 154,707
-    -   **いいね数: 1,105**
+    -   視聴数: 155,261
+    -   **いいね数: 1,115**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき&EXILE】落ちたら即死!断崖絶壁の道の先にあるものとは…【アフリカガーナ秘境旅④】](https://www.youtube.com/watch?v=W3uF1e8-pw8)
     -   公開日: 2025-01-26
