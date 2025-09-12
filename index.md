@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【日米関税交渉・続報】大統領令の裏側を赤沢大臣が直々に発信！【高橋弘樹&内田稔&永濱利廣&森本智子】](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
     -   公開日: 2025-09-12
-    -   視聴数: 39,576
-    -   **いいね数: 883**
+    -   視聴数: 53,140
+    -   **いいね数: 1,073**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [赤沢亮正](/rehacq_fan/people/赤沢亮正 "wikilink")
     - [![](https://img.youtube.com/vi/vwyL2VuQ8Wg/hqdefault.jpg)](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
 1.  [【日米関税交渉】トランプ関税の検証＆石破総理辞任表明でマーケットへの影響は？【内田稔&永濱利廣&森本智子】](https://www.youtube.com/watch?v=xM2DWy_X7xI)
     -   公開日: 2025-09-12
-    -   視聴数: 20,992
-    -   **いいね数: 409**
+    -   視聴数: 25,484
+    -   **いいね数: 447**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/xM2DWy_X7xI/hqdefault.jpg)](https://www.youtube.com/watch?v=xM2DWy_X7xI)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
     -   公開日: 2025-09-12
-    -   視聴数: 11,018
-    -   **いいね数: 314**
+    -   視聴数: 11,251
+    -   **いいね数: 316**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/fV8NwgLDkrI/hqdefault.jpg)](https://www.youtube.com/watch?v=fV8NwgLDkrI)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=INoIZSWiMWw)
     -   公開日: 2025-09-12
-    -   視聴数: 6,933
-    -   **いいね数: 59**
+    -   視聴数: 8,099
+    -   **いいね数: 61**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/INoIZSWiMWw/hqdefault.jpg)](https://www.youtube.com/watch?v=INoIZSWiMWw)
 1.  [【高橋弘樹vs前野隆司】日本人の幸せは二極化!? 幸せとはなにか？【ウェルビーイング】](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
     -   公開日: 2025-09-11
-    -   視聴数: 52,900
-    -   **いいね数: 1,039**
+    -   視聴数: 56,205
+    -   **いいね数: 1,086**
     -   出演者: 前野隆司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qYLUxdwmXTQ/hqdefault.jpg)](https://www.youtube.com/watch?v=qYLUxdwmXTQ)
 
@@ -67,8 +67,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
-    -   視聴数: 2,044,247
-    -   **いいね数: 58,401**
+    -   視聴数: 2,052,670
+    -   **いいね数: 58,422**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 33, 視聴数: 3,305,125, いいね数: 58,236
+-   動画数: 33, 視聴数: 3,362,535, いいね数: 58,818
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -130,19 +130,19 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,374,280, いいね数: 373,656
+-   動画数: 37, 視聴数: 21,382,907, いいね数: 373,672
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,021,588, いいね数: 339,419
+-   動画数: 72, 視聴数: 22,024,377, いいね数: 339,405
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,288,403, いいね数: 218,495
+-   動画数: 50, 視聴数: 14,288,431, いいね数: 218,493
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,199,139, いいね数: 318,032
+-   動画数: 43, 視聴数: 19,199,171, いいね数: 318,031
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,793,515, いいね数: 141,025
 
 ---
-2025-09-13 02:00
+2025-09-13 07:00
