@@ -3047,7 +3047,7 @@
     -   出演者: 生井秀一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【木原誠二が激白】自民党どうする？政策激論90分【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=u_maBSrao10)
     -   公開日: 2025-07-01
-    -   視聴数: 110,415
+    -   視聴数: 110,581
     -   **いいね数: 1,080**
     -   出演者: 木原誠二, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞め花王】大企業を辞め...北関東の校長に！メリットのシェアV字回復...セブン部長を出待ち営業【ReHacQ】](https://www.youtube.com/watch?v=xDmYqCMz9ck)
@@ -4638,147 +4638,147 @@
     -   出演者: 
 1.  [【東京大学vsReHacQ】異端の哲学者…江戸の子育てと正義【ひろゆきもびっくり】](https://www.youtube.com/watch?v=i2YSiBe7Z6M)
     -   公開日: 2024-02-06
-    -   視聴数: 163,803
+    -   視聴数: 163,979
     -   **いいね数: 2,644**
     -   出演者: 梶谷真司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東京大学vs ReHacQ】社会不適合ですが何か？生きづらさの哲学【ひろゆきもびっくり】](https://www.youtube.com/watch?v=h2CY1Pdni1k)
     -   公開日: 2024-01-30
-    -   視聴数: 269,987
-    -   **いいね数: 3,918**
+    -   視聴数: 270,341
+    -   **いいね数: 3,920**
     -   出演者: 梶谷真司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【世界トップAI研究者】アメリカ天才学者が提言！人工知能が進化した先に待つ未来とは](https://www.youtube.com/watch?v=aamlmEEferA)
     -   公開日: 2023-12-19
-    -   視聴数: 69,844
+    -   視聴数: 69,870
     -   **いいね数: 1,026**
     -   出演者: 渡部晋治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【AIで世界トップ】バブルNTTのガチ投資…30年後の奇跡！【本物の天才】](https://www.youtube.com/watch?v=7cuCWeYaHEE)
     -   公開日: 2023-12-14
-    -   視聴数: 83,898
+    -   視聴数: 83,901
     -   **いいね数: 1,028**
     -   出演者: 渡部晋治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【養老孟司vs斎藤幸平】脱GDPを武器に！脳化社会とは？【マルクス主義者】](https://www.youtube.com/watch?v=2T6YJh_P5NU)
     -   公開日: 2023-12-06
-    -   視聴数: 523,937
-    -   **いいね数: 7,285**
+    -   視聴数: 525,723
+    -   **いいね数: 7,296**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [養老孟司](/rehacq_fan/people/養老孟司 "wikilink")
 1.  [【養老孟司vsマルクス主義者】GDP至上主義の終焉！脳化社会とは？](https://www.youtube.com/watch?v=MydaJAtKsZk)
     -   公開日: 2023-11-29
-    -   視聴数: 286,882
-    -   **いいね数: 4,762**
+    -   視聴数: 287,749
+    -   **いいね数: 4,777**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [養老孟司](/rehacq_fan/people/養老孟司 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
     -   公開日: 2023-11-01
-    -   視聴数: 1,048,219
-    -   **いいね数: 18,417**
+    -   視聴数: 1,049,037
+    -   **いいね数: 18,432**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ジャニーズ問題…「秘密」の危険性】ハーバード大学の精神科医が指摘【内田舞】](https://www.youtube.com/watch?v=tExeI6sxu-I)
     -   公開日: 2023-10-24
-    -   視聴数: 95,883
-    -   **いいね数: 1,697**
+    -   視聴数: 95,913
+    -   **いいね数: 1,698**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ジャニーズ問題に警鐘】ハーバード大学精神科医が語る根本問題【「再評価」とは？】](https://www.youtube.com/watch?v=VPwCxb1BmbA)
     -   公開日: 2023-10-17
-    -   視聴数: 161,346
+    -   視聴数: 161,356
     -   **いいね数: 2,657**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ジャニーズの人権問題】メディアが戦犯…日本の特殊性とは？【スタンフォード大学教授】](https://www.youtube.com/watch?v=yP2uTk3kdec)
     -   公開日: 2023-10-13
-    -   視聴数: 109,944
+    -   視聴数: 109,951
     -   **いいね数: 1,895**
     -   出演者: 筒井清輝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ジャニーズと日本企業】スタンフォード大学教授が見たジャニーズ問題【国際人権とは？】](https://www.youtube.com/watch?v=8Kjuc0NA1f8)
     -   公開日: 2023-10-04
-    -   視聴数: 236,924
+    -   視聴数: 236,942
     -   **いいね数: 3,796**
     -   出演者: 筒井清輝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本人とAI】ドラえもんとAIの未来【まったりFUKABORIN】](https://www.youtube.com/watch?v=Mwqc23T5qgY)
     -   公開日: 2023-09-19
-    -   視聴数: 62,878
-    -   **いいね数: 1,046**
+    -   視聴数: 62,914
+    -   **いいね数: 1,047**
     -   出演者: 出口康夫, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が雑談】米国疾病予防管理センターの最新研究とは？【東出昌大の映画で…】](https://www.youtube.com/watch?v=KwDAoxa9YAE)
     -   公開日: 2023-09-05
-    -   視聴数: 54,684
+    -   視聴数: 54,693
     -   **いいね数: 904**
     -   出演者: [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の映画友達】アメリカ天才公衆衛生学者！健康な社会とは？【ボストン大学助教授】](https://www.youtube.com/watch?v=EBkYdbFhURc)
     -   公開日: 2023-08-29
-    -   視聴数: 94,592
+    -   視聴数: 94,599
     -   **いいね数: 1,469**
     -   出演者: [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔がメールした男】カリフォルニア大学白熱教室！【まったり経済学】](https://www.youtube.com/watch?v=GAIle0JFsjc)
     -   公開日: 2023-08-25
-    -   視聴数: 141,450
+    -   視聴数: 141,468
     -   **いいね数: 1,438**
     -   出演者: 鎌田雄一郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔がメールした男】超楽しいゲーム理論【知らなきゃ損！価格の罠】](https://www.youtube.com/watch?v=kfml_gzjojc)
     -   公開日: 2023-08-16
-    -   視聴数: 208,847
+    -   視聴数: 208,902
     -   **いいね数: 2,374**
     -   出演者: 鎌田雄一郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](https://www.youtube.com/watch?v=lp7PPFsnQAE)
     -   公開日: 2023-07-14
-    -   視聴数: 1,518,216
-    -   **いいね数: 17,369**
+    -   視聴数: 1,522,251
+    -   **いいね数: 17,387**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】動きに注目！天才物理学者の楽しすぎる量子力学入門【野村泰紀・宇宙とは？】](https://www.youtube.com/watch?v=5iuWBR80ZWs)
     -   公開日: 2023-07-07
-    -   視聴数: 1,048,582
-    -   **いいね数: 16,457**
+    -   視聴数: 1,050,327
+    -   **いいね数: 16,465**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ロシアで内戦勃発】緊急生配信！なぜワグネルは裏切ったんですか？【神戸学院大学教授・岡部芳彦】](https://www.youtube.com/watch?v=7t5BL8ioyhU)
     -   公開日: 2023-06-24
-    -   視聴数: 235,076
-    -   **いいね数: 4,280**
+    -   視聴数: 235,087
+    -   **いいね数: 4,279**
     -   出演者: [岡部芳彦](/rehacq_fan/people/岡部芳彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【政治学のすすめ】海外で政治研究を続けるワケとは？【ミクロ経済とマクロ経済】](https://www.youtube.com/watch?v=J6Ug6eI7P6Q)
     -   公開日: 2023-06-22
-    -   視聴数: 34,084
-    -   **いいね数: 601**
+    -   視聴数: 34,088
+    -   **いいね数: 602**
     -   出演者: 
 1.  [【成田悠輔の知人の知人】立憲民主党はなぜ野党？【政治学者の告白】](https://www.youtube.com/watch?v=YGXltHPgRSU)
     -   公開日: 2023-06-02
-    -   視聴数: 96,077
+    -   視聴数: 96,080
     -   **いいね数: 1,806**
     -   出演者: 前田耕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハーバード大学医学部】精神科医の見た「日本」【内田舞】](https://www.youtube.com/watch?v=jo2dvOZbYsM)
     -   公開日: 2023-05-24
-    -   視聴数: 161,401
-    -   **いいね数: 2,407**
+    -   視聴数: 161,488
+    -   **いいね数: 2,411**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハーバード大学准教授・内田舞】精神科医の見たSNSの闇【コロナで異変】](https://www.youtube.com/watch?v=Z3yGmsV1RAw)
     -   公開日: 2023-05-19
-    -   視聴数: 88,465
-    -   **いいね数: 1,579**
+    -   視聴数: 88,497
+    -   **いいね数: 1,581**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【シン・睡眠論】人間を冬眠させて病気治せ【超国家プロジェクト】](https://www.youtube.com/watch?v=1dDAqZFMZXE)
     -   公開日: 2023-05-17
-    -   視聴数: 66,514
+    -   視聴数: 66,523
     -   **いいね数: 1,786**
     -   出演者: 砂川玄志郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔を超える完全ガチ】国で人類冬眠計画すすめる男【砂川 玄志郎】](https://www.youtube.com/watch?v=JkWgRCV-WlI)
     -   公開日: 2023-05-10
-    -   視聴数: 168,284
+    -   視聴数: 168,297
     -   **いいね数: 3,192**
     -   出演者: 砂川玄志郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【プーチン大統領を支持…】ロシアが思う「地獄」とは？【ウクライナ戦争の行方】](https://www.youtube.com/watch?v=jVCeP_FCK2Y)
     -   公開日: 2023-05-05
-    -   視聴数: 116,179
+    -   視聴数: 116,191
     -   **いいね数: 2,195**
     -   出演者: [岡部芳彦](/rehacq_fan/people/岡部芳彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の師匠っぽい男】ノーベル賞学者が小島に語った「天才育成法」【根本論】](https://www.youtube.com/watch?v=N4VizqzLR6M)
     -   公開日: 2023-04-29
-    -   視聴数: 189,943
-    -   **いいね数: 3,385**
+    -   視聴数: 189,993
+    -   **いいね数: 3,383**
     -   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ウクライナ戦争】ロシアの思惑とは…2023年の危機【岡部芳彦】](https://www.youtube.com/watch?v=mBfavn-4cZE)
     -   公開日: 2023-04-25
-    -   視聴数: 149,002
-    -   **いいね数: 3,374**
+    -   視聴数: 149,016
+    -   **いいね数: 3,373**
     -   出演者: [岡部芳彦](/rehacq_fan/people/岡部芳彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の師匠】経済学で楽しく社会変えよう！【キャリア・教育・就活】](https://www.youtube.com/watch?v=Z9t_tjvpQP8)
     -   公開日: 2023-04-22
-    -   視聴数: 188,052
+    -   視聴数: 188,202
     -   **いいね数: 3,641**
     -   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
@@ -6030,18 +6030,18 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆき賠償金支払う旅④】ひろゆき遂に東京高裁へ…なぜ高裁前で激論？【ReHacQ】](https://www.youtube.com/watch?v=mNq4pyhZl3M)
     -   公開日: 2025-06-07
-    -   視聴数: 380,788
-    -   **いいね数: 3,550**
+    -   視聴数: 381,363
+    -   **いいね数: 3,554**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき賠償金支払う旅③】仙台高裁へ…ひろゆきを待ち受けるものとは【ReHacQ】](https://www.youtube.com/watch?v=GfW_VITmib4)
     -   公開日: 2025-06-01
-    -   視聴数: 140,976
-    -   **いいね数: 1,551**
+    -   視聴数: 141,242
+    -   **いいね数: 1,554**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき賠償金支払う旅②】真夜中の思索…日本の果てで思う事【ReHacQ】](https://www.youtube.com/watch?v=rqakb17axS8)
     -   公開日: 2025-05-26
-    -   視聴数: 217,979
-    -   **いいね数: 2,451**
+    -   視聴数: 218,335
+    -   **いいね数: 2,453**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 
 # プレイリスト (2): ReHacQマネースタディー
@@ -6153,8 +6153,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs成田修造】東京の小京都!?北区は本当にすみやすい？【赤羽vs西ヶ原】](https://www.youtube.com/watch?v=znp0KrD0pjs)
     -   公開日: 2024-03-12
-    -   視聴数: 108,861
-    -   **いいね数: 1,203**
+    -   視聴数: 109,002
+    -   **いいね数: 1,205**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (2): さっくり賢人会議
@@ -6172,7 +6172,7 @@
 # プレイリスト (1): なぜ政治家になった？
 1.  [【れいわ新選組vs高橋弘樹】国民民主・立憲...減税野党どう差別化？山本太郎の素顔とは？コロナ禍の失敗...赤裸々激白【ReHacQvs高井たかし】](https://www.youtube.com/watch?v=0_trjMo8_rs)
     -   公開日: 2025-05-19
-    -   視聴数: 202,452
+    -   視聴数: 202,620
     -   **いいね数: 3,401**
     -   出演者: 高井たかし, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
