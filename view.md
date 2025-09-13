@@ -312,8 +312,8 @@
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
-    -   視聴数: 1,095,752
-    -   **いいね数: 14,415**
+    -   視聴数: 1,095,981
+    -   **いいね数: 14,417**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](https://www.youtube.com/watch?v=mt5tmXdLERs)
     -   公開日: 2024-12-26
@@ -407,8 +407,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](https://www.youtube.com/watch?v=w-ToOG5rMTc)
     -   公開日: 2023-10-01
-    -   視聴数: 975,321
-    -   **いいね数: 10,142**
+    -   視聴数: 977,204
+    -   **いいね数: 10,151**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](https://www.youtube.com/watch?v=Ipck99H_vjU)
     -   公開日: 2025-01-13
@@ -457,8 +457,8 @@
     -   出演者: 
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](https://www.youtube.com/watch?v=B7bchnNcYhI)
     -   公開日: 2023-10-07
-    -   視聴数: 899,146
-    -   **いいね数: 9,994**
+    -   視聴数: 900,323
+    -   **いいね数: 10,008**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](https://www.youtube.com/watch?v=T6-FWvACzn8)
     -   公開日: 2025-04-30
