@@ -27,8 +27,8 @@
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
     -   公開日: 2023-12-21
-    -   視聴数: 2,594,716
-    -   **いいね数: 32,628**
+    -   視聴数: 2,598,459
+    -   **いいね数: 32,659**
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](https://www.youtube.com/watch?v=qemKsOkKAYM)
     -   公開日: 2023-08-01
@@ -167,8 +167,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](https://www.youtube.com/watch?v=xcbxnXpIizM)
     -   公開日: 2023-12-07
-    -   視聴数: 1,409,172
-    -   **いいね数: 15,292**
+    -   視聴数: 1,412,084
+    -   **いいね数: 15,308**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](https://www.youtube.com/watch?v=7PgJY5fY5NY)
     -   公開日: 2024-04-26
@@ -177,8 +177,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink")
 1.  [【後藤達也！投資ガチ議論】パックン！アメリカ金融教育とは？【長期投資】](https://www.youtube.com/watch?v=DnaUPmvmoHU)
     -   公開日: 2023-11-30
-    -   視聴数: 1,404,268
-    -   **いいね数: 13,622**
+    -   視聴数: 1,405,378
+    -   **いいね数: 13,625**
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】前兵庫県知事が緊急生出演...「パワハラ」「告発文書」「PC文書」の真相は？【ReHacQ】](https://www.youtube.com/watch?v=jNGjngpf05U)
     -   公開日: 2024-10-03
@@ -315,6 +315,11 @@
     -   視聴数: 1,095,981
     -   **いいね数: 14,417**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
+1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
+    -   公開日: 2023-12-28
+    -   視聴数: 1,095,641
+    -   **いいね数: 20,735**
+    -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](https://www.youtube.com/watch?v=mt5tmXdLERs)
     -   公開日: 2024-12-26
     -   視聴数: 1,093,387
@@ -325,11 +330,6 @@
     -   視聴数: 1,092,252
     -   **いいね数: 6,760**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
-    -   公開日: 2023-12-28
-    -   視聴数: 1,090,365
-    -   **いいね数: 20,688**
-    -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](https://www.youtube.com/watch?v=CxDT2FaGi8o)
     -   公開日: 2025-07-09
     -   視聴数: 1,085,469

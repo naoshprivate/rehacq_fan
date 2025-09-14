@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【石丸伸二vs新代表候補者】再生の道・代表選考会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Vj7frt_IBTk)
     -   公開日: 2025-09-14
-    -   視聴数: 33,441
-    -   **いいね数: 3,614**
+    -   視聴数: 42,962
+    -   **いいね数: 5,227**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Vj7frt_IBTk/hqdefault.jpg)](https://www.youtube.com/watch?v=Vj7frt_IBTk)
 1.  [【スーツvs羽田圭介】鹿を見ながら露天風呂！？&芥川賞作家絶賛の鹿カレー【ReHacQ旅北海道➂】](https://www.youtube.com/watch?v=mM5ICKbB13w)
     -   公開日: 2025-09-14
-    -   視聴数: 2,780
-    -   **いいね数: 124**
+    -   視聴数: 5,317
+    -   **いいね数: 175**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mM5ICKbB13w/hqdefault.jpg)](https://www.youtube.com/watch?v=mM5ICKbB13w)
 1.  [【PIVOT vs ReHacQ】大激論！新時代のメディアへ_PIVOT成功の秘訣とは？【後藤達也vs佐々木紀彦vs高橋弘樹】](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
     -   公開日: 2025-09-13
-    -   視聴数: 157,541
-    -   **いいね数: 3,040**
+    -   視聴数: 162,139
+    -   **いいね数: 3,094**
     -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MCTJZTJ1mzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
 1.  [【ひろゆきvsデジタル大臣➁】米中にどう立ち向かう？日本のAI成長戦略【平将明vs西田亮介】](https://www.youtube.com/watch?v=5pVJX9yPeT8)
     -   公開日: 2025-09-13
-    -   視聴数: 95,756
-    -   **いいね数: 1,784**
+    -   視聴数: 98,271
+    -   **いいね数: 1,809**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [平将明](/rehacq_fan/people/平将明 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5pVJX9yPeT8/hqdefault.jpg)](https://www.youtube.com/watch?v=5pVJX9yPeT8)
 1.  [【日米関税交渉・続報】大統領令の裏側を赤沢大臣が直々に発信！【高橋弘樹&内田稔&永濱利廣&森本智子】](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
     -   公開日: 2025-09-12
-    -   視聴数: 108,917
-    -   **いいね数: 2,010**
+    -   視聴数: 109,486
+    -   **いいね数: 2,019**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [赤沢亮正](/rehacq_fan/people/赤沢亮正 "wikilink")
     - [![](https://img.youtube.com/vi/vwyL2VuQ8Wg/hqdefault.jpg)](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 37, 視聴数: 3,894,552, いいね数: 69,854
+-   動画数: 37, 視聴数: 3,915,131, いいね数: 71,618
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,020,245, いいね数: 243,877
+-   動画数: 64, 視聴数: 13,020,264, いいね数: 243,877
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,892,115, いいね数: 353,652
+-   動画数: 76, 視聴数: 19,892,185, いいね数: 353,650
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,265,988, いいね数: 283,033
+-   動画数: 77, 視聴数: 15,269,557, いいね数: 283,068
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -158,27 +158,27 @@
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,325,451, いいね数: 98,267
+-   動画数: 34, 視聴数: 9,325,531, いいね数: 98,269
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 8,998,345, いいね数: 108,992
+-   動画数: 44, 視聴数: 8,998,623, いいね数: 108,994
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,909,170, いいね数: 185,439
+-   動画数: 34, 視聴数: 14,910,391, いいね数: 185,444
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,281,001, いいね数: 118,082
+-   動画数: 30, 視聴数: 9,281,140, いいね数: 118,078
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,207,229, いいね数: 119,209
+-   動画数: 30, 視聴数: 9,219,283, いいね数: 119,301
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,044,035, いいね数: 141,385
+-   動画数: 25, 視聴数: 13,045,269, いいね数: 141,387
 
 #### [2023年10月](videos/202310 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,793,975, いいね数: 141,027
 
 ---
-2025-09-14 20:00
+2025-09-14 21:00
