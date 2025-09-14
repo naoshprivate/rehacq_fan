@@ -472,8 +472,8 @@
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
     -   公開日: 2025-06-10
-    -   視聴数: 683,335
-    -   **いいね数: 14,516**
+    -   視聴数: 689,626
+    -   **いいね数: 14,598**
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…2次選考、藤川氏について【ReHacQ】](https://www.youtube.com/watch?v=-X-oDmsc8G0)
     -   公開日: 2025-03-14
