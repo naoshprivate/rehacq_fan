@@ -36,8 +36,8 @@
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=loEb4IWVkAs)
     -   公開日: 2025-08-07
-    -   視聴数: 932,274
-    -   **いいね数: 19,431**
+    -   視聴数: 954,303
+    -   **いいね数: 19,691**
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【高橋弘樹vs本郷和人】東京大学史料編纂所の真実！歴史のわずか「３年」に研究者人生30年をかけた男【ReHacQ教養】](https://www.youtube.com/watch?v=uAIFFxmhEYg)
     -   公開日: 2025-08-06
@@ -131,8 +131,8 @@
     -   出演者: 泉もとき, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【福島みずほvs高橋弘樹】社会民主党にNG無し質問！【ReHacQvs社民党】](https://www.youtube.com/watch?v=lakGjhOBAdw)
     -   公開日: 2025-07-16
-    -   視聴数: 81,608
-    -   **いいね数: 733**
+    -   視聴数: 81,653
+    -   **いいね数: 734**
     -   出演者: 福島みずほ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](https://www.youtube.com/watch?v=sXNTlkaZOYo)
     -   公開日: 2025-07-15
@@ -216,18 +216,18 @@
     -   出演者: 
 1.  [【自民党議員が緊急出演】なぜ逮捕？群馬で大激震！巨額献金と地方政治の闇【高橋弘樹vs西田尚史vs川松真一朗】](https://www.youtube.com/watch?v=UzD_RLFyYaY)
     -   公開日: 2025-07-05
-    -   視聴数: 249,202
+    -   視聴数: 249,462
     -   **いいね数: 3,429**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選考察】都議会選から結果を読む！？データから読み解く米雇用統計とは？【木野内栄治＆永濱利廣】](https://www.youtube.com/watch?v=NFwyxENx_f8)
     -   公開日: 2025-07-04
-    -   視聴数: 55,683
+    -   視聴数: 55,686
     -   **いいね数: 627**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【エース編集者の仕事術】打ち合わせに“命かける”漫画編集者の戦いとは？【講談社＆小学館】](https://www.youtube.com/watch?v=H3XPmKCvVMA)
     -   公開日: 2025-07-04
-    -   視聴数: 49,264
-    -   **いいね数: 792**
+    -   視聴数: 49,544
+    -   **いいね数: 795**
     -   出演者: 千代田修平, 白木英美
 1.  [【国民民主党会見】玉木代表定例会見 7月1日（火）【ReHacQ】](https://www.youtube.com/watch?v=S6jKJW2jCCA)
     -   公開日: 2025-07-01
@@ -451,68 +451,68 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【高橋弘樹vsフジ大株主】激白！フジテレビの衝撃発言とは？ダルトンの失望とは？【ReHacQ】](https://www.youtube.com/watch?v=IMTeNUar-N4)
     -   公開日: 2025-06-09
-    -   視聴数: 231,903
+    -   視聴数: 231,935
     -   **いいね数: 2,173**
     -   出演者: 西田真澄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【米国雇用統計速報】アナリストも注視…永濱利廣・木野内栄治の読みは!?【森本智子】](https://www.youtube.com/watch?v=RZ3FHNX7cUQ)
     -   公開日: 2025-06-06
-    -   視聴数: 43,997
+    -   視聴数: 44,004
     -   **いいね数: 542**
     -   出演者: 木野内栄治, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【ひろゆきvs高橋弘樹】AI社会で激変？…しない？仕事と未来…冷静に考える【ReHacQ】](https://www.youtube.com/watch?v=TWQcNiFC7uo)
     -   公開日: 2025-06-06
-    -   視聴数: 188,054
+    -   視聴数: 188,356
     -   **いいね数: 1,958**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】日本維新の会・前原誠司共同代表 記者会見　6月5日（木）【ReHacQ】](https://www.youtube.com/watch?v=mEcffHdmajE)
     -   公開日: 2025-06-05
     -   視聴数: 18,086
-    -   **いいね数: 155**
+    -   **いいね数: 154**
     -   出演者: [前原誠司](/rehacq_fan/people/前原誠司 "wikilink")
 1.  [【ガチ激論】韓国大統領選！李在明が勝利…対日外交どうなる？【ReHacQ高橋弘樹&権容奭&李相哲】](https://www.youtube.com/watch?v=MJCY9-e9xQE)
     -   公開日: 2025-06-04
-    -   視聴数: 119,742
-    -   **いいね数: 1,391**
+    -   視聴数: 119,776
+    -   **いいね数: 1,390**
     -   出演者: 李相哲, 権容奭, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsフジテレビ大株主】清水社長と会談…株主総会どうする？レオス藤野英人氏が激白【ReHacQ】](https://www.youtube.com/watch?v=6xduUcFsXZs)
     -   公開日: 2025-06-04
-    -   視聴数: 129,984
+    -   視聴数: 130,015
     -   **いいね数: 1,149**
     -   出演者: [藤野英人](/rehacq_fan/people/藤野英人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【伝説のエンジニア・中島聡 VS 東大松尾研出身・今井翔太】AIエージェントに世代間格差！？神機能をビジネスで使いこなすには？【小林葵】](https://www.youtube.com/watch?v=CGXmz2krw1k)
     -   公開日: 2025-06-03
-    -   視聴数: 198,236
-    -   **いいね数: 2,788**
+    -   視聴数: 198,760
+    -   **いいね数: 2,791**
     -   出演者: [中島聡](/rehacq_fan/people/中島聡 "wikilink"), [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [小林葵](/rehacq_fan/people/小林葵 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 6月3日（火）【ReHacQ】](https://www.youtube.com/watch?v=3Owp-3FdMYU)
     -   公開日: 2025-06-03
-    -   視聴数: 48,696
+    -   視聴数: 48,697
     -   **いいね数: 620**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【高橋弘樹vs仏教学者】日本人の精神…仏教とは何か？【ReHacQ教養】](https://www.youtube.com/watch?v=AV7O3iuDSCc)
     -   公開日: 2025-06-01
-    -   視聴数: 213,884
-    -   **いいね数: 3,580**
+    -   視聴数: 214,968
+    -   **いいね数: 3,599**
     -   出演者: 石井公成, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【超長期国債】日銀・発行計画の見直し浮上…マーケットの反応は？【永濱利廣】](https://www.youtube.com/watch?v=aAjHat0wnaU)
     -   公開日: 2025-05-30
-    -   視聴数: 52,256
+    -   視聴数: 52,267
     -   **いいね数: 615**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【田原総一朗vs横田一】91歳、田原総一朗が政治の矛盾を暴く！命を賭けた喧嘩とは？【箕輪厚介vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=ciKmDfRupfg)
     -   公開日: 2025-05-28
-    -   視聴数: 327,963
-    -   **いいね数: 4,774**
+    -   視聴数: 328,187
+    -   **いいね数: 4,773**
     -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二　緊急生配信】都議選・参院選関係ありません【ReHacQ】](https://www.youtube.com/watch?v=S4cdBdh5v_U)
     -   公開日: 2025-05-27
-    -   視聴数: 410,471
-    -   **いいね数: 11,343**
+    -   視聴数: 410,612
+    -   **いいね数: 11,342**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 5月27日（火）【ReHacQ】](https://www.youtube.com/watch?v=5L93J7FsnP8)
     -   公開日: 2025-05-27
     -   視聴数: 93,374
-    -   **いいね数: 1,517**
+    -   **いいね数: 1,515**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs後藤達也】話したいことがある。【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=NX5sIbUyGIU)
     -   公開日: 2025-05-24
@@ -4126,72 +4126,72 @@
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs慶應4年起業家】大逆転！パリコレを狙うお洒落だるま屋の挑戦！【スザンヌ大感激】](https://www.youtube.com/watch?v=v8Pp-5BRgLs)
     -   公開日: 2024-12-16
-    -   視聴数: 42,619
-    -   **いいね数: 561**
+    -   視聴数: 42,656
+    -   **いいね数: 562**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [髙橋史好](/rehacq_fan/people/髙橋史好 "wikilink")
 1.  [【高橋弘樹vsスザンヌ】急成長！伝統だるま×「かわいい」…インバウンド狙え【スザンヌ衝撃】](https://www.youtube.com/watch?v=_Jz3p4CJ_jM)
     -   公開日: 2024-12-10
-    -   視聴数: 66,410
-    -   **いいね数: 893**
+    -   視聴数: 66,442
+    -   **いいね数: 894**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [髙橋史好](/rehacq_fan/people/髙橋史好 "wikilink")
 1.  [【前澤友作vsテスタ】労働者へ！前澤友作の原点とは？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=VD5X2AP9oAw)
     -   公開日: 2024-12-03
-    -   視聴数: 163,752
+    -   視聴数: 163,904
     -   **いいね数: 1,939**
     -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), 前澤友作, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs新スザンヌ】東京のマンション売却…熊本で旅館経営者に！投資は数千万円…一世一代の決意！熊本への熱い思いとは？【ReHacQ】](https://www.youtube.com/watch?v=VQcr13iz2KA)
     -   公開日: 2024-12-02
-    -   視聴数: 357,195
-    -   **いいね数: 3,270**
+    -   視聴数: 357,753
+    -   **いいね数: 3,275**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【前澤友作vsテスタ】株を配る？前澤友作の頭の中を徹底解剖！【ReHacQ】](https://www.youtube.com/watch?v=9LtbyDkudOY)
     -   公開日: 2024-11-25
-    -   視聴数: 382,951
-    -   **いいね数: 4,188**
+    -   視聴数: 383,285
+    -   **いいね数: 4,190**
     -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), 前澤友作
 1.  [【辞めメルカリ→ライドシェア風雲児】なぜ転身？日本から１兆円企業を生み出すには【辞めZOZO幹部→ホテル業界革命家】](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)
     -   公開日: 2024-08-05
-    -   視聴数: 31,221
+    -   視聴数: 31,234
     -   **いいね数: 326**
     -   出演者: 濱渦伸次, 青柳直樹
 1.  [【成田修造vsハヤカワ五味】倒産…借金…起業は失敗しても大丈夫！【東大生も参戦】](https://www.youtube.com/watch?v=be9y3f-h4S8)
     -   公開日: 2024-08-02
-    -   視聴数: 57,808
+    -   視聴数: 57,856
     -   **いいね数: 687**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【前澤友作を支えた男】なぜZOZO辞めた？起業したワケ【元DeNAマーケvs元メルカリ日本統括】](https://www.youtube.com/watch?v=Ga0ehlhDQDE)
     -   公開日: 2024-07-29
-    -   視聴数: 41,731
+    -   視聴数: 41,736
     -   **いいね数: 377**
     -   出演者: 濱渦伸次, 青柳直樹
 1.  [【ReHacQvsスタートアップ】失敗から学ぶセカンドキャリアの可能性【成田修造vsハヤカワ五味】](https://www.youtube.com/watch?v=UHz6Sf6WCVE)
     -   公開日: 2024-07-24
-    -   視聴数: 125,223
+    -   視聴数: 125,264
     -   **いいね数: 1,202**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs三浦崇宏】個で勝負？流動化時代、ビジネスパーソンの宿命は？【電通・博報堂倒せ】](https://www.youtube.com/watch?v=5GjMSa1YVLQ)
     -   公開日: 2024-06-22
-    -   視聴数: 43,423
-    -   **いいね数: 437**
+    -   視聴数: 43,499
+    -   **いいね数: 438**
     -   出演者: 三浦崇宏, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【三浦崇宏vs高橋弘樹】電通・博報堂に勝て！元文学青年の野望【若手時代の怒りとは？】](https://www.youtube.com/watch?v=NjvgFQ7T7Fc)
     -   公開日: 2024-06-17
-    -   視聴数: 52,979
-    -   **いいね数: 601**
+    -   視聴数: 53,094
+    -   **いいね数: 602**
     -   出演者: 三浦崇宏, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs猪子寿之】光の迷宮！チームラボ麻布台を徹底解説！【スザンヌ】](https://www.youtube.com/watch?v=PhL7TL2XjbI)
     -   公開日: 2024-05-03
-    -   視聴数: 26,612
+    -   視聴数: 26,619
     -   **いいね数: 384**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsチームラボの哲学】猪子寿之の考える「美」の根源【スザンヌ】](https://www.youtube.com/watch?v=E8h6PiAVlHY)
     -   公開日: 2024-04-17
-    -   視聴数: 42,354
+    -   視聴数: 42,374
     -   **いいね数: 657**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](https://www.youtube.com/watch?v=hqXxXlDZN5A)
     -   公開日: 2024-04-10
-    -   視聴数: 62,147
+    -   視聴数: 62,175
     -   **いいね数: 912**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvsインド女性起業家】人生激変！常識覆すインドの教え【日本の生きづらさ】](https://www.youtube.com/watch?v=zgyyLML4Dsw)
@@ -5393,8 +5393,8 @@
     -   出演者: 
 1.  [【SUSURUvs高橋弘樹】ラーメンは健康食？ビジネスパーソンのためのラーメン講座【二郎大好き】](https://www.youtube.com/watch?v=iW-xlAE6quM)
     -   公開日: 2024-03-16
-    -   視聴数: 94,782
-    -   **いいね数: 1,249**
+    -   視聴数: 94,787
+    -   **いいね数: 1,250**
     -   出演者: SUSURU, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東大vsReHacQ】受験のコツをまったり雑談【試験本当にだるい！だから…】](https://www.youtube.com/watch?v=ssNzFS0AiTM)
     -   公開日: 2024-02-12
