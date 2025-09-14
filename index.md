@@ -1,31 +1,31 @@
 # 最近の動画
 1.  [【PIVOT vs ReHacQ】大激論！新時代のメディアへ_PIVOT成功の秘訣とは？【後藤達也vs佐々木紀彦vs高橋弘樹】](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
     -   公開日: 2025-09-13
-    -   視聴数: 78,180
-    -   **いいね数: 1,736**
+    -   視聴数: 110,797
+    -   **いいね数: 2,394**
     -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MCTJZTJ1mzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
 1.  [【ひろゆきvsデジタル大臣➁】米中にどう立ち向かう？日本のAI成長戦略【平将明vs西田亮介】](https://www.youtube.com/watch?v=5pVJX9yPeT8)
     -   公開日: 2025-09-13
-    -   視聴数: 51,840
-    -   **いいね数: 1,074**
+    -   視聴数: 69,124
+    -   **いいね数: 1,395**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [平将明](/rehacq_fan/people/平将明 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5pVJX9yPeT8/hqdefault.jpg)](https://www.youtube.com/watch?v=5pVJX9yPeT8)
 1.  [【日米関税交渉・続報】大統領令の裏側を赤沢大臣が直々に発信！【高橋弘樹&内田稔&永濱利廣&森本智子】](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
     -   公開日: 2025-09-12
-    -   視聴数: 101,940
-    -   **いいね数: 1,866**
+    -   視聴数: 104,041
+    -   **いいね数: 1,917**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [赤沢亮正](/rehacq_fan/people/赤沢亮正 "wikilink")
     - [![](https://img.youtube.com/vi/vwyL2VuQ8Wg/hqdefault.jpg)](https://www.youtube.com/watch?v=vwyL2VuQ8Wg)
 1.  [【日米関税交渉】トランプ関税の検証＆石破総理辞任表明でマーケットへの影響は？【内田稔&永濱利廣&森本智子】](https://www.youtube.com/watch?v=xM2DWy_X7xI)
     -   公開日: 2025-09-12
-    -   視聴数: 36,569
-    -   **いいね数: 577**
+    -   視聴数: 37,235
+    -   **いいね数: 588**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/xM2DWy_X7xI/hqdefault.jpg)](https://www.youtube.com/watch?v=xM2DWy_X7xI)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
     -   公開日: 2025-09-12
-    -   視聴数: 12,063
+    -   視聴数: 12,164
     -   **いいね数: 325**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/fV8NwgLDkrI/hqdefault.jpg)](https://www.youtube.com/watch?v=fV8NwgLDkrI)
@@ -90,31 +90,31 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 35, 視聴数: 3,715,628, いいね数: 63,734
+-   動画数: 35, 視聴数: 3,772,640, いいね数: 64,860
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,013,365, いいね数: 243,825
+-   動画数: 64, 視聴数: 13,018,998, いいね数: 243,862
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,878,142, いいね数: 353,473
+-   動画数: 76, 視聴数: 19,889,933, いいね数: 353,653
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,262,472, いいね数: 283,031
+-   動画数: 77, 視聴数: 15,264,023, いいね数: 283,020
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,623,993, いいね数: 192,280
+-   動画数: 63, 視聴数: 14,624,042, いいね数: 192,280
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,284,612, いいね数: 341,145
+-   動画数: 58, 視聴数: 21,284,793, いいね数: 341,142
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,821,780, いいね数: 247,759
+-   動画数: 61, 視聴数: 13,821,991, いいね数: 247,758
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -122,11 +122,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,073,578, いいね数: 288,347
+-   動画数: 48, 視聴数: 17,073,889, いいね数: 288,354
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,179,035, いいね数: 307,816
+-   動画数: 60, 視聴数: 18,179,064, いいね数: 307,817
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,793,975, いいね数: 141,027
 
 ---
-2025-09-14 07:00
+2025-09-14 12:00
