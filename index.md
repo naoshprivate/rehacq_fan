@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【赤沢亮正vs高橋弘樹】最低賃金過去最大アップで賛否の声！？...中小企業にリスクは？【ReHacQvs永濱利廣】](https://www.youtube.com/watch?v=zpHmYCN7l_4)
     -   公開日: 2025-09-15
-    -   視聴数: 10,529
-    -   **いいね数: 339**
+    -   視聴数: 16,056
+    -   **いいね数: 584**
     -   出演者: 
     - [![](https://img.youtube.com/vi/zpHmYCN7l_4/hqdefault.jpg)](https://www.youtube.com/watch?v=zpHmYCN7l_4)
 1.  [【ひろゆきvs松尾芭蕉ゆかりの地】なぜ？山中温泉で滝行のワケ【石丸伸二vs後藤達也】](https://www.youtube.com/watch?v=Cn6wweFG2bo)
     -   公開日: 2025-09-15
-    -   視聴数: 20,639
-    -   **いいね数: 2,837**
+    -   視聴数: 30,524
+    -   **いいね数: 3,439**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Cn6wweFG2bo/hqdefault.jpg)](https://www.youtube.com/watch?v=Cn6wweFG2bo)
 1.  [【石丸伸二vs新代表候補者】再生の道・代表選考会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Vj7frt_IBTk)
     -   公開日: 2025-09-14
-    -   視聴数: 234,119
-    -   **いいね数: 11,098**
+    -   視聴数: 236,052
+    -   **いいね数: 11,143**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Vj7frt_IBTk/hqdefault.jpg)](https://www.youtube.com/watch?v=Vj7frt_IBTk)
 1.  [【スーツvs羽田圭介】鹿を見ながら露天風呂！？&芥川賞作家絶賛の鹿カレー【ReHacQ旅北海道➂】](https://www.youtube.com/watch?v=mM5ICKbB13w)
     -   公開日: 2025-09-14
-    -   視聴数: 25,307
-    -   **いいね数: 499**
+    -   視聴数: 25,912
+    -   **いいね数: 507**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mM5ICKbB13w/hqdefault.jpg)](https://www.youtube.com/watch?v=mM5ICKbB13w)
 1.  [【PIVOT vs ReHacQ】大激論！新時代のメディアへ_PIVOT成功の秘訣とは？【後藤達也vs佐々木紀彦vs高橋弘樹】](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
     -   公開日: 2025-09-13
-    -   視聴数: 229,907
-    -   **いいね数: 3,884**
+    -   視聴数: 231,799
+    -   **いいね数: 3,910**
     -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MCTJZTJ1mzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
 
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 39, 視聴数: 4,302,107, いいね数: 82,664
+-   動画数: 39, 視聴数: 4,323,232, いいね数: 83,604
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -122,11 +122,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,106,515, いいね数: 288,603
+-   動画数: 48, 視聴数: 17,111,339, いいね数: 288,619
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,186,044, いいね数: 307,866
+-   動画数: 60, 視聴数: 18,187,054, いいね数: 307,861
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -146,19 +146,19 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,527,878, いいね数: 290,215
+-   動画数: 44, 視聴数: 15,527,966, いいね数: 290,215
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,456,092, いいね数: 140,953
+-   動画数: 31, 視聴数: 10,456,144, いいね数: 140,953
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,406,613, いいね数: 79,122
+-   動画数: 29, 視聴数: 6,409,038, いいね数: 79,154
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,325,605, いいね数: 98,269
+-   動画数: 34, 視聴数: 9,327,524, いいね数: 98,282
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,797,396, いいね数: 141,033
 
 ---
-2025-09-15 22:00
+2025-09-15 23:00
