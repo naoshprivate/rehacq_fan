@@ -27,7 +27,7 @@
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](https://www.youtube.com/watch?v=XKGshW6xD1k)
     -   公開日: 2024-08-31
-    -   視聴数: 2,077,392
+    -   視聴数: 2,078,552
     -   **いいね数: 37,464**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】緊急生対談！国民民主党…これからの存在意義は？【高橋弘樹】](https://www.youtube.com/watch?v=9_b3vH1wBP4)
@@ -242,8 +242,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](https://www.youtube.com/watch?v=Lb9U4acxhs4)
     -   公開日: 2024-09-07
-    -   視聴数: 1,032,637
-    -   **いいね数: 18,913**
+    -   視聴数: 1,033,022
+    -   **いいね数: 18,910**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs後藤達也】ReHacQスタート！緊急生配信【日経テレ東大学、超えるには？】](https://www.youtube.com/watch?v=qUU0-PC6yyk)
     -   公開日: 2023-03-05
@@ -317,8 +317,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](https://www.youtube.com/watch?v=o9Ymcad1RXE)
     -   公開日: 2025-08-27
-    -   視聴数: 631,180
-    -   **いいね数: 16,809**
+    -   視聴数: 635,364
+    -   **いいね数: 16,831**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選について【ReHacQ】](https://www.youtube.com/watch?v=yiiG5BdgrW0)
     -   公開日: 2025-04-25
