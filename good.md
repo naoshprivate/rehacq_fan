@@ -222,8 +222,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](https://www.youtube.com/watch?v=_Oje8CA9ZhU)
     -   公開日: 2025-03-10
-    -   視聴数: 490,068
-    -   **いいね数: 20,478**
+    -   視聴数: 490,130
+    -   **いいね数: 20,472**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](https://www.youtube.com/watch?v=CxDT2FaGi8o)
     -   公開日: 2025-07-09
@@ -442,8 +442,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【緊急生配信】　「再生の道」会見　応募1128人　候補者選定状況は？【ReHacQ】](https://www.youtube.com/watch?v=CGqSiMYHhTc)
     -   公開日: 2025-02-26
-    -   視聴数: 338,396
-    -   **いいね数: 14,997**
+    -   視聴数: 338,412
+    -   **いいね数: 14,994**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=TRuYLYqTUDU)
     -   公開日: 2025-08-09
@@ -477,8 +477,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…2次選考、藤川氏について【ReHacQ】](https://www.youtube.com/watch?v=-X-oDmsc8G0)
     -   公開日: 2025-03-14
-    -   視聴数: 352,024
-    -   **いいね数: 14,496**
+    -   視聴数: 352,056
+    -   **いいね数: 14,492**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
