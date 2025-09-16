@@ -17,8 +17,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](https://www.youtube.com/watch?v=KPwDlYmzEIA)
     -   公開日: 2023-03-21
-    -   視聴数: 2,691,954
-    -   **いいね数: 37,368**
+    -   視聴数: 2,692,293
+    -   **いいね数: 37,362**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)
     -   公開日: 2025-04-13
@@ -87,8 +87,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](https://www.youtube.com/watch?v=TkJRmw7WPeI)
     -   公開日: 2023-10-10
-    -   視聴数: 1,825,585
-    -   **いいね数: 23,680**
+    -   視聴数: 1,825,854
+    -   **いいね数: 23,679**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
     -   公開日: 2024-07-18
@@ -297,8 +297,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](https://www.youtube.com/watch?v=yfbTb_WzSTM)
     -   公開日: 2023-08-20
-    -   視聴数: 1,101,609
-    -   **いいね数: 12,503**
+    -   視聴数: 1,101,985
+    -   **いいね数: 12,501**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【兵庫県知事選でも問題】公職選挙法の闇！なぜ逮捕？【石丸伸二を生んだ男】](https://www.youtube.com/watch?v=smDf7a0Z_-w)
     -   公開日: 2024-11-29
@@ -382,8 +382,8 @@
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](https://www.youtube.com/watch?v=3rx30yJXsLs)
     -   公開日: 2023-10-01
-    -   視聴数: 1,011,102
-    -   **いいね数: 15,555**
+    -   視聴数: 1,011,195
+    -   **いいね数: 15,558**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](https://www.youtube.com/watch?v=DQkpV-2rV3I)
     -   公開日: 2024-12-23
