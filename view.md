@@ -7,8 +7,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
-    -   視聴数: 3,246,971
-    -   **いいね数: 25,751**
+    -   視聴数: 3,249,398
+    -   **いいね数: 25,764**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs石丸伸二】緊急生配信②経済、TOKYO、そして民主主義の行方【元三菱東京UFJアナリスト】](https://www.youtube.com/watch?v=zZ13VzNu83s)
     -   公開日: 2024-07-10
@@ -147,8 +147,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](https://www.youtube.com/watch?v=Ue3JGrtEO3Y)
     -   公開日: 2023-11-19
-    -   視聴数: 1,453,059
-    -   **いいね数: 9,046**
+    -   視聴数: 1,454,290
+    -   **いいね数: 9,047**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](https://www.youtube.com/watch?v=23N6ICQ55-c)
     -   公開日: 2025-01-16
@@ -327,8 +327,8 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
 1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](https://www.youtube.com/watch?v=h11UzRqjXyM)
     -   公開日: 2023-08-20
-    -   視聴数: 1,092,252
-    -   **いいね数: 6,760**
+    -   視聴数: 1,093,357
+    -   **いいね数: 6,761**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](https://www.youtube.com/watch?v=RUKBNEivcAw)
     -   公開日: 2023-03-25
@@ -442,8 +442,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【ひろゆきvs公明党】創価学会は納得？公明党の存在意義とは？徹底議論…【党宣伝局長が参戦！】](https://www.youtube.com/watch?v=nd1_O8GADYw)
     -   公開日: 2023-09-03
-    -   視聴数: 918,415
-    -   **いいね数: 10,621**
+    -   視聴数: 919,319
+    -   **いいね数: 10,630**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 伊佐進一
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](https://www.youtube.com/watch?v=kJ2-KHagA8s)
     -   公開日: 2024-12-31
