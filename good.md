@@ -42,8 +42,8 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【石丸伸二が緊急登場】激論!都知事選とメディアの功罪【西田亮介&高橋弘樹】](https://www.youtube.com/watch?v=pvhzvC513uQ)
     -   公開日: 2024-07-10
-    -   視聴数: 1,129,485
-    -   **いいね数: 33,772**
+    -   視聴数: 1,129,527
+    -   **いいね数: 33,768**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [東京都知事選2024！公開討論会【小池百合子vs石丸伸二vs田母神俊雄vs蓮舫】](https://www.youtube.com/watch?v=QoFBeE9_9n4)
     -   公開日: 2024-06-24
@@ -77,8 +77,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
 1.  [【成田悠輔が絶賛】6歳でもわかる!?天才物理学者のガチ授業【野村泰紀】](https://www.youtube.com/watch?v=jyAZpcjzxFU)
     -   公開日: 2024-02-17
-    -   視聴数: 2,307,850
-    -   **いいね数: 29,079**
+    -   視聴数: 2,314,916
+    -   **いいね数: 29,132**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
     -   公開日: 2024-07-18
@@ -102,8 +102,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](https://www.youtube.com/watch?v=oHDV4qfKJSw)
     -   公開日: 2024-08-08
-    -   視聴数: 1,735,756
-    -   **いいね数: 26,467**
+    -   視聴数: 1,739,441
+    -   **いいね数: 26,489**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](https://www.youtube.com/watch?v=I8__R-9OwwA)
     -   公開日: 2024-07-03
@@ -112,8 +112,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](https://www.youtube.com/watch?v=IWqndzRAJnQ)
     -   公開日: 2023-11-07
-    -   視聴数: 2,052,956
-    -   **いいね数: 25,804**
+    -   視聴数: 2,054,934
+    -   **いいね数: 25,810**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](https://www.youtube.com/watch?v=eOz1CzMBmuQ)
     -   公開日: 2023-11-25
@@ -210,16 +210,16 @@
     -   視聴数: 994,836
     -   **いいね数: 20,709**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
+1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](https://www.youtube.com/watch?v=CepOZXVtsCo)
+    -   公開日: 2023-10-25
+    -   視聴数: 1,371,701
+    -   **いいね数: 20,611**
+    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](https://www.youtube.com/watch?v=WyDR8GuPC_k)
     -   公開日: 2023-05-06
     -   視聴数: 1,463,428
     -   **いいね数: 20,526**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
-1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](https://www.youtube.com/watch?v=CepOZXVtsCo)
-    -   公開日: 2023-10-25
-    -   視聴数: 1,364,719
-    -   **いいね数: 20,522**
-    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](https://www.youtube.com/watch?v=_Oje8CA9ZhU)
     -   公開日: 2025-03-10
     -   視聴数: 490,130
@@ -267,8 +267,8 @@
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](https://www.youtube.com/watch?v=EYKExpig3-4)
     -   公開日: 2023-05-28
-    -   視聴数: 1,111,175
-    -   **いいね数: 18,496**
+    -   視聴数: 1,111,965
+    -   **いいね数: 18,503**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
     -   公開日: 2023-11-01
