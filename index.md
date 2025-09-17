@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【石丸伸二vs再生の道新代表】新代表はAI!?なぜ？まったり生配信【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=bp9fzQOyq0o)
     -   公開日: 2025-09-16
-    -   視聴数: 139,283
-    -   **いいね数: 7,860**
+    -   視聴数: 193,917
+    -   **いいね数: 9,943**
     -   出演者: 
     - [![](https://img.youtube.com/vi/bp9fzQOyq0o/hqdefault.jpg)](https://www.youtube.com/watch?v=bp9fzQOyq0o)
 1.  [【テスタvs仮想通貨】投資に仮想通貨はあり?暴落の可能性は？【ReHacQ高橋弘樹vs加納裕三】](https://www.youtube.com/watch?v=ubnixUZTbe8)
     -   公開日: 2025-09-16
-    -   視聴数: 40,417
-    -   **いいね数: 523**
+    -   視聴数: 53,032
+    -   **いいね数: 694**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ubnixUZTbe8/hqdefault.jpg)](https://www.youtube.com/watch?v=ubnixUZTbe8)
 1.  [【生配信】自民党総裁戦・小林鷹之出馬会見 9月16日（火）【ReHacQ】](https://www.youtube.com/watch?v=Xc02fYxC_w0)
     -   公開日: 2025-09-16
-    -   視聴数: 21,656
-    -   **いいね数: 202**
+    -   視聴数: 22,239
+    -   **いいね数: 206**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Xc02fYxC_w0/hqdefault.jpg)](https://www.youtube.com/watch?v=Xc02fYxC_w0)
 1.  [【生配信】国民民主党・玉木代表定例会見 9月16日（火）【ReHacQ】](https://www.youtube.com/watch?v=9Whp7LqVGfw)
     -   公開日: 2025-09-16
-    -   視聴数: 8,417
-    -   **いいね数: 108**
+    -   視聴数: 9,764
+    -   **いいね数: 120**
     -   出演者: 
     - [![](https://img.youtube.com/vi/9Whp7LqVGfw/hqdefault.jpg)](https://www.youtube.com/watch?v=9Whp7LqVGfw)
 1.  [【石丸伸二vs新代表】再生の道・新代表発表記者会見　9月16日(火)【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=8Fa8H3xk5-U)
     -   公開日: 2025-09-16
-    -   視聴数: 189,636
-    -   **いいね数: 10,407**
+    -   視聴数: 193,777
+    -   **いいね数: 10,498**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8Fa8H3xk5-U/hqdefault.jpg)](https://www.youtube.com/watch?v=8Fa8H3xk5-U)
 
@@ -67,8 +67,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](https://www.youtube.com/watch?v=H_e67-Dxr8o)
     -   公開日: 2024-11-18
-    -   視聴数: 2,052,670
-    -   **いいね数: 58,422**
+    -   視聴数: 2,062,891
+    -   **いいね数: 58,439**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
     -   公開日: 2024-11-17
@@ -77,8 +77,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6Vww3vD7jHg)
     -   公開日: 2024-11-19
-    -   視聴数: 2,131,102
-    -   **いいね数: 43,548**
+    -   視聴数: 2,132,721
+    -   **いいね数: 43,541**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)
     -   公開日: 2025-04-13
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 44, 視聴数: 5,110,764, いいね数: 108,862
+-   動画数: 44, 視聴数: 5,193,753, いいね数: 111,401
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,940,731, いいね数: 354,247
+-   動画数: 76, 視聴数: 19,942,133, いいね数: 354,257
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -126,15 +126,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,194,470, いいね数: 307,856
+-   動画数: 60, 視聴数: 18,194,752, いいね数: 307,844
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,425,160, いいね数: 373,911
+-   動画数: 37, 視聴数: 21,437,315, いいね数: 373,912
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,049,269, いいね数: 339,494
+-   動画数: 72, 視聴数: 22,049,722, いいね数: 339,484
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,803,368, いいね数: 141,038
 
 ---
-2025-09-17 07:00
+2025-09-17 12:00
