@@ -32,8 +32,8 @@
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](https://www.youtube.com/watch?v=qemKsOkKAYM)
     -   公開日: 2023-08-01
-    -   視聴数: 2,472,067
-    -   **いいね数: 27,124**
+    -   視聴数: 2,474,420
+    -   **いいね数: 27,138**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【成田悠輔が絶賛】6歳でもわかる!?天才物理学者のガチ授業【野村泰紀】](https://www.youtube.com/watch?v=jyAZpcjzxFU)
     -   公開日: 2024-02-17
@@ -47,8 +47,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](https://www.youtube.com/watch?v=Thz0fKoe98c)
     -   公開日: 2023-07-23
-    -   視聴数: 2,175,238
-    -   **いいね数: 19,480**
+    -   視聴数: 2,178,061
+    -   **いいね数: 19,487**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](https://www.youtube.com/watch?v=hio2XdBPW5Y)
     -   公開日: 2024-02-24
@@ -277,8 +277,8 @@
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
     -   公開日: 2023-05-23
-    -   視聴数: 1,122,005
-    -   **いいね数: 16,559**
+    -   視聴数: 1,122,292
+    -   **いいね数: 16,562**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](https://www.youtube.com/watch?v=mf37-gaqcFE)
     -   公開日: 2025-04-06
