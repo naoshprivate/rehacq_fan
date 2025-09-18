@@ -1,31 +1,31 @@
 # 最近の動画
 1.  [【高橋弘樹vs麻布競馬場vsけんご】読書の秋SP！働きたくない若者 vs「死ぬこと以外かすり傷」世代 読書で変わる仕事の価値観とは？【ReHacQ】](https://www.youtube.com/watch?v=xrPcUsmGTn8)
     -   公開日: 2025-09-18
-    -   視聴数: 3,257
-    -   **いいね数: 89**
+    -   視聴数: 4,907
+    -   **いいね数: 171**
     -   出演者: けんご, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 麻布競馬場
     - [![](https://img.youtube.com/vi/xrPcUsmGTn8/hqdefault.jpg)](https://www.youtube.com/watch?v=xrPcUsmGTn8)
 1.  [【高橋弘樹vsママ議員】泣き寝入りに光を当てたい…成し遂げた画期的法改正とは？【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=XpvF36-qfRs)
     -   公開日: 2025-09-18
-    -   視聴数: 3,994
-    -   **いいね数: 170**
+    -   視聴数: 6,994
+    -   **いいね数: 241**
     -   出演者: 国光あやの, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XpvF36-qfRs/hqdefault.jpg)](https://www.youtube.com/watch?v=XpvF36-qfRs)
 1.  [【生配信】自民党総裁選・林芳正出馬会見 9月18日（木）【ReHacQ】](https://www.youtube.com/watch?v=aU1r3g6bjoI)
     -   公開日: 2025-09-18
-    -   視聴数: 12,728
-    -   **いいね数: 106**
+    -   視聴数: 13,226
+    -   **いいね数: 113**
     -   出演者: [林芳正](/rehacq_fan/people/林芳正 "wikilink")
     - [![](https://img.youtube.com/vi/aU1r3g6bjoI/hqdefault.jpg)](https://www.youtube.com/watch?v=aU1r3g6bjoI)
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=2DZQwsjuZJE)
     -   公開日: 2025-09-17
-    -   視聴数: 101,576
-    -   **いいね数: 1,512**
+    -   視聴数: 102,865
+    -   **いいね数: 1,530**
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/2DZQwsjuZJE/hqdefault.jpg)](https://www.youtube.com/watch?v=2DZQwsjuZJE)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](https://www.youtube.com/watch?v=h2uDUojYzT0)
     -   公開日: 2025-09-17
-    -   視聴数: 15,303
+    -   視聴数: 15,430
     -   **いいね数: 139**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/h2uDUojYzT0/hqdefault.jpg)](https://www.youtube.com/watch?v=h2uDUojYzT0)
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 50, 視聴数: 5,621,519, いいね数: 117,917
+-   動画数: 50, 視聴数: 5,630,647, いいね数: 118,140
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,361,754, いいね数: 284,234
+-   動画数: 77, 視聴数: 15,365,280, いいね数: 284,301
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -150,23 +150,23 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,466,041, いいね数: 141,005
+-   動画数: 31, 視聴数: 10,467,594, いいね数: 141,013
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,410,300, いいね数: 79,168
+-   動画数: 29, 視聴数: 6,412,513, いいね数: 79,167
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,331,047, いいね数: 98,307
+-   動画数: 34, 視聴数: 9,335,830, いいね数: 98,336
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,013,076, いいね数: 109,129
+-   動画数: 44, 視聴数: 9,013,344, いいね数: 109,129
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,944,272, いいね数: 185,700
+-   動画数: 34, 視聴数: 14,945,069, いいね数: 185,701
 
 #### [2024年01月](videos/202401 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,803,961, いいね数: 141,043
 
 ---
-2025-09-18 21:00
+2025-09-18 22:00
