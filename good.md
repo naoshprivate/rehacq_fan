@@ -217,8 +217,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](https://www.youtube.com/watch?v=WyDR8GuPC_k)
     -   公開日: 2023-05-06
-    -   視聴数: 1,463,428
-    -   **いいね数: 20,526**
+    -   視聴数: 1,463,497
+    -   **いいね数: 20,524**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](https://www.youtube.com/watch?v=_Oje8CA9ZhU)
     -   公開日: 2025-03-10
@@ -302,8 +302,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](https://www.youtube.com/watch?v=zU6zLhzkdVI)
     -   公開日: 2025-06-20
-    -   視聴数: 376,754
-    -   **いいね数: 17,363**
+    -   視聴数: 376,976
+    -   **いいね数: 17,354**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](https://www.youtube.com/watch?v=Lcj1tooXlSk)
     -   公開日: 2025-02-18
@@ -347,8 +347,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](https://www.youtube.com/watch?v=4t0yL-uIfUA)
     -   公開日: 2023-03-26
-    -   視聴数: 837,240
-    -   **いいね数: 16,229**
+    -   視聴数: 837,475
+    -   **いいね数: 16,231**
     -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【中田敦彦vs高橋弘樹】衝撃告白！兵庫県知事選&自民党総裁選…大物出演の裏側とは？【ReHacQ &YouTube大学コラボ】](https://www.youtube.com/watch?v=ZnXwCAVJ7Gs)
     -   公開日: 2024-12-28
@@ -467,8 +467,8 @@
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【高橋弘樹vs参政党】東京都議選2025！代表者インタビュー【神谷宗幣】](https://www.youtube.com/watch?v=u1vR6NcU6ys)
     -   公開日: 2025-06-20
-    -   視聴数: 481,768
-    -   **いいね数: 14,664**
+    -   視聴数: 481,898
+    -   **いいね数: 14,665**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
     -   公開日: 2025-06-10
@@ -482,8 +482,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
-    -   視聴数: 1,095,981
-    -   **いいね数: 14,417**
+    -   視聴数: 1,096,280
+    -   **いいね数: 14,419**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](https://www.youtube.com/watch?v=PcMXSTSfqto)
     -   公開日: 2024-09-10

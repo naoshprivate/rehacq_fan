@@ -142,8 +142,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](https://www.youtube.com/watch?v=WyDR8GuPC_k)
     -   公開日: 2023-05-06
-    -   視聴数: 1,463,428
-    -   **いいね数: 20,526**
+    -   視聴数: 1,463,497
+    -   **いいね数: 20,524**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](https://www.youtube.com/watch?v=Ue3JGrtEO3Y)
     -   公開日: 2023-11-19
@@ -312,8 +312,8 @@
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
-    -   視聴数: 1,095,981
-    -   **いいね数: 14,417**
+    -   視聴数: 1,096,280
+    -   **いいね数: 14,419**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【後藤達也vsFIRE】投資の本質を徹底暴露！ビジネスパーソンが陥るキャリアの罠とは【山崎元】](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
     -   公開日: 2023-12-28
@@ -402,13 +402,13 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](https://www.youtube.com/watch?v=18Lb1U5pt0k)
     -   公開日: 2025-05-18
-    -   視聴数: 983,972
-    -   **いいね数: 9,512**
+    -   視聴数: 984,879
+    -   **いいね数: 9,519**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](https://www.youtube.com/watch?v=w-ToOG5rMTc)
     -   公開日: 2023-10-01
-    -   視聴数: 977,204
-    -   **いいね数: 10,151**
+    -   視聴数: 979,370
+    -   **いいね数: 10,173**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](https://www.youtube.com/watch?v=Ipck99H_vjU)
     -   公開日: 2025-01-13
@@ -457,8 +457,8 @@
     -   出演者: 
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](https://www.youtube.com/watch?v=B7bchnNcYhI)
     -   公開日: 2023-10-07
-    -   視聴数: 900,323
-    -   **いいね数: 10,008**
+    -   視聴数: 901,424
+    -   **いいね数: 10,012**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](https://www.youtube.com/watch?v=JxdSFPP3_Bg)
     -   公開日: 2025-05-13
