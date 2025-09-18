@@ -227,8 +227,8 @@
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](https://www.youtube.com/watch?v=CxDT2FaGi8o)
     -   公開日: 2025-07-09
-    -   視聴数: 1,085,469
-    -   **いいね数: 20,430**
+    -   視聴数: 1,086,655
+    -   **いいね数: 20,426**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](https://www.youtube.com/watch?v=loEb4IWVkAs)
     -   公開日: 2025-08-07
@@ -257,8 +257,8 @@
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](https://www.youtube.com/watch?v=KihRlwlSPCI)
     -   公開日: 2025-07-12
-    -   視聴数: 609,156
-    -   **いいね数: 18,611**
+    -   視聴数: 609,357
+    -   **いいね数: 18,607**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](https://www.youtube.com/watch?v=8xFzx_lOouI)
     -   公開日: 2024-08-27

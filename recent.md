@@ -1,31 +1,31 @@
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=2DZQwsjuZJE)
     -   公開日: 2025-09-17
-    -   視聴数: 86,497
-    -   **いいね数: 1,360**
+    -   視聴数: 88,008
+    -   **いいね数: 1,399**
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/2DZQwsjuZJE/hqdefault.jpg)](https://www.youtube.com/watch?v=2DZQwsjuZJE)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](https://www.youtube.com/watch?v=h2uDUojYzT0)
     -   公開日: 2025-09-17
-    -   視聴数: 13,635
-    -   **いいね数: 132**
+    -   視聴数: 13,869
+    -   **いいね数: 131**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/h2uDUojYzT0/hqdefault.jpg)](https://www.youtube.com/watch?v=h2uDUojYzT0)
 1.  [【石丸伸二vs再生の道新代表】新代表はAI!?なぜ？まったり生配信【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=bp9fzQOyq0o)
     -   公開日: 2025-09-16
-    -   視聴数: 297,141
-    -   **いいね数: 12,102**
+    -   視聴数: 298,563
+    -   **いいね数: 12,137**
     -   出演者: 奥村光貴, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
     - [![](https://img.youtube.com/vi/bp9fzQOyq0o/hqdefault.jpg)](https://www.youtube.com/watch?v=bp9fzQOyq0o)
 1.  [【テスタvs仮想通貨】投資に仮想通貨はあり?暴落の可能性は？【ReHacQ高橋弘樹vs加納裕三】](https://www.youtube.com/watch?v=ubnixUZTbe8)
     -   公開日: 2025-09-16
-    -   視聴数: 99,530
-    -   **いいね数: 1,088**
+    -   視聴数: 100,413
+    -   **いいね数: 1,100**
     -   出演者: ジョー・タカヤマ, [テスタ](/rehacq_fan/people/テスタ "wikilink"), [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ubnixUZTbe8/hqdefault.jpg)](https://www.youtube.com/watch?v=ubnixUZTbe8)
-1.  [【生配信】自民党総裁戦・小林鷹之出馬会見 9月16日（火）【ReHacQ】](https://www.youtube.com/watch?v=Xc02fYxC_w0)
+1.  [【生配信】自民党総裁選・小林鷹之出馬会見 9月16日（火）【ReHacQ】](https://www.youtube.com/watch?v=Xc02fYxC_w0)
     -   公開日: 2025-09-16
-    -   視聴数: 23,631
-    -   **いいね数: 215**
+    -   視聴数: 23,707
+    -   **いいね数: 216**
     -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink")
     - [![](https://img.youtube.com/vi/Xc02fYxC_w0/hqdefault.jpg)](https://www.youtube.com/watch?v=Xc02fYxC_w0)
 
