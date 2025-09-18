@@ -1,4 +1,4 @@
-# [【後藤達也vs日銀】円安、金融緩和…日銀はどんな仕事してる？【門間一夫&窪園博俊】](https://www.youtube.com/watch?v=qVW3NqkLeSI)
+### [【後藤達也vs日銀】円安、金融緩和…日銀はどんな仕事してる？【門間一夫&窪園博俊】](https://www.youtube.com/watch?v=qVW3NqkLeSI)
 -   公開日: 2023-03-31
 -   視聴数: 174,170
 -   **いいね数: 2,929**

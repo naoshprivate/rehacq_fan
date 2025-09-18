@@ -1,4 +1,4 @@
-# [【スーツの即興旅in栃木】前日に「あした足利行こう」！まったり旅【ReHacQ旅】](https://www.youtube.com/watch?v=S1tucsWEEWI)
+### [【スーツの即興旅in栃木】前日に「あした足利行こう」！まったり旅【ReHacQ旅】](https://www.youtube.com/watch?v=S1tucsWEEWI)
 -   公開日: 2024-09-02
 -   視聴数: 146,826
 -   **いいね数: 2,821**

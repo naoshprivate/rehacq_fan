@@ -1,4 +1,4 @@
-# [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](https://www.youtube.com/watch?v=sXNTlkaZOYo)
+### [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](https://www.youtube.com/watch?v=sXNTlkaZOYo)
 -   公開日: 2025-07-15
 -   視聴数: 732,178
 -   **いいね数: 15,338**

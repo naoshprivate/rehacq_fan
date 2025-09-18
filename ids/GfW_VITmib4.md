@@ -1,4 +1,4 @@
-# [【ひろゆき賠償金支払う旅③】仙台高裁へ…ひろゆきを待ち受けるものとは【ReHacQ】](https://www.youtube.com/watch?v=GfW_VITmib4)
+### [【ひろゆき賠償金支払う旅③】仙台高裁へ…ひろゆきを待ち受けるものとは【ReHacQ】](https://www.youtube.com/watch?v=GfW_VITmib4)
 -   公開日: 2025-06-01
 -   視聴数: 141,537
 -   **いいね数: 1,558**

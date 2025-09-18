@@ -1,4 +1,4 @@
-# [【ひろゆき&EXILE】秘境の地にワクチンを！最先端ドローンの実態【アフリカガーナ旅③】](https://www.youtube.com/watch?v=Dfh9LTFtNRs)
+### [【ひろゆき&EXILE】秘境の地にワクチンを！最先端ドローンの実態【アフリカガーナ旅③】](https://www.youtube.com/watch?v=Dfh9LTFtNRs)
 -   公開日: 2025-01-18
 -   視聴数: 103,945
 -   **いいね数: 1,641**

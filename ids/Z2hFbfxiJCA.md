@@ -1,4 +1,4 @@
-# [【ひろゆきvs自民党ホープ】ガチ激論！「新しい資本主義」と規制改革【神回！】](https://www.youtube.com/watch?v=Z2hFbfxiJCA)
+### [【ひろゆきvs自民党ホープ】ガチ激論！「新しい資本主義」と規制改革【神回！】](https://www.youtube.com/watch?v=Z2hFbfxiJCA)
 -   公開日: 2023-11-05
 -   視聴数: 347,658
 -   **いいね数: 3,381**

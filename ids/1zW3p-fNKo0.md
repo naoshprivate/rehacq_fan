@@ -1,4 +1,4 @@
-# [【石丸伸二vs須藤元気】無所属の政治家の矜持とは？【ReHacQvs金澤ゆい】](https://www.youtube.com/watch?v=1zW3p-fNKo0)
+### [【石丸伸二vs須藤元気】無所属の政治家の矜持とは？【ReHacQvs金澤ゆい】](https://www.youtube.com/watch?v=1zW3p-fNKo0)
 -   公開日: 2024-12-25
 -   視聴数: 252,517
 -   **いいね数: 5,990**

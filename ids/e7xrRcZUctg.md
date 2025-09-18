@@ -1,4 +1,4 @@
-# [【石丸伸二vs音喜多駿】都知事選から険悪な二人、衝撃の方法で仲直りを試みる！【ReHacQ旅】](https://www.youtube.com/watch?v=e7xrRcZUctg)
+### [【石丸伸二vs音喜多駿】都知事選から険悪な二人、衝撃の方法で仲直りを試みる！【ReHacQ旅】](https://www.youtube.com/watch?v=e7xrRcZUctg)
 -   公開日: 2025-02-03
 -   視聴数: 324,154
 -   **いいね数: 10,264**

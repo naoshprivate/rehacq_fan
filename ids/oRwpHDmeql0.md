@@ -1,4 +1,4 @@
-# [【高橋弘樹 vs AIで人件費圧縮】USENから分社化した謎の企業【社内ベンチャー成功の秘密】](https://www.youtube.com/watch?v=oRwpHDmeql0)
+### [【高橋弘樹 vs AIで人件費圧縮】USENから分社化した謎の企業【社内ベンチャー成功の秘密】](https://www.youtube.com/watch?v=oRwpHDmeql0)
 -   公開日: 2023-08-23
 -   視聴数: 38,100
 -   **いいね数: 756**

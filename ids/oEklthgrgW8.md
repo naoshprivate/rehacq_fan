@@ -1,4 +1,4 @@
-# [【ひろゆきvs成田修造】事件発生…突然の手紙！東京の「田舎暮らし」とは？【北区赤羽】](https://www.youtube.com/watch?v=oEklthgrgW8)
+### [【ひろゆきvs成田修造】事件発生…突然の手紙！東京の「田舎暮らし」とは？【北区赤羽】](https://www.youtube.com/watch?v=oEklthgrgW8)
 -   公開日: 2024-03-19
 -   視聴数: 65,345
 -   **いいね数: 938**

@@ -1,4 +1,4 @@
-# [【高橋弘樹vsエリート女性議員】医師・官僚を経てなぜ政治家に？ママさん議員の苦悩激白...【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=9GWqjmXHk8M)
+### [【高橋弘樹vsエリート女性議員】医師・官僚を経てなぜ政治家に？ママさん議員の苦悩激白...【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=9GWqjmXHk8M)
 -   公開日: 2025-09-11
 -   視聴数: 90,624
 -   **いいね数: 1,665**

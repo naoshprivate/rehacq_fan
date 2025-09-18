@@ -1,4 +1,4 @@
-# [【石丸伸二vs彦根市長】トップに必要な嫌われる勇気とは？【どうなる石丸新党】](https://www.youtube.com/watch?v=1f0CqBbjfMU)
+### [【石丸伸二vs彦根市長】トップに必要な嫌われる勇気とは？【どうなる石丸新党】](https://www.youtube.com/watch?v=1f0CqBbjfMU)
 -   公開日: 2024-08-14
 -   視聴数: 166,059
 -   **いいね数: 5,845**

@@ -1,4 +1,4 @@
-# [【米国金利2025は？】FRBエコノミストの思考回路は？米国経済の行方は？【NISAへの影響】](https://www.youtube.com/watch?v=cTdJaS3vYM0)
+### [【米国金利2025は？】FRBエコノミストの思考回路は？米国経済の行方は？【NISAへの影響】](https://www.youtube.com/watch?v=cTdJaS3vYM0)
 -   公開日: 2025-01-02
 -   視聴数: 113,421
 -   **いいね数: 1,611**

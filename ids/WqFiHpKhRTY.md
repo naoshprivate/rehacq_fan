@@ -1,4 +1,4 @@
-# [【鈴木おさむvs高橋弘樹】なぜ引退？テレビにさよならするワケ【スマスマ放送作家】](https://www.youtube.com/watch?v=WqFiHpKhRTY)
+### [【鈴木おさむvs高橋弘樹】なぜ引退？テレビにさよならするワケ【スマスマ放送作家】](https://www.youtube.com/watch?v=WqFiHpKhRTY)
 -   公開日: 2024-01-24
 -   視聴数: 317,565
 -   **いいね数: 3,663**

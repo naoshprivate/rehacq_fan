@@ -1,4 +1,4 @@
-# [【フーコーvsマルクス】すこし難しいけど民主主義を考える【斎藤幸平vs箱田徹】](https://www.youtube.com/watch?v=ynW4epPAihM)
+### [【フーコーvsマルクス】すこし難しいけど民主主義を考える【斎藤幸平vs箱田徹】](https://www.youtube.com/watch?v=ynW4epPAihM)
 -   公開日: 2024-06-25
 -   視聴数: 71,062
 -   **いいね数: 1,072**

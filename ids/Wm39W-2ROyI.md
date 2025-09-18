@@ -1,4 +1,4 @@
-# [【成田修造vs投資の闇】危険な不動産会社の手口とは【vs登坂淳一】](https://www.youtube.com/watch?v=Wm39W-2ROyI)
+### [【成田修造vs投資の闇】危険な不動産会社の手口とは【vs登坂淳一】](https://www.youtube.com/watch?v=Wm39W-2ROyI)
 -   公開日: 2024-12-10
 -   視聴数: 101,711
 -   **いいね数: 1,334**

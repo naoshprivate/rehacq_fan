@@ -1,4 +1,4 @@
-# [【NVIDIA決算】予想上回り過去最高の約6.9兆円...市場の反応は？【永濱利廣＆宮嶋貴之】](https://www.youtube.com/watch?v=cttUgH1xh9U)
+### [【NVIDIA決算】予想上回り過去最高の約6.9兆円...市場の反応は？【永濱利廣＆宮嶋貴之】](https://www.youtube.com/watch?v=cttUgH1xh9U)
 -   公開日: 2025-08-29
 -   視聴数: 31,038
 -   **いいね数: 233**

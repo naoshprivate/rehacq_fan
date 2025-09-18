@@ -1,4 +1,4 @@
-# [【AIで世界トップ】バブルNTTのガチ投資…30年後の奇跡！【本物の天才】](https://www.youtube.com/watch?v=7cuCWeYaHEE)
+### [【AIで世界トップ】バブルNTTのガチ投資…30年後の奇跡！【本物の天才】](https://www.youtube.com/watch?v=7cuCWeYaHEE)
 -   公開日: 2023-12-14
 -   視聴数: 83,916
 -   **いいね数: 1,028**

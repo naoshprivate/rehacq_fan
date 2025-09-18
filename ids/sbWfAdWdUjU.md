@@ -1,4 +1,4 @@
-# [【石丸伸二vsプリティ長嶋】千葉の知られざる課題…県議会議員になったワケ【ReHacQ旅】](https://www.youtube.com/watch?v=sbWfAdWdUjU)
+### [【石丸伸二vsプリティ長嶋】千葉の知られざる課題…県議会議員になったワケ【ReHacQ旅】](https://www.youtube.com/watch?v=sbWfAdWdUjU)
 -   公開日: 2024-11-24
 -   視聴数: 200,891
 -   **いいね数: 5,858**

@@ -1,4 +1,4 @@
-# [【河野太郎】ReHacQ収録後の記者会見を撮ってみた](https://www.youtube.com/watch?v=HBjHT8cotKw)
+### [【河野太郎】ReHacQ収録後の記者会見を撮ってみた](https://www.youtube.com/watch?v=HBjHT8cotKw)
 -   公開日: 2024-09-11
 -   視聴数: 31,653
 -   **いいね数: 439**

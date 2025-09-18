@@ -1,4 +1,4 @@
-# [【後藤達也vs日銀】必見！金利とは何か？本音激白【門間一夫&窪園博俊】](https://www.youtube.com/watch?v=hrFXdV2uC1k)
+### [【後藤達也vs日銀】必見！金利とは何か？本音激白【門間一夫&窪園博俊】](https://www.youtube.com/watch?v=hrFXdV2uC1k)
 -   公開日: 2023-03-24
 -   視聴数: 263,193
 -   **いいね数: 4,576**

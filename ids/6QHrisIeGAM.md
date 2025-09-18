@@ -1,4 +1,4 @@
-# [【ひろゆきvs山本一太】国民・玉木氏へ…激論！移民問題…群馬県知事がぶった斬る【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6QHrisIeGAM)
+### [【ひろゆきvs山本一太】国民・玉木氏へ…激論！移民問題…群馬県知事がぶった斬る【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6QHrisIeGAM)
 -   公開日: 2025-01-27
 -   視聴数: 297,706
 -   **いいね数: 4,489**

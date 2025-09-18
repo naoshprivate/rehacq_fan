@@ -1,4 +1,4 @@
-# [【ひろゆきvs高橋弘樹】誰も言わない！本音の就活論【ReHacQ就活塾】](https://www.youtube.com/watch?v=PTbg9QEhWlo)
+### [【ひろゆきvs高橋弘樹】誰も言わない！本音の就活論【ReHacQ就活塾】](https://www.youtube.com/watch?v=PTbg9QEhWlo)
 -   公開日: 2025-01-24
 -   視聴数: 115,276
 -   **いいね数: 1,432**

@@ -1,4 +1,4 @@
-# [株式会社フジテレビジョン　記者会見](https://www.youtube.com/watch?v=KSOt_Xmsc3Y)
+### [株式会社フジテレビジョン　記者会見](https://www.youtube.com/watch?v=KSOt_Xmsc3Y)
 -   公開日: 2025-01-27
 -   視聴数: 387,289
 -   **いいね数: 3,639**

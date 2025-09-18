@@ -1,4 +1,4 @@
-# [【シン•起業塾】破産からの復活！ベンチャーの罠【斎藤祐馬】](https://www.youtube.com/watch?v=KgXxEln_Wdk)
+### [【シン•起業塾】破産からの復活！ベンチャーの罠【斎藤祐馬】](https://www.youtube.com/watch?v=KgXxEln_Wdk)
 -   公開日: 2023-09-15
 -   視聴数: 96,953
 -   **いいね数: 1,406**

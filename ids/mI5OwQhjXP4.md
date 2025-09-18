@@ -1,4 +1,4 @@
-# [【ひろゆきvs松尾豊vs川上量生】AIの描くガチ未来【ReHacQ SP】](https://www.youtube.com/watch?v=mI5OwQhjXP4)
+### [【ひろゆきvs松尾豊vs川上量生】AIの描くガチ未来【ReHacQ SP】](https://www.youtube.com/watch?v=mI5OwQhjXP4)
 -   公開日: 2023-05-20
 -   視聴数: 559,597
 -   **いいね数: 6,595**

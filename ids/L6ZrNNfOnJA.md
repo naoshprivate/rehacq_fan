@@ -1,4 +1,4 @@
-# [【高橋弘樹vs52歳の孤高作家】受賞式で炎上…なぜ？芥川賞作家「孤独のすすめ」とは？【ReHacQ】](https://www.youtube.com/watch?v=L6ZrNNfOnJA)
+### [【高橋弘樹vs52歳の孤高作家】受賞式で炎上…なぜ？芥川賞作家「孤独のすすめ」とは？【ReHacQ】](https://www.youtube.com/watch?v=L6ZrNNfOnJA)
 -   公開日: 2025-06-12
 -   視聴数: 502,437
 -   **いいね数: 9,768**

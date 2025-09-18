@@ -1,4 +1,4 @@
-# [【ひろゆきvs松原仁】なぜ離党？元警察のドン【元国務大臣】](https://www.youtube.com/watch?v=IW12d3uGK0s)
+### [【ひろゆきvs松原仁】なぜ離党？元警察のドン【元国務大臣】](https://www.youtube.com/watch?v=IW12d3uGK0s)
 -   公開日: 2023-08-13
 -   視聴数: 109,386
 -   **いいね数: 1,183**

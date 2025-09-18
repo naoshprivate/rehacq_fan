@@ -1,4 +1,4 @@
-# [【ひろゆきのライバルの秘書】選挙開票日に事件…なぜ崩れ落ちた？【呆然】](https://www.youtube.com/watch?v=VvlEySrMk8M)
+### [【ひろゆきのライバルの秘書】選挙開票日に事件…なぜ崩れ落ちた？【呆然】](https://www.youtube.com/watch?v=VvlEySrMk8M)
 -   公開日: 2023-04-13
 -   視聴数: 155,682
 -   **いいね数: 2,605**

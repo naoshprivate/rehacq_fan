@@ -1,4 +1,4 @@
-# [【石丸伸二vs清春】完全ガチ！清春の歌詞&石丸演説…裏側を徹底解説【ReHacQ旅】](https://www.youtube.com/watch?v=3h6qFsuAaoY)
+### [【石丸伸二vs清春】完全ガチ！清春の歌詞&石丸演説…裏側を徹底解説【ReHacQ旅】](https://www.youtube.com/watch?v=3h6qFsuAaoY)
 -   公開日: 2025-01-29
 -   視聴数: 245,493
 -   **いいね数: 7,742**

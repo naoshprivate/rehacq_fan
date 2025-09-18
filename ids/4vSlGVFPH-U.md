@@ -1,4 +1,4 @@
-# [【ひろゆきvs能登の伝統塩作り】石丸伸二も緊急参戦...参院選直後に語る思いとは？ReHacQ旅③【後藤達也】](https://www.youtube.com/watch?v=4vSlGVFPH-U)
+### [【ひろゆきvs能登の伝統塩作り】石丸伸二も緊急参戦...参院選直後に語る思いとは？ReHacQ旅③【後藤達也】](https://www.youtube.com/watch?v=4vSlGVFPH-U)
 -   公開日: 2025-08-20
 -   視聴数: 350,587
 -   **いいね数: 11,005**

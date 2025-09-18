@@ -1,4 +1,4 @@
-# [【田村淳vs加納裕三】web3は金融と投資を変えるのか？【高橋弘樹】](https://www.youtube.com/watch?v=WRTCvyQt2GM)
+### [【田村淳vs加納裕三】web3は金融と投資を変えるのか？【高橋弘樹】](https://www.youtube.com/watch?v=WRTCvyQt2GM)
 -   公開日: 2024-09-12
 -   視聴数: 65,541
 -   **いいね数: 574**

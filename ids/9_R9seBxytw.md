@@ -1,4 +1,4 @@
-# [【ChatGPT活用大全】イチから分かる生成AI入門【スペシャリストが使い方伝授】](https://www.youtube.com/watch?v=9_R9seBxytw)
+### [【ChatGPT活用大全】イチから分かる生成AI入門【スペシャリストが使い方伝授】](https://www.youtube.com/watch?v=9_R9seBxytw)
 -   公開日: 2024-01-08
 -   視聴数: 107,238
 -   **いいね数: 1,531**

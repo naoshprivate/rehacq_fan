@@ -1,4 +1,4 @@
-# [【けえ 島育ちvs高橋弘樹】なぜ？佐渡島ブーム到来のワケ【謎の町 両津とは？】](https://www.youtube.com/watch?v=el7pU-wbUuM)
+### [【けえ 島育ちvs高橋弘樹】なぜ？佐渡島ブーム到来のワケ【謎の町 両津とは？】](https://www.youtube.com/watch?v=el7pU-wbUuM)
 -   公開日: 2024-09-26
 -   視聴数: 57,767
 -   **いいね数: 1,062**

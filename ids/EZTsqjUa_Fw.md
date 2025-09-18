@@ -1,4 +1,4 @@
-# [【テスタvs7億の投資詐欺】TKOが後藤達也に激白！詐欺にかかる心理【人生激変】](https://www.youtube.com/watch?v=EZTsqjUa_Fw)
+### [【テスタvs7億の投資詐欺】TKOが後藤達也に激白！詐欺にかかる心理【人生激変】](https://www.youtube.com/watch?v=EZTsqjUa_Fw)
 -   公開日: 2023-11-16
 -   視聴数: 369,381
 -   **いいね数: 3,528**

@@ -1,4 +1,4 @@
-# [【孫正義が認めた男】36歳で執行役員になれたワケ【後藤達也が解説】](https://www.youtube.com/watch?v=Z5ZLVzNIbcU)
+### [【孫正義が認めた男】36歳で執行役員になれたワケ【後藤達也が解説】](https://www.youtube.com/watch?v=Z5ZLVzNIbcU)
 -   公開日: 2023-08-10
 -   視聴数: 170,685
 -   **いいね数: 1,708**

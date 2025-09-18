@@ -1,4 +1,4 @@
-# [【ひろゆきvsけんすう】やりたい事見つからないと嘆く人へ！【まったり人生相談】](https://www.youtube.com/watch?v=vuTp4IOetF0)
+### [【ひろゆきvsけんすう】やりたい事見つからないと嘆く人へ！【まったり人生相談】](https://www.youtube.com/watch?v=vuTp4IOetF0)
 -   公開日: 2023-09-17
 -   視聴数: 420,217
 -   **いいね数: 4,518**

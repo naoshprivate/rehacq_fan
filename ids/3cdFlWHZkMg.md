@@ -1,4 +1,4 @@
-# [【ひろゆきvs国山ハセン】お盆のまったり雑談【世界の果てにひろゆき置いてきた】](https://www.youtube.com/watch?v=3cdFlWHZkMg)
+### [【ひろゆきvs国山ハセン】お盆のまったり雑談【世界の果てにひろゆき置いてきた】](https://www.youtube.com/watch?v=3cdFlWHZkMg)
 -   公開日: 2023-08-13
 -   視聴数: 111,047
 -   **いいね数: 1,286**

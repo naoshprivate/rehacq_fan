@@ -1,4 +1,4 @@
-# [【テスタvs海外投資】円安！海外投資先探しの旅【18億の衝撃ハウス】](https://www.youtube.com/watch?v=SLnQC1oxGR0)
+### [【テスタvs海外投資】円安！海外投資先探しの旅【18億の衝撃ハウス】](https://www.youtube.com/watch?v=SLnQC1oxGR0)
 -   公開日: 2024-05-11
 -   視聴数: 273,637
 -   **いいね数: 2,411**

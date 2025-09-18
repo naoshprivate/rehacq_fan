@@ -1,4 +1,4 @@
-# [【ReHacQ】共産党・元参議院議員のリベンジ・たつみコータロー【なんで立候補したんですか？】](https://www.youtube.com/watch?v=s89jqY7fAyk)
+### [【ReHacQ】共産党・元参議院議員のリベンジ・たつみコータロー【なんで立候補したんですか？】](https://www.youtube.com/watch?v=s89jqY7fAyk)
 -   公開日: 2023-04-02
 -   視聴数: 38,939
 -   **いいね数: 432**

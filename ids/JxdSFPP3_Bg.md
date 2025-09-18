@@ -1,4 +1,4 @@
-# [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](https://www.youtube.com/watch?v=JxdSFPP3_Bg)
+### [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](https://www.youtube.com/watch?v=JxdSFPP3_Bg)
 -   公開日: 2025-05-13
 -   視聴数: 892,578
 -   **いいね数: 6,669**

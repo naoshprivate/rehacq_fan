@@ -1,4 +1,4 @@
-# [【都知事選を振り返る】激白！妻から見た選挙【安野たかひろ夫妻】](https://www.youtube.com/watch?v=-HcHYKuQElo)
+### [【都知事選を振り返る】激白！妻から見た選挙【安野たかひろ夫妻】](https://www.youtube.com/watch?v=-HcHYKuQElo)
 -   公開日: 2024-07-11
 -   視聴数: 461,642
 -   **いいね数: 8,591**

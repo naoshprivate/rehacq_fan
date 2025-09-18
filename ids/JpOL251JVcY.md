@@ -1,4 +1,4 @@
-# [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
+### [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](https://www.youtube.com/watch?v=JpOL251JVcY)
 -   公開日: 2023-11-01
 -   視聴数: 1,049,712
 -   **いいね数: 18,437**

@@ -1,4 +1,4 @@
-# [【成田修造vs不動産投資②】プロが伝授！投資物件の見分け方と落とし穴【vs登坂淳一】](https://www.youtube.com/watch?v=Fh6jxBMJmtc)
+### [【成田修造vs不動産投資②】プロが伝授！投資物件の見分け方と落とし穴【vs登坂淳一】](https://www.youtube.com/watch?v=Fh6jxBMJmtc)
 -   公開日: 2024-12-02
 -   視聴数: 91,782
 -   **いいね数: 1,194**

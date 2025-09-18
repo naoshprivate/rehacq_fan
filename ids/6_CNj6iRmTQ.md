@@ -1,4 +1,4 @@
-# [【箕輪厚介vs横田一】とりあえず、飲みましょう【須藤元気vs西田亮介ReHacQ居酒屋生配信】](https://www.youtube.com/watch?v=6_CNj6iRmTQ)
+### [【箕輪厚介vs横田一】とりあえず、飲みましょう【須藤元気vs西田亮介ReHacQ居酒屋生配信】](https://www.youtube.com/watch?v=6_CNj6iRmTQ)
 -   公開日: 2025-04-21
 -   視聴数: 378,003
 -   **いいね数: 6,209**

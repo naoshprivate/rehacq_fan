@@ -1,4 +1,4 @@
-# [【高橋弘樹vs猪子寿之】光の迷宮！チームラボ麻布台を徹底解説！【スザンヌ】](https://www.youtube.com/watch?v=PhL7TL2XjbI)
+### [【高橋弘樹vs猪子寿之】光の迷宮！チームラボ麻布台を徹底解説！【スザンヌ】](https://www.youtube.com/watch?v=PhL7TL2XjbI)
 -   公開日: 2024-05-03
 -   視聴数: 26,629
 -   **いいね数: 384**

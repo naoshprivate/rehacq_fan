@@ -1,4 +1,4 @@
-# [【Twitterの罠】承認欲求という快楽地獄【なぜSNSで攻撃？】](https://www.youtube.com/watch?v=7YR8jOkTECw)
+### [【Twitterの罠】承認欲求という快楽地獄【なぜSNSで攻撃？】](https://www.youtube.com/watch?v=7YR8jOkTECw)
 -   公開日: 2023-07-19
 -   視聴数: 56,753
 -   **いいね数: 896**

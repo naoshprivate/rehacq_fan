@@ -1,4 +1,4 @@
-# [【水曜どうでしょうvs元テレ東】弱者のヒット戦略【クリエイター秘話】](https://www.youtube.com/watch?v=cicefIujc2E)
+### [【水曜どうでしょうvs元テレ東】弱者のヒット戦略【クリエイター秘話】](https://www.youtube.com/watch?v=cicefIujc2E)
 -   公開日: 2023-09-13
 -   視聴数: 649,133
 -   **いいね数: 5,650**

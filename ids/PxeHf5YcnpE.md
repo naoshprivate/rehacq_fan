@@ -1,4 +1,4 @@
-# [【GAFAを超えろ】インドで刺激！世界一のアプリ作り試みるIT起業家の野望【Z世代 人気No.1アプリ開発者】](https://www.youtube.com/watch?v=PxeHf5YcnpE)
+### [【GAFAを超えろ】インドで刺激！世界一のアプリ作り試みるIT起業家の野望【Z世代 人気No.1アプリ開発者】](https://www.youtube.com/watch?v=PxeHf5YcnpE)
 -   公開日: 2023-05-15
 -   視聴数: 48,230
 -   **いいね数: 857**

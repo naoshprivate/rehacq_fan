@@ -1,4 +1,4 @@
-# [【木原誠二が激白】自民党どうする？政策激論90分【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=u_maBSrao10)
+### [【木原誠二が激白】自民党どうする？政策激論90分【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=u_maBSrao10)
 -   公開日: 2025-07-01
 -   視聴数: 110,777
 -   **いいね数: 1,082**

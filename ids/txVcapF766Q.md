@@ -1,4 +1,4 @@
-# [【辞めTBSvs天才ドズル】「恐怖を感じた…」宇内梨沙が最初に退職考えた衝撃事件とは？【ReHacQ】](https://www.youtube.com/watch?v=txVcapF766Q)
+### [【辞めTBSvs天才ドズル】「恐怖を感じた…」宇内梨沙が最初に退職考えた衝撃事件とは？【ReHacQ】](https://www.youtube.com/watch?v=txVcapF766Q)
 -   公開日: 2025-03-18
 -   視聴数: 143,777
 -   **いいね数: 2,427**

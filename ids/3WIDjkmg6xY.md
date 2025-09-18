@@ -1,4 +1,4 @@
-# [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=3WIDjkmg6xY)
+### [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=3WIDjkmg6xY)
 -   公開日: 2025-02-02
 -   視聴数: 1,650,641
 -   **いいね数: 21,666**

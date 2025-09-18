@@ -1,4 +1,4 @@
-# [【ReHacQvs元週刊サンデー編集者】　生みの苦しみ…Web漫画のヒット術【円満退社】](https://www.youtube.com/watch?v=1WqoF0Zb1OA)
+### [【ReHacQvs元週刊サンデー編集者】　生みの苦しみ…Web漫画のヒット術【円満退社】](https://www.youtube.com/watch?v=1WqoF0Zb1OA)
 -   公開日: 2024-07-09
 -   視聴数: 34,761
 -   **いいね数: 445**

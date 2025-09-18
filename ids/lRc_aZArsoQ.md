@@ -1,4 +1,4 @@
-# [【ひろゆきvs群馬県】石丸市長は…群馬と安芸高田！議会対策の違いとは？【山本一太】](https://www.youtube.com/watch?v=lRc_aZArsoQ)
+### [【ひろゆきvs群馬県】石丸市長は…群馬と安芸高田！議会対策の違いとは？【山本一太】](https://www.youtube.com/watch?v=lRc_aZArsoQ)
 -   公開日: 2024-01-03
 -   視聴数: 784,307
 -   **いいね数: 7,616**

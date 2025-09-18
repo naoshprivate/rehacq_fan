@@ -1,4 +1,4 @@
-# [【元NewsPicks CEO】世界で戦えるのは地方企業！？【地方にこだわるワケ】](https://www.youtube.com/watch?v=1ZxxrvdWaWA)
+### [【元NewsPicks CEO】世界で戦えるのは地方企業！？【地方にこだわるワケ】](https://www.youtube.com/watch?v=1ZxxrvdWaWA)
 -   公開日: 2023-06-14
 -   視聴数: 102,861
 -   **いいね数: 1,470**

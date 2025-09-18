@@ -1,4 +1,4 @@
-# [【Googleが賞金4.5億】睡眠革命の柳沢教授！眠れない夜撲滅のコツ【明日からできる】](https://www.youtube.com/watch?v=ztUX1yYMMA8)
+### [【Googleが賞金4.5億】睡眠革命の柳沢教授！眠れない夜撲滅のコツ【明日からできる】](https://www.youtube.com/watch?v=ztUX1yYMMA8)
 -   公開日: 2024-03-22
 -   視聴数: 127,693
 -   **いいね数: 2,059**

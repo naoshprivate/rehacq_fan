@@ -1,4 +1,4 @@
-# [【川上量生vs福永活也】激怒！緊急生配信【ReHacQ】](https://www.youtube.com/watch?v=B4dT3i9oW9s)
+### [【川上量生vs福永活也】激怒！緊急生配信【ReHacQ】](https://www.youtube.com/watch?v=B4dT3i9oW9s)
 -   公開日: 2024-12-19
 -   視聴数: 368,824
 -   **いいね数: 5,733**

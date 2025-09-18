@@ -1,4 +1,4 @@
-# [【後藤達也vs一流エコノミスト】大激論!広がる格差と国民の価値観…【賃上げ・物価・AI】](https://www.youtube.com/watch?v=BBSaH4syMuc)
+### [【後藤達也vs一流エコノミスト】大激論!広がる格差と国民の価値観…【賃上げ・物価・AI】](https://www.youtube.com/watch?v=BBSaH4syMuc)
 -   公開日: 2023-05-11
 -   視聴数: 133,248
 -   **いいね数: 1,795**

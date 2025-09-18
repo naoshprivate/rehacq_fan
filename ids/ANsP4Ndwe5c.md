@@ -1,4 +1,4 @@
-# [【生配信】徐浩予vs柳ヶ瀬裕文...帰化問題どうする？【渡部カンコロンゴ清花】](https://www.youtube.com/watch?v=ANsP4Ndwe5c)
+### [【生配信】徐浩予vs柳ヶ瀬裕文...帰化問題どうする？【渡部カンコロンゴ清花】](https://www.youtube.com/watch?v=ANsP4Ndwe5c)
 -   公開日: 2025-06-18
 -   視聴数: 69,459
 -   **いいね数: 1,038**

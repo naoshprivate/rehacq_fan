@@ -1,4 +1,4 @@
-# [【参政党と金】なぜ？参政党のお金の流れを徹底研究【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=PBFyp-7cJdo)
+### [【参政党と金】なぜ？参政党のお金の流れを徹底研究【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=PBFyp-7cJdo)
 -   公開日: 2025-08-10
 -   視聴数: 577,857
 -   **いいね数: 9,979**

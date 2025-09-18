@@ -1,4 +1,4 @@
-# [【後藤達也vsU-NEXT】500億赤字からどう復活？敏腕社長の逆襲劇【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=VDrejHzEXFs)
+### [【後藤達也vsU-NEXT】500億赤字からどう復活？敏腕社長の逆襲劇【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=VDrejHzEXFs)
 -   公開日: 2025-03-14
 -   視聴数: 168,732
 -   **いいね数: 1,926**

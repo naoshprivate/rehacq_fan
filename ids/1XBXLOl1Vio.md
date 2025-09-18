@@ -1,4 +1,4 @@
-# [【高橋弘樹vs国民民主党】東京都議選2025！代表者インタビュー【石田しんご】](https://www.youtube.com/watch?v=1XBXLOl1Vio)
+### [【高橋弘樹vs国民民主党】東京都議選2025！代表者インタビュー【石田しんご】](https://www.youtube.com/watch?v=1XBXLOl1Vio)
 -   公開日: 2025-06-21
 -   視聴数: 17,368
 -   **いいね数: 174**

@@ -1,4 +1,4 @@
-# [【後藤達也も驚愕】円急落で日本経済どうなる？S&P500の今後は【河野龍太郎】](https://www.youtube.com/watch?v=MBLaW0VDl1w)
+### [【後藤達也も驚愕】円急落で日本経済どうなる？S&P500の今後は【河野龍太郎】](https://www.youtube.com/watch?v=MBLaW0VDl1w)
 -   公開日: 2024-05-09
 -   視聴数: 801,245
 -   **いいね数: 8,320**

@@ -1,4 +1,4 @@
-# [【高橋弘樹vs溝口勇児】『令和の虎』を超えろ！暴走族総長の家に生まれ…目指す革命とは【ReHacQスザンヌ】](https://www.youtube.com/watch?v=THdPL6PEUYk)
+### [【高橋弘樹vs溝口勇児】『令和の虎』を超えろ！暴走族総長の家に生まれ…目指す革命とは【ReHacQスザンヌ】](https://www.youtube.com/watch?v=THdPL6PEUYk)
 -   公開日: 2025-03-28
 -   視聴数: 286,989
 -   **いいね数: 3,720**

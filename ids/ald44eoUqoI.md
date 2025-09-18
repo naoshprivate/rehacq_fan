@@ -1,4 +1,4 @@
-# [【西田亮介vs高橋弘樹】なぜ東工大辞め日大へ？「文科省へ…」【赤裸々激白】](https://www.youtube.com/watch?v=ald44eoUqoI)
+### [【西田亮介vs高橋弘樹】なぜ東工大辞め日大へ？「文科省へ…」【赤裸々激白】](https://www.youtube.com/watch?v=ald44eoUqoI)
 -   公開日: 2024-04-01
 -   視聴数: 380,349
 -   **いいね数: 4,448**

@@ -1,4 +1,4 @@
-# [【世界基準の採用スタイル】必見！圧倒的な差別化で勝つための思考法【GAFAに並んだ町工場】](https://www.youtube.com/watch?v=EX41MNRBJrk)
+### [【世界基準の採用スタイル】必見！圧倒的な差別化で勝つための思考法【GAFAに並んだ町工場】](https://www.youtube.com/watch?v=EX41MNRBJrk)
 -   公開日: 2023-06-13
 -   視聴数: 80,741
 -   **いいね数: 1,656**

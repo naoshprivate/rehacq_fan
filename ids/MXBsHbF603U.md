@@ -1,4 +1,4 @@
-# [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
+### [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](https://www.youtube.com/watch?v=MXBsHbF603U)
 -   公開日: 2023-12-21
 -   視聴数: 2,602,113
 -   **いいね数: 32,685**

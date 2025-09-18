@@ -1,4 +1,4 @@
-# [【高橋弘樹vs凄腕経営者】大阪万博で話題の「空飛ぶクルマ」・「ドローンショー」！日本最先端の技術が集結！【ReHacQvsMorning Pitch】](https://www.youtube.com/watch?v=w15LSyBqLew)
+### [【高橋弘樹vs凄腕経営者】大阪万博で話題の「空飛ぶクルマ」・「ドローンショー」！日本最先端の技術が集結！【ReHacQvsMorning Pitch】](https://www.youtube.com/watch?v=w15LSyBqLew)
 -   公開日: 2025-07-01
 -   視聴数: 22,362
 -   **いいね数: 265**

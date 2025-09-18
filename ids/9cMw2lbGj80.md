@@ -1,4 +1,4 @@
-# [【ひろゆきvs立憲幹事長】前代未聞…突然の涙の訳は？西田亮介激怒！なぜ？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=9cMw2lbGj80)
+### [【ひろゆきvs立憲幹事長】前代未聞…突然の涙の訳は？西田亮介激怒！なぜ？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=9cMw2lbGj80)
 -   公開日: 2025-02-23
 -   視聴数: 614,333
 -   **いいね数: 7,281**

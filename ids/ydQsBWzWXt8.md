@@ -1,4 +1,4 @@
-# [新番組「シン・教育論」](https://www.youtube.com/watch?v=ydQsBWzWXt8)
+### [新番組「シン・教育論」](https://www.youtube.com/watch?v=ydQsBWzWXt8)
 -   公開日: 2024-04-04
 -   視聴数: 94,268
 -   **いいね数: 1,166**

@@ -1,4 +1,4 @@
-# [【ハーバード大学医学部】精神科医の見た「日本」【内田舞】](https://www.youtube.com/watch?v=jo2dvOZbYsM)
+### [【ハーバード大学医学部】精神科医の見た「日本」【内田舞】](https://www.youtube.com/watch?v=jo2dvOZbYsM)
 -   公開日: 2023-05-24
 -   視聴数: 161,563
 -   **いいね数: 2,413**

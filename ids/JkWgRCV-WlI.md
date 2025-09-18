@@ -1,4 +1,4 @@
-# [【成田悠輔を超える完全ガチ】国で人類冬眠計画すすめる男【砂川 玄志郎】](https://www.youtube.com/watch?v=JkWgRCV-WlI)
+### [【成田悠輔を超える完全ガチ】国で人類冬眠計画すすめる男【砂川 玄志郎】](https://www.youtube.com/watch?v=JkWgRCV-WlI)
 -   公開日: 2023-05-10
 -   視聴数: 168,317
 -   **いいね数: 3,189**

@@ -1,4 +1,4 @@
-# [【自民党AI座長vs松尾豊】天才AI研究者がガチ激論！生成AIの未来【平将明vs経産省】](https://www.youtube.com/watch?v=13FyudKBmPQ)
+### [【自民党AI座長vs松尾豊】天才AI研究者がガチ激論！生成AIの未来【平将明vs経産省】](https://www.youtube.com/watch?v=13FyudKBmPQ)
 -   公開日: 2024-07-17
 -   視聴数: 129,441
 -   **いいね数: 2,395**

@@ -1,4 +1,4 @@
-# [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](https://www.youtube.com/watch?v=yfbTb_WzSTM)
+### [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](https://www.youtube.com/watch?v=yfbTb_WzSTM)
 -   公開日: 2023-08-20
 -   視聴数: 1,101,985
 -   **いいね数: 12,501**

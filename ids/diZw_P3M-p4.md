@@ -1,4 +1,4 @@
-# [【ひろゆきvs小川淳也】激動の日本、立憲幹事長が語る社会保障【ReHacQ】](https://www.youtube.com/watch?v=diZw_P3M-p4)
+### [【ひろゆきvs小川淳也】激動の日本、立憲幹事長が語る社会保障【ReHacQ】](https://www.youtube.com/watch?v=diZw_P3M-p4)
 -   公開日: 2025-03-02
 -   視聴数: 378,693
 -   **いいね数: 4,215**

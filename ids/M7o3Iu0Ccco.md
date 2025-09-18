@@ -1,4 +1,4 @@
-# [【ひろゆきvs成田修造】孤独を生む！終身雇用の罠【シン・幸福論】](https://www.youtube.com/watch?v=M7o3Iu0Ccco)
+### [【ひろゆきvs成田修造】孤独を生む！終身雇用の罠【シン・幸福論】](https://www.youtube.com/watch?v=M7o3Iu0Ccco)
 -   公開日: 2023-08-08
 -   視聴数: 303,044
 -   **いいね数: 3,808**

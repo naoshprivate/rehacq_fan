@@ -1,4 +1,4 @@
-# [【清水国明vs安野たかひろ】東京都知事選2024！ネット討論会③【ReHacQ SP】](https://www.youtube.com/watch?v=f0AYRERgJYs)
+### [【清水国明vs安野たかひろ】東京都知事選2024！ネット討論会③【ReHacQ SP】](https://www.youtube.com/watch?v=f0AYRERgJYs)
 -   公開日: 2024-06-28
 -   視聴数: 96,490
 -   **いいね数: 1,342**

@@ -1,4 +1,4 @@
-# [【ReHacQvsゲーム】なぜファミコン大成功!?ゲーム業界の真実【ファミ通vsファミマガ】](https://www.youtube.com/watch?v=cnbQYbSyvHc)
+### [【ReHacQvsゲーム】なぜファミコン大成功!?ゲーム業界の真実【ファミ通vsファミマガ】](https://www.youtube.com/watch?v=cnbQYbSyvHc)
 -   公開日: 2025-01-21
 -   視聴数: 92,529
 -   **いいね数: 1,492**

@@ -1,4 +1,4 @@
-# [【大津あやかが激白】みんなでつくる党の「政治とカネ」…討論会終わりで殺到するコメント回答【ReHacQ】](https://www.youtube.com/watch?v=fiCJgcV6h1w)
+### [【大津あやかが激白】みんなでつくる党の「政治とカネ」…討論会終わりで殺到するコメント回答【ReHacQ】](https://www.youtube.com/watch?v=fiCJgcV6h1w)
 -   公開日: 2024-10-22
 -   視聴数: 224,295
 -   **いいね数: 2,025**

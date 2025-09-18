@@ -1,4 +1,4 @@
-# [【新海誠の相棒】伊藤忠辞め…自腹で独立【天才育てる仕事術】](https://www.youtube.com/watch?v=nzybgmwUxeU)
+### [【新海誠の相棒】伊藤忠辞め…自腹で独立【天才育てる仕事術】](https://www.youtube.com/watch?v=nzybgmwUxeU)
 -   公開日: 2023-05-26
 -   視聴数: 62,595
 -   **いいね数: 1,535**

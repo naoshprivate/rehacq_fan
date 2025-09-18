@@ -1,4 +1,4 @@
-# [【ReHacQ生配信】日本維新の会吉村代表＆藤田新共同代表……維新どう変える？【高橋弘樹】](https://www.youtube.com/watch?v=WW6ouD4Wuwk)
+### [【ReHacQ生配信】日本維新の会吉村代表＆藤田新共同代表……維新どう変える？【高橋弘樹】](https://www.youtube.com/watch?v=WW6ouD4Wuwk)
 -   公開日: 2025-08-18
 -   視聴数: 255,775
 -   **いいね数: 3,607**

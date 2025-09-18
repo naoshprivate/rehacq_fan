@@ -1,4 +1,4 @@
-# [【成田修造vs最年少上場CEO】Z世代向け脅威のSNS戦略とは？【ZOZOグループ】](https://www.youtube.com/watch?v=onqt8sQNpK4)
+### [【成田修造vs最年少上場CEO】Z世代向け脅威のSNS戦略とは？【ZOZOグループ】](https://www.youtube.com/watch?v=onqt8sQNpK4)
 -   公開日: 2023-12-27
 -   視聴数: 188,632
 -   **いいね数: 2,059**

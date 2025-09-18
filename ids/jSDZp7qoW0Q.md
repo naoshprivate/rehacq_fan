@@ -1,4 +1,4 @@
-# [【藤井隆vs高橋弘樹】とにかく褒められたい！芸歴34年の末にたどり着いた仕事を楽しむ秘訣とは？【ReHacQ】](https://www.youtube.com/watch?v=jSDZp7qoW0Q)
+### [【藤井隆vs高橋弘樹】とにかく褒められたい！芸歴34年の末にたどり着いた仕事を楽しむ秘訣とは？【ReHacQ】](https://www.youtube.com/watch?v=jSDZp7qoW0Q)
 -   公開日: 2025-07-17
 -   視聴数: 194,102
 -   **いいね数: 4,368**

@@ -1,4 +1,4 @@
-# [【立憲民主党vsReHacQ】国民民主党に勝てる？次のエースとまったり激論忘年会【西田亮介＆高橋弘樹】](https://www.youtube.com/watch?v=kAQAk9HcMe0)
+### [【立憲民主党vsReHacQ】国民民主党に勝てる？次のエースとまったり激論忘年会【西田亮介＆高橋弘樹】](https://www.youtube.com/watch?v=kAQAk9HcMe0)
 -   公開日: 2024-12-30
 -   視聴数: 250,663
 -   **いいね数: 2,035**

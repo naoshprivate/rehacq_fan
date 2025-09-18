@@ -1,4 +1,4 @@
-# [【辞めNHK】プライドとは何か？退社理由、赤裸々告白【龍馬伝】](https://www.youtube.com/watch?v=NkePAeuWVzY)
+### [【辞めNHK】プライドとは何か？退社理由、赤裸々告白【龍馬伝】](https://www.youtube.com/watch?v=NkePAeuWVzY)
 -   公開日: 2023-03-28
 -   視聴数: 218,714
 -   **いいね数: 6,539**

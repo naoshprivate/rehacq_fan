@@ -1,4 +1,4 @@
-# [【石丸新党・記者会見】文春記事への回答は？新党候補者の応募状況は？【ReHacQ】](https://www.youtube.com/watch?v=6ahRaMRG95U)
+### [【石丸新党・記者会見】文春記事への回答は？新党候補者の応募状況は？【ReHacQ】](https://www.youtube.com/watch?v=6ahRaMRG95U)
 -   公開日: 2025-02-06
 -   視聴数: 399,412
 -   **いいね数: 11,424**

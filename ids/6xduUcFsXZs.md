@@ -1,4 +1,4 @@
-# [【高橋弘樹vsフジテレビ大株主】清水社長と会談…株主総会どうする？レオス藤野英人氏が激白【ReHacQ】](https://www.youtube.com/watch?v=6xduUcFsXZs)
+### [【高橋弘樹vsフジテレビ大株主】清水社長と会談…株主総会どうする？レオス藤野英人氏が激白【ReHacQ】](https://www.youtube.com/watch?v=6xduUcFsXZs)
 -   公開日: 2025-06-04
 -   視聴数: 130,039
 -   **いいね数: 1,149**

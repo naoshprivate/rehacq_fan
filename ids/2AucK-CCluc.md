@@ -1,4 +1,4 @@
-# [リハックマ完成披露会](https://www.youtube.com/watch?v=2AucK-CCluc)
+### [リハックマ完成披露会](https://www.youtube.com/watch?v=2AucK-CCluc)
 -   公開日: 2023-09-01
 -   視聴数: 62,842
 -   **いいね数: 2,640**

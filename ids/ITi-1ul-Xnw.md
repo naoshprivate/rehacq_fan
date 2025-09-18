@@ -1,4 +1,4 @@
-# [【足立康史vs宇佐美典也】維新をめぐり大論争！なぜ激怒？徹底議論【ReHacQ】](https://www.youtube.com/watch?v=ITi-1ul-Xnw)
+### [【足立康史vs宇佐美典也】維新をめぐり大論争！なぜ激怒？徹底議論【ReHacQ】](https://www.youtube.com/watch?v=ITi-1ul-Xnw)
 -   公開日: 2024-10-21
 -   視聴数: 240,920
 -   **いいね数: 2,116**

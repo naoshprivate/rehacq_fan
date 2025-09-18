@@ -1,4 +1,4 @@
-# [【後藤達也がAI時代分析】チャエンが分析！AIを解像度高く攻略せよ！【ReHacQ SP】](https://www.youtube.com/watch?v=3V-_AAG1eKk)
+### [【後藤達也がAI時代分析】チャエンが分析！AIを解像度高く攻略せよ！【ReHacQ SP】](https://www.youtube.com/watch?v=3V-_AAG1eKk)
 -   公開日: 2024-08-22
 -   視聴数: 90,658
 -   **いいね数: 1,398**

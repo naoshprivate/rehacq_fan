@@ -1,4 +1,4 @@
-# [【シン•起業塾】ビジネスパーソンに読書は必要?【斎藤祐馬】](https://www.youtube.com/watch?v=cGa2IFMwQHc)
+### [【シン•起業塾】ビジネスパーソンに読書は必要?【斎藤祐馬】](https://www.youtube.com/watch?v=cGa2IFMwQHc)
 -   公開日: 2024-07-16
 -   視聴数: 42,539
 -   **いいね数: 599**

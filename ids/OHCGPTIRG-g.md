@@ -1,4 +1,4 @@
-# [【東大教授vs陰謀論MAX高橋】温暖化で大惨事？地球をPC内に作れ！天才達の戦い【ReHacQ】](https://www.youtube.com/watch?v=OHCGPTIRG-g)
+### [【東大教授vs陰謀論MAX高橋】温暖化で大惨事？地球をPC内に作れ！天才達の戦い【ReHacQ】](https://www.youtube.com/watch?v=OHCGPTIRG-g)
 -   公開日: 2025-05-16
 -   視聴数: 229,551
 -   **いいね数: 2,630**

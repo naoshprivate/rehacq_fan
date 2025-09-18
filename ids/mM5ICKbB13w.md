@@ -1,4 +1,4 @@
-# [【スーツvs羽田圭介】鹿を見ながら露天風呂！？&芥川賞作家絶賛の鹿カレー【ReHacQ旅北海道➂】](https://www.youtube.com/watch?v=mM5ICKbB13w)
+### [【スーツvs羽田圭介】鹿を見ながら露天風呂！？&芥川賞作家絶賛の鹿カレー【ReHacQ旅北海道➂】](https://www.youtube.com/watch?v=mM5ICKbB13w)
 -   公開日: 2025-09-14
 -   視聴数: 33,586
 -   **いいね数: 625**

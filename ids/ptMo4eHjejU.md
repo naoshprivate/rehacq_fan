@@ -1,4 +1,4 @@
-# [【ひろゆきvs後藤達也】秘境！奥群馬を探検…93歳とコタツで激論【山本一太】](https://www.youtube.com/watch?v=ptMo4eHjejU)
+### [【ひろゆきvs後藤達也】秘境！奥群馬を探検…93歳とコタツで激論【山本一太】](https://www.youtube.com/watch?v=ptMo4eHjejU)
 -   公開日: 2024-03-01
 -   視聴数: 213,819
 -   **いいね数: 3,137**

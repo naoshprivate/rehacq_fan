@@ -1,4 +1,4 @@
-# [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](https://www.youtube.com/watch?v=Lcj1tooXlSk)
+### [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](https://www.youtube.com/watch?v=Lcj1tooXlSk)
 -   公開日: 2025-02-18
 -   視聴数: 923,085
 -   **いいね数: 17,005**

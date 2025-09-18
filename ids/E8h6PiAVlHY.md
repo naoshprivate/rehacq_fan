@@ -1,4 +1,4 @@
-# [【高橋弘樹vsチームラボの哲学】猪子寿之の考える「美」の根源【スザンヌ】](https://www.youtube.com/watch?v=E8h6PiAVlHY)
+### [【高橋弘樹vsチームラボの哲学】猪子寿之の考える「美」の根源【スザンヌ】](https://www.youtube.com/watch?v=E8h6PiAVlHY)
 -   公開日: 2024-04-17
 -   視聴数: 42,406
 -   **いいね数: 657**

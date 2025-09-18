@@ -1,4 +1,4 @@
-# [【宮崎駿と高畑勲】芸術家の本音とコンプレックスとは？【村上隆vs斎藤幸平】](https://www.youtube.com/watch?v=bfrw_JzT_Lg)
+### [【宮崎駿と高畑勲】芸術家の本音とコンプレックスとは？【村上隆vs斎藤幸平】](https://www.youtube.com/watch?v=bfrw_JzT_Lg)
 -   公開日: 2024-08-26
 -   視聴数: 338,057
 -   **いいね数: 7,498**

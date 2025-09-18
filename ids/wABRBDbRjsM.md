@@ -1,4 +1,4 @@
-# [【ひろゆきvs後藤達也】ガチ大炎上…ひろゆき語る「諦めと人生」](https://www.youtube.com/watch?v=wABRBDbRjsM)
+### [【ひろゆきvs後藤達也】ガチ大炎上…ひろゆき語る「諦めと人生」](https://www.youtube.com/watch?v=wABRBDbRjsM)
 -   公開日: 2024-03-17
 -   視聴数: 210,015
 -   **いいね数: 2,613**

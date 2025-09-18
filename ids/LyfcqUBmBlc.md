@@ -1,4 +1,4 @@
-# [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
+### [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](https://www.youtube.com/watch?v=LyfcqUBmBlc)
 -   公開日: 2024-06-15
 -   視聴数: 1,232,283
 -   **いいね数: 15,911**

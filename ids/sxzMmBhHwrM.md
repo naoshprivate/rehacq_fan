@@ -1,4 +1,4 @@
-# [【ReHacQ vs 読書のプロ】なぜ読書が大切？社会人が読むべき本【斎藤祐馬】](https://www.youtube.com/watch?v=sxzMmBhHwrM)
+### [【ReHacQ vs 読書のプロ】なぜ読書が大切？社会人が読むべき本【斎藤祐馬】](https://www.youtube.com/watch?v=sxzMmBhHwrM)
 -   公開日: 2024-07-23
 -   視聴数: 41,821
 -   **いいね数: 579**

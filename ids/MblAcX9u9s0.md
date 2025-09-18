@@ -1,4 +1,4 @@
-# [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](https://www.youtube.com/watch?v=MblAcX9u9s0)
+### [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](https://www.youtube.com/watch?v=MblAcX9u9s0)
 -   公開日: 2024-02-29
 -   視聴数: 81,664
 -   **いいね数: 1,297**

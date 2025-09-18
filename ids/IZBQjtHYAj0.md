@@ -1,4 +1,4 @@
-# [【スイーツ業界に革命】リアル店舗とECサイトを繋ぐ経営戦略とは？【ライバルなし】](https://www.youtube.com/watch?v=IZBQjtHYAj0)
+### [【スイーツ業界に革命】リアル店舗とECサイトを繋ぐ経営戦略とは？【ライバルなし】](https://www.youtube.com/watch?v=IZBQjtHYAj0)
 -   公開日: 2024-01-29
 -   視聴数: 18,904
 -   **いいね数: 254**

@@ -1,4 +1,4 @@
-# [【ひろゆきvs能登の職人】復興の現実…行政への想い…ReHacQ旅④【石丸伸二vs後藤達也】](https://www.youtube.com/watch?v=_vOWo2VNv1w)
+### [【ひろゆきvs能登の職人】復興の現実…行政への想い…ReHacQ旅④【石丸伸二vs後藤達也】](https://www.youtube.com/watch?v=_vOWo2VNv1w)
 -   公開日: 2025-08-24
 -   視聴数: 215,399
 -   **いいね数: 7,396**

@@ -1,4 +1,4 @@
-# [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=2DZQwsjuZJE)
+### [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=2DZQwsjuZJE)
 -   公開日: 2025-09-17
 -   視聴数: 109,821
 -   **いいね数: 1,566**

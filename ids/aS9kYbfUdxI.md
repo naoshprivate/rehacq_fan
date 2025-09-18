@@ -1,4 +1,4 @@
-# [【ひろゆきvs川上量生】歴史は消える！闇に消えたIT秘史【ニコ動の奇跡】](https://www.youtube.com/watch?v=aS9kYbfUdxI)
+### [【ひろゆきvs川上量生】歴史は消える！闇に消えたIT秘史【ニコ動の奇跡】](https://www.youtube.com/watch?v=aS9kYbfUdxI)
 -   公開日: 2023-04-11
 -   視聴数: 613,559
 -   **いいね数: 7,548**

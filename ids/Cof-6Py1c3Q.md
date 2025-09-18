@@ -1,4 +1,4 @@
-# [【NISAに影響は？】ChatGPTの危機？それとも？エヌビディア株への影響は？【アメリカVS中国】](https://www.youtube.com/watch?v=Cof-6Py1c3Q)
+### [【NISAに影響は？】ChatGPTの危機？それとも？エヌビディア株への影響は？【アメリカVS中国】](https://www.youtube.com/watch?v=Cof-6Py1c3Q)
 -   公開日: 2025-01-31
 -   視聴数: 190,884
 -   **いいね数: 2,770**

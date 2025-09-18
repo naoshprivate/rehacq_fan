@@ -1,4 +1,4 @@
-# [【ひろゆきvs奈良県知事】なぜK-POP？知事と議会対立のワケ【vs西田亮介】](https://www.youtube.com/watch?v=kpMDWtMEtDU)
+### [【ひろゆきvs奈良県知事】なぜK-POP？知事と議会対立のワケ【vs西田亮介】](https://www.youtube.com/watch?v=kpMDWtMEtDU)
 -   公開日: 2024-12-22
 -   視聴数: 255,648
 -   **いいね数: 3,474**

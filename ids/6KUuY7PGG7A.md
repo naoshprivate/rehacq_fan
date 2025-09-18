@@ -1,4 +1,4 @@
-# [【ひろゆきvs若新雄純】学べるReHacQ旅in富山！ついに最終回【NewsPicks間に合うか？】](https://www.youtube.com/watch?v=6KUuY7PGG7A)
+### [【ひろゆきvs若新雄純】学べるReHacQ旅in富山！ついに最終回【NewsPicks間に合うか？】](https://www.youtube.com/watch?v=6KUuY7PGG7A)
 -   公開日: 2023-08-12
 -   視聴数: 183,072
 -   **いいね数: 3,056**

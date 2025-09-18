@@ -1,4 +1,4 @@
-# [【ひろゆきvs立憲民主党】石丸伸二をどう分析？都知事選の責任者が激白【泉房穂vs大串博志】](https://www.youtube.com/watch?v=aH2KwXtn3kk)
+### [【ひろゆきvs立憲民主党】石丸伸二をどう分析？都知事選の責任者が激白【泉房穂vs大串博志】](https://www.youtube.com/watch?v=aH2KwXtn3kk)
 -   公開日: 2024-07-20
 -   視聴数: 405,988
 -   **いいね数: 3,280**

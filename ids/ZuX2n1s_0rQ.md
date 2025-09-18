@@ -1,4 +1,4 @@
-# [【ひろゆきvs加納裕三】Web3で騙されないために【ブロックチェーンとは？】](https://www.youtube.com/watch?v=ZuX2n1s_0rQ)
+### [【ひろゆきvs加納裕三】Web3で騙されないために【ブロックチェーンとは？】](https://www.youtube.com/watch?v=ZuX2n1s_0rQ)
 -   公開日: 2023-08-18
 -   視聴数: 405,429
 -   **いいね数: 3,924**

@@ -1,4 +1,4 @@
-# [【スーツの足利旅】生まれ故郷で聞く…茂木敏充の野望【35年前、なぜ立候補？】](https://www.youtube.com/watch?v=XlxNeGDHteA)
+### [【スーツの足利旅】生まれ故郷で聞く…茂木敏充の野望【35年前、なぜ立候補？】](https://www.youtube.com/watch?v=XlxNeGDHteA)
 -   公開日: 2024-08-25
 -   視聴数: 122,725
 -   **いいね数: 2,272**

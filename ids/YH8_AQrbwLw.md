@@ -1,4 +1,4 @@
-# [【後藤達也vs元内閣官房参与】消費増税で景気どうなる？日本経済を名目GDPで測るワケは？財政政策について徹底討論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=YH8_AQrbwLw)
+### [【後藤達也vs元内閣官房参与】消費増税で景気どうなる？日本経済を名目GDPで測るワケは？財政政策について徹底討論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=YH8_AQrbwLw)
 -   公開日: 2025-06-19
 -   視聴数: 306,782
 -   **いいね数: 4,413**

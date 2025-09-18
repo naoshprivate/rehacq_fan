@@ -1,4 +1,4 @@
-# [【安野貴博が緊急会見】「政治と金」…終わらせる！革命的アプリ発表【ReHacQ】](https://www.youtube.com/watch?v=GLGqkxRO4A0)
+### [【安野貴博が緊急会見】「政治と金」…終わらせる！革命的アプリ発表【ReHacQ】](https://www.youtube.com/watch?v=GLGqkxRO4A0)
 -   公開日: 2025-01-16
 -   視聴数: 301,002
 -   **いいね数: 8,120**

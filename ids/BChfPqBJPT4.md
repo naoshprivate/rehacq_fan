@@ -1,4 +1,4 @@
-# [【後藤達也vsマネックスCEO】日本経済の潜在力とは！？【東大に10億寄付の訳】](https://www.youtube.com/watch?v=BChfPqBJPT4)
+### [【後藤達也vsマネックスCEO】日本経済の潜在力とは！？【東大に10億寄付の訳】](https://www.youtube.com/watch?v=BChfPqBJPT4)
 -   公開日: 2023-08-24
 -   視聴数: 394,035
 -   **いいね数: 4,742**

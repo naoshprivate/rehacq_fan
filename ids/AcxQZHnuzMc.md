@@ -1,4 +1,4 @@
-# [【国民民主党&維新&日本保守党】初当選！国会で何やるんですか？【山田吉彦&新実彰平&北村晴男&ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=AcxQZHnuzMc)
+### [【国民民主党&維新&日本保守党】初当選！国会で何やるんですか？【山田吉彦&新実彰平&北村晴男&ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=AcxQZHnuzMc)
 -   公開日: 2025-08-02
 -   視聴数: 496,365
 -   **いいね数: 10,831**

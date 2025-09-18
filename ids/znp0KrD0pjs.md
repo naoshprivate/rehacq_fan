@@ -1,4 +1,4 @@
-# [【ひろゆきvs成田修造】東京の小京都!?北区は本当にすみやすい？【赤羽vs西ヶ原】](https://www.youtube.com/watch?v=znp0KrD0pjs)
+### [【ひろゆきvs成田修造】東京の小京都!?北区は本当にすみやすい？【赤羽vs西ヶ原】](https://www.youtube.com/watch?v=znp0KrD0pjs)
 -   公開日: 2024-03-12
 -   視聴数: 109,274
 -   **いいね数: 1,209**

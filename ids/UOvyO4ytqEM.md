@@ -1,4 +1,4 @@
-# [【後藤達也vs賃上げ】春闘が激アツ！2024、絶対給料上げるには!?【ReHacQ】](https://www.youtube.com/watch?v=UOvyO4ytqEM)
+### [【後藤達也vs賃上げ】春闘が激アツ！2024、絶対給料上げるには!?【ReHacQ】](https://www.youtube.com/watch?v=UOvyO4ytqEM)
 -   公開日: 2024-03-26
 -   視聴数: 153,293
 -   **いいね数: 1,624**

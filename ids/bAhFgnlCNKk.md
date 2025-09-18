@@ -1,4 +1,4 @@
-# [【高橋弘樹vs英会話スクール】ズタズタ英語を克服できるのか？【ビジネス英語の攻略法とは】](https://www.youtube.com/watch?v=bAhFgnlCNKk)
+### [【高橋弘樹vs英会話スクール】ズタズタ英語を克服できるのか？【ビジネス英語の攻略法とは】](https://www.youtube.com/watch?v=bAhFgnlCNKk)
 -   公開日: 2024-01-16
 -   視聴数: 37,618
 -   **いいね数: 593**

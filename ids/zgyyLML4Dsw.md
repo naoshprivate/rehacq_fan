@@ -1,4 +1,4 @@
-# [【ReHacQvsインド女性起業家】人生激変！常識覆すインドの教え【日本の生きづらさ】](https://www.youtube.com/watch?v=zgyyLML4Dsw)
+### [【ReHacQvsインド女性起業家】人生激変！常識覆すインドの教え【日本の生きづらさ】](https://www.youtube.com/watch?v=zgyyLML4Dsw)
 -   公開日: 2024-04-08
 -   視聴数: 31,165
 -   **いいね数: 421**

@@ -1,4 +1,4 @@
-# [【斎藤幸平vs村上隆】なぜ批判？資本主義とアート！徹底議論【深すぎるアートの世界】](https://www.youtube.com/watch?v=I8lBaOxBwNY)
+### [【斎藤幸平vs村上隆】なぜ批判？資本主義とアート！徹底議論【深すぎるアートの世界】](https://www.youtube.com/watch?v=I8lBaOxBwNY)
 -   公開日: 2024-08-25
 -   視聴数: 533,933
 -   **いいね数: 10,052**

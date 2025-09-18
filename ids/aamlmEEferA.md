@@ -1,4 +1,4 @@
-# [【世界トップAI研究者】アメリカ天才学者が提言！人工知能が進化した先に待つ未来とは](https://www.youtube.com/watch?v=aamlmEEferA)
+### [【世界トップAI研究者】アメリカ天才学者が提言！人工知能が進化した先に待つ未来とは](https://www.youtube.com/watch?v=aamlmEEferA)
 -   公開日: 2023-12-19
 -   視聴数: 69,896
 -   **いいね数: 1,026**

@@ -1,4 +1,4 @@
-# [【斎藤祐馬vs高橋弘樹】採用面接の裏側！赤裸々解説【ビジネスパーソン必見】](https://www.youtube.com/watch?v=tGNtZPc-SSU)
+### [【斎藤祐馬vs高橋弘樹】採用面接の裏側！赤裸々解説【ビジネスパーソン必見】](https://www.youtube.com/watch?v=tGNtZPc-SSU)
 -   公開日: 2023-04-26
 -   視聴数: 91,570
 -   **いいね数: 1,807**

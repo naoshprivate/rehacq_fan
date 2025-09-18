@@ -1,4 +1,4 @@
-# [【ピクサーvsスクウェア】ピクサーが恐れた日本アニメなぜ失敗した？【ReHacQヒストリー】](https://www.youtube.com/watch?v=e8t-BtBUcbE)
+### [【ピクサーvsスクウェア】ピクサーが恐れた日本アニメなぜ失敗した？【ReHacQヒストリー】](https://www.youtube.com/watch?v=e8t-BtBUcbE)
 -   公開日: 2025-01-14
 -   視聴数: 64,551
 -   **いいね数: 922**

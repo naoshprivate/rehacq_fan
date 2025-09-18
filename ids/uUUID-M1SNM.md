@@ -1,4 +1,4 @@
-# [【立花孝志vs多田ひとみ】あつまれ！落選の森...兵庫選挙区【参院選2025】](https://www.youtube.com/watch?v=uUUID-M1SNM)
+### [【立花孝志vs多田ひとみ】あつまれ！落選の森...兵庫選挙区【参院選2025】](https://www.youtube.com/watch?v=uUUID-M1SNM)
 -   公開日: 2025-07-30
 -   視聴数: 572,691
 -   **いいね数: 9,580**

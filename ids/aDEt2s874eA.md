@@ -1,4 +1,4 @@
-# [【「石破総理へ…」本音激白】脱昭和が鍵！令和の「列島改造論」KPIを修正すべき？【ReHacQ…森本智子】](https://www.youtube.com/watch?v=aDEt2s874eA)
+### [【「石破総理へ…」本音激白】脱昭和が鍵！令和の「列島改造論」KPIを修正すべき？【ReHacQ…森本智子】](https://www.youtube.com/watch?v=aDEt2s874eA)
 -   公開日: 2025-02-17
 -   視聴数: 64,630
 -   **いいね数: 820**

@@ -1,4 +1,4 @@
-# [【米山隆一vs宇佐美典也】緊急ガチ議論！引退前の因縁とは？【ReHacQ SP】](https://www.youtube.com/watch?v=xfWFw8LpOBk)
+### [【米山隆一vs宇佐美典也】緊急ガチ議論！引退前の因縁とは？【ReHacQ SP】](https://www.youtube.com/watch?v=xfWFw8LpOBk)
 -   公開日: 2024-06-19
 -   視聴数: 513,399
 -   **いいね数: 4,423**

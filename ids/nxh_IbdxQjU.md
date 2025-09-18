@@ -1,4 +1,4 @@
-# [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](https://www.youtube.com/watch?v=nxh_IbdxQjU)
+### [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](https://www.youtube.com/watch?v=nxh_IbdxQjU)
 -   公開日: 2024-01-13
 -   視聴数: 56,982
 -   **いいね数: 721**

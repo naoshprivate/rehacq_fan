@@ -1,4 +1,4 @@
-# [【河野太郎vsReHacQ】「ガザ問題、イスラエルは…」赤裸々な本音激白！濃密すぎる政策議論60分【高橋弘樹】](https://www.youtube.com/watch?v=3AgnRmQKhg4)
+### [【河野太郎vsReHacQ】「ガザ問題、イスラエルは…」赤裸々な本音激白！濃密すぎる政策議論60分【高橋弘樹】](https://www.youtube.com/watch?v=3AgnRmQKhg4)
 -   公開日: 2024-09-12
 -   視聴数: 117,741
 -   **いいね数: 1,592**

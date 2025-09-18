@@ -1,4 +1,4 @@
-# [【川上量生vs 野村泰紀】おじさん3人！仙台旅【斎藤幸平】](https://www.youtube.com/watch?v=aWIbpn0pXLM)
+### [【川上量生vs 野村泰紀】おじさん3人！仙台旅【斎藤幸平】](https://www.youtube.com/watch?v=aWIbpn0pXLM)
 -   公開日: 2023-12-30
 -   視聴数: 57,163
 -   **いいね数: 1,105**

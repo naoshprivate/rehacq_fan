@@ -1,4 +1,4 @@
-# [【東京大学vs ReHacQ】社会不適合ですが何か？生きづらさの哲学【ひろゆきもびっくり】](https://www.youtube.com/watch?v=h2CY1Pdni1k)
+### [【東京大学vs ReHacQ】社会不適合ですが何か？生きづらさの哲学【ひろゆきもびっくり】](https://www.youtube.com/watch?v=h2CY1Pdni1k)
 -   公開日: 2024-01-30
 -   視聴数: 270,647
 -   **いいね数: 3,924**

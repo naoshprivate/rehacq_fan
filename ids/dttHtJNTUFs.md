@@ -1,4 +1,4 @@
-# [【高橋弘樹vs天才起業家】横浜で古代エジプト旅行！ベンチャーVS大企業【斎藤祐馬】](https://www.youtube.com/watch?v=dttHtJNTUFs)
+### [【高橋弘樹vs天才起業家】横浜で古代エジプト旅行！ベンチャーVS大企業【斎藤祐馬】](https://www.youtube.com/watch?v=dttHtJNTUFs)
 -   公開日: 2025-03-17
 -   視聴数: 24,958
 -   **いいね数: 412**

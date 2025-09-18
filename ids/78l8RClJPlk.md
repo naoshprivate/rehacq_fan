@@ -1,4 +1,4 @@
-# [【石丸伸二vs東出昌大】緊急代打！焼肉悩み相談室【藤井サチ】](https://www.youtube.com/watch?v=78l8RClJPlk)
+### [【石丸伸二vs東出昌大】緊急代打！焼肉悩み相談室【藤井サチ】](https://www.youtube.com/watch?v=78l8RClJPlk)
 -   公開日: 2024-09-01
 -   視聴数: 467,244
 -   **いいね数: 8,464**

@@ -1,4 +1,4 @@
-# [【テスタVS節約オタクふゆこ】株暴落でも稼げる投資法は？個別株/インデックス/デイトレ/S&P500【ReHacQ】](https://www.youtube.com/watch?v=3PqNec5oTDk)
+### [【テスタVS節約オタクふゆこ】株暴落でも稼げる投資法は？個別株/インデックス/デイトレ/S&P500【ReHacQ】](https://www.youtube.com/watch?v=3PqNec5oTDk)
 -   公開日: 2025-05-03
 -   視聴数: 486,622
 -   **いいね数: 5,263**

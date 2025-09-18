@@ -1,4 +1,4 @@
-# [【高橋弘樹vs辞めTBS】news23のエース記者が衝撃退社…なぜ？須賀川拓が衝撃告白【ReHacQ】](https://www.youtube.com/watch?v=4CGY4E6aLXw)
+### [【高橋弘樹vs辞めTBS】news23のエース記者が衝撃退社…なぜ？須賀川拓が衝撃告白【ReHacQ】](https://www.youtube.com/watch?v=4CGY4E6aLXw)
 -   公開日: 2025-06-24
 -   視聴数: 473,256
 -   **いいね数: 6,743**

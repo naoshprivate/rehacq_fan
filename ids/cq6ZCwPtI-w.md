@@ -1,4 +1,4 @@
-# [【謎のITベンチャー王】17LIVE…ジモティー投資し育てた男が激白！【日本IT復活の鍵】](https://www.youtube.com/watch?v=cq6ZCwPtI-w)
+### [【謎のITベンチャー王】17LIVE…ジモティー投資し育てた男が激白！【日本IT復活の鍵】](https://www.youtube.com/watch?v=cq6ZCwPtI-w)
 -   公開日: 2023-06-12
 -   視聴数: 58,393
 -   **いいね数: 853**

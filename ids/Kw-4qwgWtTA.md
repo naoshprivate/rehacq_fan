@@ -1,4 +1,4 @@
-# [【高橋弘樹vs川崎重工】兵庫県で大激震！2035年に経済激変させる…水素社会とは？【ReHacQ】](https://www.youtube.com/watch?v=Kw-4qwgWtTA)
+### [【高橋弘樹vs川崎重工】兵庫県で大激震！2035年に経済激変させる…水素社会とは？【ReHacQ】](https://www.youtube.com/watch?v=Kw-4qwgWtTA)
 -   公開日: 2025-03-29
 -   視聴数: 471,428
 -   **いいね数: 5,419**

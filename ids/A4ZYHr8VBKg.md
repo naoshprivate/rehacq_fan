@@ -1,4 +1,4 @@
-# [【日経平均急落】トランプ関税と世界同時株安...日本経済の最新見通しは？NISAどうする？【ReHacQエコノミスト緊急生配信】](https://www.youtube.com/watch?v=A4ZYHr8VBKg)
+### [【日経平均急落】トランプ関税と世界同時株安...日本経済の最新見通しは？NISAどうする？【ReHacQエコノミスト緊急生配信】](https://www.youtube.com/watch?v=A4ZYHr8VBKg)
 -   公開日: 2025-04-07
 -   視聴数: 254,421
 -   **いいね数: 2,811**

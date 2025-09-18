@@ -1,4 +1,4 @@
-# [【石丸伸二vs房総半島】千葉の秘境！外房を探検【ReHacQ旅】](https://www.youtube.com/watch?v=41xZeoUCeOE)
+### [【石丸伸二vs房総半島】千葉の秘境！外房を探検【ReHacQ旅】](https://www.youtube.com/watch?v=41xZeoUCeOE)
 -   公開日: 2024-11-04
 -   視聴数: 361,039
 -   **いいね数: 7,945**

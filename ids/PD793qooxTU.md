@@ -1,4 +1,4 @@
-# [【GAFA無視せよ】日本のイノベーション戦略とは？【インドで戦え】](https://www.youtube.com/watch?v=PD793qooxTU)
+### [【GAFA無視せよ】日本のイノベーション戦略とは？【インドで戦え】](https://www.youtube.com/watch?v=PD793qooxTU)
 -   公開日: 2024-04-30
 -   視聴数: 42,548
 -   **いいね数: 716**

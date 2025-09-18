@@ -1,4 +1,4 @@
-# [【ひろゆきvs高橋弘樹】AI社会で激変？…しない？仕事と未来…冷静に考える【ReHacQ】](https://www.youtube.com/watch?v=TWQcNiFC7uo)
+### [【ひろゆきvs高橋弘樹】AI社会で激変？…しない？仕事と未来…冷静に考える【ReHacQ】](https://www.youtube.com/watch?v=TWQcNiFC7uo)
 -   公開日: 2025-06-06
 -   視聴数: 188,710
 -   **いいね数: 1,964**

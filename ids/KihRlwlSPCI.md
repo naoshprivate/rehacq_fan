@@ -1,4 +1,4 @@
-# [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](https://www.youtube.com/watch?v=KihRlwlSPCI)
+### [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](https://www.youtube.com/watch?v=KihRlwlSPCI)
 -   公開日: 2025-07-12
 -   視聴数: 609,357
 -   **いいね数: 18,607**

@@ -1,4 +1,4 @@
-# [【トランプ関税交渉どうなる？】国内株、物価高…いま日本がとるべき対応は？【野沢春日vsReHacQ】](https://www.youtube.com/watch?v=yPvqvpvKOS0)
+### [【トランプ関税交渉どうなる？】国内株、物価高…いま日本がとるべき対応は？【野沢春日vsReHacQ】](https://www.youtube.com/watch?v=yPvqvpvKOS0)
 -   公開日: 2025-04-12
 -   視聴数: 61,543
 -   **いいね数: 585**

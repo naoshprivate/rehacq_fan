@@ -1,4 +1,4 @@
-# [【石丸伸二vsドバイ③】砂漠で何を思う…？衝撃のラスト【ReHacQ旅】](https://www.youtube.com/watch?v=fk-rs7gdaxM)
+### [【石丸伸二vsドバイ③】砂漠で何を思う…？衝撃のラスト【ReHacQ旅】](https://www.youtube.com/watch?v=fk-rs7gdaxM)
 -   公開日: 2025-03-17
 -   視聴数: 169,950
 -   **いいね数: 4,769**

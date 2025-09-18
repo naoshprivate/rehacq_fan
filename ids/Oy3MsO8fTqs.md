@@ -1,4 +1,4 @@
-# [【高橋弘樹vs元小池都知事の片腕】細野豪志激白…蓮舫と小池百合子とは？](https://www.youtube.com/watch?v=Oy3MsO8fTqs)
+### [【高橋弘樹vs元小池都知事の片腕】細野豪志激白…蓮舫と小池百合子とは？](https://www.youtube.com/watch?v=Oy3MsO8fTqs)
 -   公開日: 2024-06-12
 -   視聴数: 178,195
 -   **いいね数: 1,769**

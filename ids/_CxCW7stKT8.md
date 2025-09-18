@@ -1,4 +1,4 @@
-# [【小泉進次郎vs高橋弘樹】緊急参戦！話さねばならない事がある…生物部の本気【ReHacQ】](https://www.youtube.com/watch?v=_CxCW7stKT8)
+### [【小泉進次郎vs高橋弘樹】緊急参戦！話さねばならない事がある…生物部の本気【ReHacQ】](https://www.youtube.com/watch?v=_CxCW7stKT8)
 -   公開日: 2025-05-17
 -   視聴数: 351,358
 -   **いいね数: 4,912**

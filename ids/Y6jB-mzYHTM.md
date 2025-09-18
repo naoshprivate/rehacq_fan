@@ -1,4 +1,4 @@
-# [【参院選直前2025】どこ投票する？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=Y6jB-mzYHTM)
+### [【参院選直前2025】どこ投票する？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=Y6jB-mzYHTM)
 -   公開日: 2025-07-19
 -   視聴数: 367,525
 -   **いいね数: 5,728**

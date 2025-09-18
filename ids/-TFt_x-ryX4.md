@@ -1,4 +1,4 @@
-# [【ネクストNetflix？】借金＆未入金...壮絶過去からの復活劇【ショートドラマの未来】](https://www.youtube.com/watch?v=-TFt_x-ryX4)
+### [【ネクストNetflix？】借金＆未入金...壮絶過去からの復活劇【ショートドラマの未来】](https://www.youtube.com/watch?v=-TFt_x-ryX4)
 -   公開日: 2023-08-28
 -   視聴数: 31,532
 -   **いいね数: 453**

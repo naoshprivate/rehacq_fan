@@ -1,4 +1,4 @@
-# [【ANAとビジネスするには？】巨大企業の「新事業」に注目！【逆境からの挑戦】](https://www.youtube.com/watch?v=uNBw5XoDn7o)
+### [【ANAとビジネスするには？】巨大企業の「新事業」に注目！【逆境からの挑戦】](https://www.youtube.com/watch?v=uNBw5XoDn7o)
 -   公開日: 2023-09-18
 -   視聴数: 56,772
 -   **いいね数: 896**

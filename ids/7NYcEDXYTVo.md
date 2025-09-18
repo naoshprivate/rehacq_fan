@@ -1,4 +1,4 @@
-# [【アフタートーク】東京都知事選2024！ラストボイス②【安野たかひろ】](https://www.youtube.com/watch?v=7NYcEDXYTVo)
+### [【アフタートーク】東京都知事選2024！ラストボイス②【安野たかひろ】](https://www.youtube.com/watch?v=7NYcEDXYTVo)
 -   公開日: 2024-07-04
 -   視聴数: 21,034
 -   **いいね数: 324**

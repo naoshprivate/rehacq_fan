@@ -1,4 +1,4 @@
-# [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
+### [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](https://www.youtube.com/watch?v=iDPwEX2A73Y)
 -   公開日: 2024-07-18
 -   視聴数: 1,802,976
 -   **いいね数: 28,086**

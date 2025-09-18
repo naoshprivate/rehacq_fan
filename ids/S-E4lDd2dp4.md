@@ -1,4 +1,4 @@
-# [【ReHacQ vs 元野村総研】大企業を辞め...女一人社長のリアルな悩みとは【赤裸々告白】](https://www.youtube.com/watch?v=S-E4lDd2dp4)
+### [【ReHacQ vs 元野村総研】大企業を辞め...女一人社長のリアルな悩みとは【赤裸々告白】](https://www.youtube.com/watch?v=S-E4lDd2dp4)
 -   公開日: 2024-07-26
 -   視聴数: 130,618
 -   **いいね数: 1,747**

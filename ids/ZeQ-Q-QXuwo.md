@@ -1,4 +1,4 @@
-# [【生配信】赤裸々キャリア雑談会【成田修造】](https://www.youtube.com/watch?v=ZeQ-Q-QXuwo)
+### [【生配信】赤裸々キャリア雑談会【成田修造】](https://www.youtube.com/watch?v=ZeQ-Q-QXuwo)
 -   公開日: 2023-07-01
 -   視聴数: 148,574
 -   **いいね数: 2,547**

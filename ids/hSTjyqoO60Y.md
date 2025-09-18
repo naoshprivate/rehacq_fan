@@ -1,4 +1,4 @@
-# [【石丸伸二】選挙運動費用収支報告書について【緊急生配信】](https://www.youtube.com/watch?v=hSTjyqoO60Y)
+### [【石丸伸二】選挙運動費用収支報告書について【緊急生配信】](https://www.youtube.com/watch?v=hSTjyqoO60Y)
 -   公開日: 2025-02-21
 -   視聴数: 332,460
 -   **いいね数: 10,467**

@@ -1,4 +1,4 @@
-# [【石丸伸二vs野良猫】東京の離島！「伊豆の踊り子」舞台の漁港で…まさかの展開【ReHacQ旅】](https://www.youtube.com/watch?v=s1O55tMkpi4)
+### [【石丸伸二vs野良猫】東京の離島！「伊豆の踊り子」舞台の漁港で…まさかの展開【ReHacQ旅】](https://www.youtube.com/watch?v=s1O55tMkpi4)
 -   公開日: 2024-10-12
 -   視聴数: 266,561
 -   **いいね数: 8,661**

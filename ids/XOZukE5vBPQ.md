@@ -1,4 +1,4 @@
-# [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=XOZukE5vBPQ)
+### [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=XOZukE5vBPQ)
 -   公開日: 2025-03-20
 -   視聴数: 71,102
 -   **いいね数: 850**

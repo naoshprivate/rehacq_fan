@@ -1,4 +1,4 @@
-# [【箕輪厚介vs石戸諭】ベロベロ放談！不安だらけの活字界隈！心配だらけの映像界隈【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Cli7P-jTLF4)
+### [【箕輪厚介vs石戸諭】ベロベロ放談！不安だらけの活字界隈！心配だらけの映像界隈【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Cli7P-jTLF4)
 -   公開日: 2024-12-29
 -   視聴数: 104,222
 -   **いいね数: 1,252**

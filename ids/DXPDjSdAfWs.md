@@ -1,4 +1,4 @@
-# [【高橋弘樹vs辞め外交官】スパイはいる？壮絶！外交官の実態…なぜ辞めてまちづくり？【ReHacQ】](https://www.youtube.com/watch?v=DXPDjSdAfWs)
+### [【高橋弘樹vs辞め外交官】スパイはいる？壮絶！外交官の実態…なぜ辞めてまちづくり？【ReHacQ】](https://www.youtube.com/watch?v=DXPDjSdAfWs)
 -   公開日: 2025-05-04
 -   視聴数: 123,447
 -   **いいね数: 1,331**

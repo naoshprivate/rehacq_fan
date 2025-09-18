@@ -1,4 +1,4 @@
-# [【ReHacQ】筋トレ好き大阪府知事・吉村洋文…激白【なんで立候補したんですか？】](https://www.youtube.com/watch?v=034PTMH22AE)
+### [【ReHacQ】筋トレ好き大阪府知事・吉村洋文…激白【なんで立候補したんですか？】](https://www.youtube.com/watch?v=034PTMH22AE)
 -   公開日: 2023-04-02
 -   視聴数: 203,035
 -   **いいね数: 3,674**

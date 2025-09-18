@@ -1,4 +1,4 @@
-# [【石丸伸二vs藤井サチ】気まずい因縁ある2人で彦根旅【ReHacQ旅】](https://www.youtube.com/watch?v=f3kpjjROUGc)
+### [【石丸伸二vs藤井サチ】気まずい因縁ある2人で彦根旅【ReHacQ旅】](https://www.youtube.com/watch?v=f3kpjjROUGc)
 -   公開日: 2024-08-02
 -   視聴数: 635,840
 -   **いいね数: 16,150**

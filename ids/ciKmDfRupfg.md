@@ -1,4 +1,4 @@
-# [【田原総一朗vs横田一】91歳、田原総一朗が政治の矛盾を暴く！命を賭けた喧嘩とは？【箕輪厚介vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=ciKmDfRupfg)
+### [【田原総一朗vs横田一】91歳、田原総一朗が政治の矛盾を暴く！命を賭けた喧嘩とは？【箕輪厚介vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=ciKmDfRupfg)
 -   公開日: 2025-05-28
 -   視聴数: 328,414
 -   **いいね数: 4,772**

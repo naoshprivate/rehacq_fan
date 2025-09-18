@@ -1,4 +1,4 @@
-# [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
+### [【生配信】公明党・斉藤鉄夫代表 記者会見 9月12日（金）【ReHacQ】](https://www.youtube.com/watch?v=fV8NwgLDkrI)
 -   公開日: 2025-09-12
 -   視聴数: 12,579
 -   **いいね数: 331**

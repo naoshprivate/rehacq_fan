@@ -1,4 +1,4 @@
-# [【石丸伸二vs東出昌大】城下町・彦根！石田三成小早川秀秋を語る旅【ReHacQ旅】](https://www.youtube.com/watch?v=J3mfkqBhDaY)
+### [【石丸伸二vs東出昌大】城下町・彦根！石田三成小早川秀秋を語る旅【ReHacQ旅】](https://www.youtube.com/watch?v=J3mfkqBhDaY)
 -   公開日: 2024-09-08
 -   視聴数: 478,422
 -   **いいね数: 10,306**

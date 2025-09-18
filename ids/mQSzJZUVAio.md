@@ -1,4 +1,4 @@
-# [【成田悠輔vs泉房穂】市政で国の政治動かす！今、政治家に必要なものは？【mudai】](https://www.youtube.com/watch?v=mQSzJZUVAio)
+### [【成田悠輔vs泉房穂】市政で国の政治動かす！今、政治家に必要なものは？【mudai】](https://www.youtube.com/watch?v=mQSzJZUVAio)
 -   公開日: 2023-05-13
 -   視聴数: 714,126
 -   **いいね数: 11,943**

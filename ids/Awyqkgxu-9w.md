@@ -1,4 +1,4 @@
-# [【東出昌大vs斎藤幸平】天空の村！絶景の大根畑…農家民泊【高橋弘樹】](https://www.youtube.com/watch?v=Awyqkgxu-9w)
+### [【東出昌大vs斎藤幸平】天空の村！絶景の大根畑…農家民泊【高橋弘樹】](https://www.youtube.com/watch?v=Awyqkgxu-9w)
 -   公開日: 2024-05-04
 -   視聴数: 144,932
 -   **いいね数: 2,196**

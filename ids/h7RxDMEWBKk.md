@@ -1,4 +1,4 @@
-# [【ハーバード大学vsイェール大学】女性のキャリア排除と子育ての苦悩とは【内田舞vs塩田佳代子】](https://www.youtube.com/watch?v=h7RxDMEWBKk)
+### [【ハーバード大学vsイェール大学】女性のキャリア排除と子育ての苦悩とは【内田舞vs塩田佳代子】](https://www.youtube.com/watch?v=h7RxDMEWBKk)
 -   公開日: 2024-01-05
 -   視聴数: 70,074
 -   **いいね数: 1,373**

@@ -1,4 +1,4 @@
-# [【ReHacQvs丸紅】総合商社はインドで何してる？【インドの課題】](https://www.youtube.com/watch?v=OeYF6bRXACk)
+### [【ReHacQvs丸紅】総合商社はインドで何してる？【インドの課題】](https://www.youtube.com/watch?v=OeYF6bRXACk)
 -   公開日: 2024-04-01
 -   視聴数: 53,164
 -   **いいね数: 693**

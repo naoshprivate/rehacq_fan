@@ -1,4 +1,4 @@
-# [緊急対談　川上量生、立花孝志【ReHacQ SP】](https://www.youtube.com/watch?v=KPwDlYmzEIA)
+### [緊急対談　川上量生、立花孝志【ReHacQ SP】](https://www.youtube.com/watch?v=KPwDlYmzEIA)
 -   公開日: 2023-03-21
 -   視聴数: 2,692,293
 -   **いいね数: 37,362**

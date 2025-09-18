@@ -1,4 +1,4 @@
-# [【ひろゆきvs成田悠輔の弟】成田家の秘密…真の幸せって？【成田修造…壮絶過去】](https://www.youtube.com/watch?v=uqFFjJo3Lsk)
+### [【ひろゆきvs成田悠輔の弟】成田家の秘密…真の幸せって？【成田修造…壮絶過去】](https://www.youtube.com/watch?v=uqFFjJo3Lsk)
 -   公開日: 2023-08-02
 -   視聴数: 381,743
 -   **いいね数: 4,794**

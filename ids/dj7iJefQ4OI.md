@@ -1,4 +1,4 @@
-# [【ReHacQ】千葉市長・神谷俊一…市政への思い激白【なんで立候補したんですか？】](https://www.youtube.com/watch?v=dj7iJefQ4OI)
+### [【ReHacQ】千葉市長・神谷俊一…市政への思い激白【なんで立候補したんですか？】](https://www.youtube.com/watch?v=dj7iJefQ4OI)
 -   公開日: 2025-03-12
 -   視聴数: 50,146
 -   **いいね数: 988**

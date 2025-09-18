@@ -1,4 +1,4 @@
-# [【アフタートーク】東京都知事選2024！ラストボイス⑤【清水国明】](https://www.youtube.com/watch?v=5HpGgafTymQ)
+### [【アフタートーク】東京都知事選2024！ラストボイス⑤【清水国明】](https://www.youtube.com/watch?v=5HpGgafTymQ)
 -   公開日: 2024-07-06
 -   視聴数: 9,740
 -   **いいね数: 57**

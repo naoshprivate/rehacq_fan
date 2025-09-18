@@ -1,4 +1,4 @@
-# [【ABEMA超え1位に】位置情報アプリで革命！日本で一番人気のSNSを作った23歳起業家【新ファンタスティック未来】](https://www.youtube.com/watch?v=m8udFJgDjuM)
+### [【ABEMA超え1位に】位置情報アプリで革命！日本で一番人気のSNSを作った23歳起業家【新ファンタスティック未来】](https://www.youtube.com/watch?v=m8udFJgDjuM)
 -   公開日: 2023-05-08
 -   視聴数: 95,741
 -   **いいね数: 1,474**

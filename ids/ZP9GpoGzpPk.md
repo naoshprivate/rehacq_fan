@@ -1,4 +1,4 @@
-# [【高橋弘樹vsAI】社会課題はAIで解決出来る？AIビジネスで地方創生【ReHacQ】](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
+### [【高橋弘樹vsAI】社会課題はAIで解決出来る？AIビジネスで地方創生【ReHacQ】](https://www.youtube.com/watch?v=ZP9GpoGzpPk)
 -   公開日: 2025-09-06
 -   視聴数: 37,941
 -   **いいね数: 468**

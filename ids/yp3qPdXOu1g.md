@@ -1,4 +1,4 @@
-# [【TBSの左遷王子vs高橋弘樹】会社辞め、急に体調激変…まさかの事件【小沢一郎と鄧小平】](https://www.youtube.com/watch?v=yp3qPdXOu1g)
+### [【TBSの左遷王子vs高橋弘樹】会社辞め、急に体調激変…まさかの事件【小沢一郎と鄧小平】](https://www.youtube.com/watch?v=yp3qPdXOu1g)
 -   公開日: 2024-04-03
 -   視聴数: 241,493
 -   **いいね数: 3,584**

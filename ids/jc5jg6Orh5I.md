@@ -1,4 +1,4 @@
-# [【西田亮介vs安野貴博】SNSで激論…AI政治はうまくいく？【ReHacQ】](https://www.youtube.com/watch?v=jc5jg6Orh5I)
+### [【西田亮介vs安野貴博】SNSで激論…AI政治はうまくいく？【ReHacQ】](https://www.youtube.com/watch?v=jc5jg6Orh5I)
 -   公開日: 2025-05-20
 -   視聴数: 383,471
 -   **いいね数: 5,299**

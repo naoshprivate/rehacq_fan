@@ -1,4 +1,4 @@
-# [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](https://www.youtube.com/watch?v=hqXxXlDZN5A)
+### [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](https://www.youtube.com/watch?v=hqXxXlDZN5A)
 -   公開日: 2024-04-10
 -   視聴数: 62,207
 -   **いいね数: 912**

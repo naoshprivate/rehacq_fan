@@ -1,4 +1,4 @@
-# [【キーパーソン激論】日本の生成AIぶっちゃけどうなる？【東大松尾豊vs自民平将明】](https://www.youtube.com/watch?v=7jIePgvGXMs)
+### [【キーパーソン激論】日本の生成AIぶっちゃけどうなる？【東大松尾豊vs自民平将明】](https://www.youtube.com/watch?v=7jIePgvGXMs)
 -   公開日: 2024-07-22
 -   視聴数: 104,048
 -   **いいね数: 1,495**

@@ -1,4 +1,4 @@
-# [【ひろゆきin被災地】旅で感じた能登のリアル、旅で見えた能登の未来【まったり雑談with友人ひげおやじ】](https://www.youtube.com/watch?v=QErfKEuNIGc)
+### [【ひろゆきin被災地】旅で感じた能登のリアル、旅で見えた能登の未来【まったり雑談with友人ひげおやじ】](https://www.youtube.com/watch?v=QErfKEuNIGc)
 -   公開日: 2024-11-12
 -   視聴数: 139,222
 -   **いいね数: 2,140**

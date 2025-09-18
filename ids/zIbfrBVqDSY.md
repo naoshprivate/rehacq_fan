@@ -1,4 +1,4 @@
-# [【石丸伸二vs高橋弘樹】テレビvs銀行！ポンコツ就活塾【令和の就活とは？】](https://www.youtube.com/watch?v=zIbfrBVqDSY)
+### [【石丸伸二vs高橋弘樹】テレビvs銀行！ポンコツ就活塾【令和の就活とは？】](https://www.youtube.com/watch?v=zIbfrBVqDSY)
 -   公開日: 2024-11-30
 -   視聴数: 295,854
 -   **いいね数: 6,552**

@@ -1,4 +1,4 @@
-# [【石丸伸二vsジョージア大使】絶品あんこう鍋つついて語る、衝撃外交術【ReHacQvsレジャバ閣下】](https://www.youtube.com/watch?v=Uf7-VIemrvI)
+### [【石丸伸二vsジョージア大使】絶品あんこう鍋つついて語る、衝撃外交術【ReHacQvsレジャバ閣下】](https://www.youtube.com/watch?v=Uf7-VIemrvI)
 -   公開日: 2025-04-12
 -   視聴数: 133,727
 -   **いいね数: 6,008**

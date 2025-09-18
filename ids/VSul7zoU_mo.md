@@ -1,4 +1,4 @@
-# [【学力上げる記憶法】勉強後に…⭕️⭕️せよ【高橋弘樹vs竹内倫徳】](https://www.youtube.com/watch?v=VSul7zoU_mo)
+### [【学力上げる記憶法】勉強後に…⭕️⭕️せよ【高橋弘樹vs竹内倫徳】](https://www.youtube.com/watch?v=VSul7zoU_mo)
 -   公開日: 2024-06-18
 -   視聴数: 62,441
 -   **いいね数: 1,101**

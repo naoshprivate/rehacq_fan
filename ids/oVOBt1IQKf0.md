@@ -1,4 +1,4 @@
-# [【松尾豊vs平将明】日本は世界一!?AI戦略どうすべき?【東大教授vsデジタル大臣】](https://www.youtube.com/watch?v=oVOBt1IQKf0)
+### [【松尾豊vs平将明】日本は世界一!?AI戦略どうすべき?【東大教授vsデジタル大臣】](https://www.youtube.com/watch?v=oVOBt1IQKf0)
 -   公開日: 2025-07-14
 -   視聴数: 63,487
 -   **いいね数: 1,053**

@@ -1,4 +1,4 @@
-# [【石丸伸二vs林尚弘②】北関東に希望あり！？高齢化進む地域を救うには【令和の虎vs ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=q6hUERB1bb0)
+### [【石丸伸二vs林尚弘②】北関東に希望あり！？高齢化進む地域を救うには【令和の虎vs ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=q6hUERB1bb0)
 -   公開日: 2025-03-29
 -   視聴数: 198,549
 -   **いいね数: 6,790**

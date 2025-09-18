@@ -1,4 +1,4 @@
-# [【年商100億円CEO】ドン底から13倍のV字回復！チーム組織最大化の法則とは【木下勝寿】](https://www.youtube.com/watch?v=wLraKCoPkpc)
+### [【年商100億円CEO】ドン底から13倍のV字回復！チーム組織最大化の法則とは【木下勝寿】](https://www.youtube.com/watch?v=wLraKCoPkpc)
 -   公開日: 2023-12-13
 -   視聴数: 53,853
 -   **いいね数: 743**

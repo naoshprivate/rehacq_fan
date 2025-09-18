@@ -1,4 +1,4 @@
-# [【成田悠輔の弟】シン・逆張りの思考術【成田修造】](https://www.youtube.com/watch?v=4hTzweSBQdM)
+### [【成田悠輔の弟】シン・逆張りの思考術【成田修造】](https://www.youtube.com/watch?v=4hTzweSBQdM)
 -   公開日: 2023-07-20
 -   視聴数: 240,389
 -   **いいね数: 2,937**

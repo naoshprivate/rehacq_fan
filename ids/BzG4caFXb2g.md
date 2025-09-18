@@ -1,4 +1,4 @@
-# [【ReHacQ沖縄市長選討論会】嘉手納基地は？巨大新設ビーチは？激論！自民県連元幹事長vs立憲県連元代表【高橋弘樹】](https://www.youtube.com/watch?v=BzG4caFXb2g)
+### [【ReHacQ沖縄市長選討論会】嘉手納基地は？巨大新設ビーチは？激論！自民県連元幹事長vs立憲県連元代表【高橋弘樹】](https://www.youtube.com/watch?v=BzG4caFXb2g)
 -   公開日: 2025-01-17
 -   視聴数: 78,276
 -   **いいね数: 1,166**

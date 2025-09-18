@@ -1,4 +1,4 @@
-# [【成田悠輔がメールした男】超楽しいゲーム理論【知らなきゃ損！価格の罠】](https://www.youtube.com/watch?v=kfml_gzjojc)
+### [【成田悠輔がメールした男】超楽しいゲーム理論【知らなきゃ損！価格の罠】](https://www.youtube.com/watch?v=kfml_gzjojc)
 -   公開日: 2023-08-16
 -   視聴数: 208,965
 -   **いいね数: 2,374**

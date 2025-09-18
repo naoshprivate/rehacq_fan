@@ -1,4 +1,4 @@
-# [【ひろゆきvs初代デジタル大臣】デジタル政策で大激論【後編】](https://www.youtube.com/watch?v=JHKPFMnFvFo)
+### [【ひろゆきvs初代デジタル大臣】デジタル政策で大激論【後編】](https://www.youtube.com/watch?v=JHKPFMnFvFo)
 -   公開日: 2023-10-06
 -   視聴数: 245,263
 -   **いいね数: 2,719**

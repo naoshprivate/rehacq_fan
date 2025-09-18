@@ -1,4 +1,4 @@
-# [【ひろゆきvsしたらば元運営】なぜひろゆきは人を怒らせる？【赤裸々本音トーク】](https://www.youtube.com/watch?v=5WdasRETWsA)
+### [【ひろゆきvsしたらば元運営】なぜひろゆきは人を怒らせる？【赤裸々本音トーク】](https://www.youtube.com/watch?v=5WdasRETWsA)
 -   公開日: 2023-09-24
 -   視聴数: 241,580
 -   **いいね数: 2,624**

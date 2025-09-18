@@ -1,4 +1,4 @@
-# [【ウクライナ戦争】ロシアの思惑とは…2023年の危機【岡部芳彦】](https://www.youtube.com/watch?v=mBfavn-4cZE)
+### [【ウクライナ戦争】ロシアの思惑とは…2023年の危機【岡部芳彦】](https://www.youtube.com/watch?v=mBfavn-4cZE)
 -   公開日: 2023-04-25
 -   視聴数: 149,022
 -   **いいね数: 3,372**

@@ -1,4 +1,4 @@
-# [【ReHacQ】千葉市長選 新人候補…政治と宗教【なんで立候補したんですか？】](https://www.youtube.com/watch?v=-Nk5twnxbWo)
+### [【ReHacQ】千葉市長選 新人候補…政治と宗教【なんで立候補したんですか？】](https://www.youtube.com/watch?v=-Nk5twnxbWo)
 -   公開日: 2025-03-12
 -   視聴数: 45,612
 -   **いいね数: 595**

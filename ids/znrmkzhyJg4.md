@@ -1,4 +1,4 @@
-# [【石丸伸二vs金澤ゆい】激白！なぜ維新辞めた？【東京15区支部長】](https://www.youtube.com/watch?v=znrmkzhyJg4)
+### [【石丸伸二vs金澤ゆい】激白！なぜ維新辞めた？【東京15区支部長】](https://www.youtube.com/watch?v=znrmkzhyJg4)
 -   公開日: 2024-09-19
 -   視聴数: 300,751
 -   **いいね数: 4,634**

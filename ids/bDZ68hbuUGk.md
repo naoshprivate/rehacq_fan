@@ -1,4 +1,4 @@
-# [【日本株vs奥野一成】目から鱗！伸びる長期個別株の見方とは？【トヨタvs信越化学】](https://www.youtube.com/watch?v=bDZ68hbuUGk)
+### [【日本株vs奥野一成】目から鱗！伸びる長期個別株の見方とは？【トヨタvs信越化学】](https://www.youtube.com/watch?v=bDZ68hbuUGk)
 -   公開日: 2024-04-25
 -   視聴数: 210,215
 -   **いいね数: 2,399**

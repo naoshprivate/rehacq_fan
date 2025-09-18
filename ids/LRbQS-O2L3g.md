@@ -1,4 +1,4 @@
-# [【ひろゆきvs新聞社】穴場すぎる小京都に、辞め三井物産&辞め三菱商事が集結…一体なぜ？【ReHacQ旅】](https://www.youtube.com/watch?v=LRbQS-O2L3g)
+### [【ひろゆきvs新聞社】穴場すぎる小京都に、辞め三井物産&辞め三菱商事が集結…一体なぜ？【ReHacQ旅】](https://www.youtube.com/watch?v=LRbQS-O2L3g)
 -   公開日: 2023-06-04
 -   視聴数: 274,151
 -   **いいね数: 3,980**

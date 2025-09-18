@@ -1,4 +1,4 @@
-# [【ひろゆきvs高橋弘樹】まったり生配信！【世界の果てに東出・ひろゆき置いてきた】](https://www.youtube.com/watch?v=kxMpTh9flkM)
+### [【ひろゆきvs高橋弘樹】まったり生配信！【世界の果てに東出・ひろゆき置いてきた】](https://www.youtube.com/watch?v=kxMpTh9flkM)
 -   公開日: 2024-08-25
 -   視聴数: 177,415
 -   **いいね数: 2,375**

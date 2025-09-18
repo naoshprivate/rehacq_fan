@@ -1,4 +1,4 @@
-# [【ReHacQvsトーマツ】革命家っぽいプレゼンとは？【高橋弘樹vs斎藤祐馬】](https://www.youtube.com/watch?v=bbrHZLPAeQE)
+### [【ReHacQvsトーマツ】革命家っぽいプレゼンとは？【高橋弘樹vs斎藤祐馬】](https://www.youtube.com/watch?v=bbrHZLPAeQE)
 -   公開日: 2024-04-23
 -   視聴数: 43,324
 -   **いいね数: 546**

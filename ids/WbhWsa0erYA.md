@@ -1,4 +1,4 @@
-# [【後藤達也vs竹中平蔵】危機の日本経済！リスクをガチ激論【岸田総理の思惑とは？】](https://www.youtube.com/watch?v=WbhWsa0erYA)
+### [【後藤達也vs竹中平蔵】危機の日本経済！リスクをガチ激論【岸田総理の思惑とは？】](https://www.youtube.com/watch?v=WbhWsa0erYA)
 -   公開日: 2024-02-01
 -   視聴数: 441,445
 -   **いいね数: 4,964**

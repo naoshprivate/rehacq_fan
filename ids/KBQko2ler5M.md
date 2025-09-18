@@ -1,4 +1,4 @@
-# [【東出昌大の幸福論】悠々閑々に生きたい…【斎藤幸平vs富士急ハイランドvs山内瑞葵】](https://www.youtube.com/watch?v=KBQko2ler5M)
+### [【東出昌大の幸福論】悠々閑々に生きたい…【斎藤幸平vs富士急ハイランドvs山内瑞葵】](https://www.youtube.com/watch?v=KBQko2ler5M)
 -   公開日: 2024-06-02
 -   視聴数: 125,151
 -   **いいね数: 2,093**

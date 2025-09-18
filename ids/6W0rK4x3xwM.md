@@ -1,4 +1,4 @@
-# [【ひろゆきが激怒】Web3は意味あるのか？徹底議論【投資に値する？】](https://www.youtube.com/watch?v=6W0rK4x3xwM)
+### [【ひろゆきが激怒】Web3は意味あるのか？徹底議論【投資に値する？】](https://www.youtube.com/watch?v=6W0rK4x3xwM)
 -   公開日: 2024-09-06
 -   視聴数: 791,854
 -   **いいね数: 4,188**

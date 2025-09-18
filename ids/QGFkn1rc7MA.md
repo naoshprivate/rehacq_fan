@@ -1,4 +1,4 @@
-# [【スパイvs日本】ガチ暴露！台湾総統選の裏…日本メディアの根本問題【習近平vsバイデン】](https://www.youtube.com/watch?v=QGFkn1rc7MA)
+### [【スパイvs日本】ガチ暴露！台湾総統選の裏…日本メディアの根本問題【習近平vsバイデン】](https://www.youtube.com/watch?v=QGFkn1rc7MA)
 -   公開日: 2024-02-02
 -   視聴数: 212,334
 -   **いいね数: 3,514**

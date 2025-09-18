@@ -1,4 +1,4 @@
-# [【ひろゆきvs川邊健太郎】大炎上！ネット世論はどこへ？【松本人志問題vs川上量生】](https://www.youtube.com/watch?v=RbPcci9CocU)
+### [【ひろゆきvs川邊健太郎】大炎上！ネット世論はどこへ？【松本人志問題vs川上量生】](https://www.youtube.com/watch?v=RbPcci9CocU)
 -   公開日: 2024-05-11
 -   視聴数: 212,399
 -   **いいね数: 2,080**

@@ -1,4 +1,4 @@
-# [【巨大エンタメ企業vs世界】全社員給与30％アップ！44歳CEOの経営哲学【セガサミー】](https://www.youtube.com/watch?v=lHe3Bka0RZo)
+### [【巨大エンタメ企業vs世界】全社員給与30％アップ！44歳CEOの経営哲学【セガサミー】](https://www.youtube.com/watch?v=lHe3Bka0RZo)
 -   公開日: 2023-06-19
 -   視聴数: 71,013
 -   **いいね数: 898**

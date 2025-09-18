@@ -1,4 +1,4 @@
-# [【中田敦彦vs高橋弘樹#2】TVに痛恨の一撃…テレビは自らを「オールドメディア」となぜ卑下？斎藤元彦と石丸伸二の違いとは？【ReHacQvsYouTube大学】](https://www.youtube.com/watch?v=odKOdt7Zc_A)
+### [【中田敦彦vs高橋弘樹#2】TVに痛恨の一撃…テレビは自らを「オールドメディア」となぜ卑下？斎藤元彦と石丸伸二の違いとは？【ReHacQvsYouTube大学】](https://www.youtube.com/watch?v=odKOdt7Zc_A)
 -   公開日: 2024-12-30
 -   視聴数: 691,729
 -   **いいね数: 11,688**

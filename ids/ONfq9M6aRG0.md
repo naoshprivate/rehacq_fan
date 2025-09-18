@@ -1,4 +1,4 @@
-# [【川上量生vs立花孝志】なぜ再び？緊急対談【１年ぶり】](https://www.youtube.com/watch?v=ONfq9M6aRG0)
+### [【川上量生vs立花孝志】なぜ再び？緊急対談【１年ぶり】](https://www.youtube.com/watch?v=ONfq9M6aRG0)
 -   公開日: 2024-04-05
 -   視聴数: 690,759
 -   **いいね数: 6,393**

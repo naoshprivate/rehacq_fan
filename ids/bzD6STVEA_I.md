@@ -1,4 +1,4 @@
-# [【週刊文春vsReHacQ】３ヶ月停職！文春の元編集長の赤裸々告白【文春の考えるジャーナリズムとは？】](https://www.youtube.com/watch?v=bzD6STVEA_I)
+### [【週刊文春vsReHacQ】３ヶ月停職！文春の元編集長の赤裸々告白【文春の考えるジャーナリズムとは？】](https://www.youtube.com/watch?v=bzD6STVEA_I)
 -   公開日: 2023-09-21
 -   視聴数: 537,265
 -   **いいね数: 8,145**

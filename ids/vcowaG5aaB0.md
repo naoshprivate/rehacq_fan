@@ -1,4 +1,4 @@
-# [【石丸伸二vs清春】能登半島の今…石丸が突然の涙…なぜ？](https://www.youtube.com/watch?v=vcowaG5aaB0)
+### [【石丸伸二vs清春】能登半島の今…石丸が突然の涙…なぜ？](https://www.youtube.com/watch?v=vcowaG5aaB0)
 -   公開日: 2024-12-21
 -   視聴数: 450,873
 -   **いいね数: 13,273**

@@ -1,4 +1,4 @@
-# [【後藤達也VS田端信太郎】イーロンマスクの野望とは？【徳力基彦】](https://www.youtube.com/watch?v=TrtCC4QtIFI)
+### [【後藤達也VS田端信太郎】イーロンマスクの野望とは？【徳力基彦】](https://www.youtube.com/watch?v=TrtCC4QtIFI)
 -   公開日: 2023-09-07
 -   視聴数: 113,905
 -   **いいね数: 1,247**

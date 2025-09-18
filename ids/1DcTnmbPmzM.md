@@ -1,4 +1,4 @@
-# [【岸田総理vs自民党】意味なし!?派閥解消の罠【西田亮介】](https://www.youtube.com/watch?v=1DcTnmbPmzM)
+### [【岸田総理vs自民党】意味なし!?派閥解消の罠【西田亮介】](https://www.youtube.com/watch?v=1DcTnmbPmzM)
 -   公開日: 2024-01-20
 -   視聴数: 121,850
 -   **いいね数: 1,942**

@@ -1,4 +1,4 @@
-# [【後藤達也vs若新雄純vs高橋弘樹】ReHacQの行方！まったり雑談](https://www.youtube.com/watch?v=-5oG_yIHFvo)
+### [【後藤達也vs若新雄純vs高橋弘樹】ReHacQの行方！まったり雑談](https://www.youtube.com/watch?v=-5oG_yIHFvo)
 -   公開日: 2023-10-15
 -   視聴数: 397,492
 -   **いいね数: 4,926**

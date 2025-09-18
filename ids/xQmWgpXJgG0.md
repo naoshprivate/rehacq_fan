@@ -1,4 +1,4 @@
-# [【ReHacQvs巨大ゼネコン】5400億！一部上場企業の社長vsヒラ社員【激論のワケ】](https://www.youtube.com/watch?v=xQmWgpXJgG0)
+### [【ReHacQvs巨大ゼネコン】5400億！一部上場企業の社長vsヒラ社員【激論のワケ】](https://www.youtube.com/watch?v=xQmWgpXJgG0)
 -   公開日: 2024-02-23
 -   視聴数: 71,201
 -   **いいね数: 827**

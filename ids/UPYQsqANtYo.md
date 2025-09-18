@@ -1,4 +1,4 @@
-# [【藤井サチvs夢党】東京都議選2025！代表者インタビュー【やた一久】](https://www.youtube.com/watch?v=UPYQsqANtYo)
+### [【藤井サチvs夢党】東京都議選2025！代表者インタビュー【やた一久】](https://www.youtube.com/watch?v=UPYQsqANtYo)
 -   公開日: 2025-06-20
 -   視聴数: 20,885
 -   **いいね数: 1,104**

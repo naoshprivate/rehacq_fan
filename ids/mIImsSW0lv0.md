@@ -1,4 +1,4 @@
-# [【電通辞め起業】魅力ある地方の仕事とは？【井上咲楽】](https://www.youtube.com/watch?v=mIImsSW0lv0)
+### [【電通辞め起業】魅力ある地方の仕事とは？【井上咲楽】](https://www.youtube.com/watch?v=mIImsSW0lv0)
 -   公開日: 2025-03-08
 -   視聴数: 44,627
 -   **いいね数: 503**

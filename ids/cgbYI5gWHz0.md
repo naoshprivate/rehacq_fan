@@ -1,4 +1,4 @@
-# [【緊急生配信】石破総裁が退任...自民党の今後は？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=cgbYI5gWHz0)
+### [【緊急生配信】石破総裁が退任...自民党の今後は？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=cgbYI5gWHz0)
 -   公開日: 2025-09-08
 -   視聴数: 302,383
 -   **いいね数: 3,689**

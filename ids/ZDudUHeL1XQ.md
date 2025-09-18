@@ -1,4 +1,4 @@
-# [【赤沢大臣が緊急出演】重要告白！日米関税交渉について…メディアの罪【ReHacQ高橋弘樹&永濱利廣】](https://www.youtube.com/watch?v=ZDudUHeL1XQ)
+### [【赤沢大臣が緊急出演】重要告白！日米関税交渉について…メディアの罪【ReHacQ高橋弘樹&永濱利廣】](https://www.youtube.com/watch?v=ZDudUHeL1XQ)
 -   公開日: 2025-08-22
 -   視聴数: 326,657
 -   **いいね数: 6,783**

@@ -1,4 +1,4 @@
-# [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](https://www.youtube.com/watch?v=valNrdZIvz0)
+### [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](https://www.youtube.com/watch?v=valNrdZIvz0)
 -   公開日: 2025-08-13
 -   視聴数: 248,218
 -   **いいね数: 7,185**

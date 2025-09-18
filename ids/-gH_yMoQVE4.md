@@ -1,4 +1,4 @@
-# [【ReHacQvsNewsPicks創刊編集長】クズはどう生きるか...エリート至上主義に物申す【高橋弘樹vs井上慎平】](https://www.youtube.com/watch?v=-gH_yMoQVE4)
+### [【ReHacQvsNewsPicks創刊編集長】クズはどう生きるか...エリート至上主義に物申す【高橋弘樹vs井上慎平】](https://www.youtube.com/watch?v=-gH_yMoQVE4)
 -   公開日: 2025-04-18
 -   視聴数: 173,000
 -   **いいね数: 2,932**

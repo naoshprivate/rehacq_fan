@@ -1,4 +1,4 @@
-# [【プロ野球をクビ】炎天下48度！地獄の試合【なぜビジネス界へ？】](https://www.youtube.com/watch?v=qCCChlPopMo)
+### [【プロ野球をクビ】炎天下48度！地獄の試合【なぜビジネス界へ？】](https://www.youtube.com/watch?v=qCCChlPopMo)
 -   公開日: 2023-08-11
 -   視聴数: 119,839
 -   **いいね数: 2,055**

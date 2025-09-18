@@ -1,4 +1,4 @@
-# [【野村泰紀vs宇宙の力】時間と空間は意味ない...多次元の宇宙とは？【ReHacQリベラルアーツ・高橋弘樹】](https://www.youtube.com/watch?v=Zor71qqLF8Q)
+### [【野村泰紀vs宇宙の力】時間と空間は意味ない...多次元の宇宙とは？【ReHacQリベラルアーツ・高橋弘樹】](https://www.youtube.com/watch?v=Zor71qqLF8Q)
 -   公開日: 2025-08-31
 -   視聴数: 134,358
 -   **いいね数: 2,254**

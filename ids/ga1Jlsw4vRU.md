@@ -1,4 +1,4 @@
-# [【衆院選2024in八王子市】【ReHacQvs東京24区】](https://www.youtube.com/watch?v=ga1Jlsw4vRU)
+### [【衆院選2024in八王子市】【ReHacQvs東京24区】](https://www.youtube.com/watch?v=ga1Jlsw4vRU)
 -   公開日: 2024-10-24
 -   視聴数: 93,257
 -   **いいね数: 2,186**

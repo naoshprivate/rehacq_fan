@@ -1,4 +1,4 @@
-# [【7割が中学受験？】過熱する母と受験戦争の裏側！名門進学塾SAPIXの指導とは？【呂布カルマ】](https://www.youtube.com/watch?v=bGDlrGtQq4E)
+### [【7割が中学受験？】過熱する母と受験戦争の裏側！名門進学塾SAPIXの指導とは？【呂布カルマ】](https://www.youtube.com/watch?v=bGDlrGtQq4E)
 -   公開日: 2025-08-19
 -   視聴数: 86,320
 -   **いいね数: 701**

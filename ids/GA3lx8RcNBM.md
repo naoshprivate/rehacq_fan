@@ -1,4 +1,4 @@
-# [【石丸伸二が語る衆院選2024】放送事故で気力なくなり雑談多めに…【ReHacQ】](https://www.youtube.com/watch?v=GA3lx8RcNBM)
+### [【石丸伸二が語る衆院選2024】放送事故で気力なくなり雑談多めに…【ReHacQ】](https://www.youtube.com/watch?v=GA3lx8RcNBM)
 -   公開日: 2024-10-30
 -   視聴数: 531,597
 -   **いいね数: 12,943**

@@ -1,4 +1,4 @@
-# [【石丸伸二vsジョージア大使】魅力度ランキングを覆す！北関東の歴史と進化【ReHacQ旅inひたちなか完結】](https://www.youtube.com/watch?v=ZmUitnuWX8g)
+### [【石丸伸二vsジョージア大使】魅力度ランキングを覆す！北関東の歴史と進化【ReHacQ旅inひたちなか完結】](https://www.youtube.com/watch?v=ZmUitnuWX8g)
 -   公開日: 2025-04-19
 -   視聴数: 89,269
 -   **いいね数: 4,898**

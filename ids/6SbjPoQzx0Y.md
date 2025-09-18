@@ -1,4 +1,4 @@
-# [【ひろゆきvs石丸伸二】温泉で衝撃告白…なぜ代表やめる？ReHacQ旅⑤【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=6SbjPoQzx0Y)
+### [【ひろゆきvs石丸伸二】温泉で衝撃告白…なぜ代表やめる？ReHacQ旅⑤【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=6SbjPoQzx0Y)
 -   公開日: 2025-08-30
 -   視聴数: 351,922
 -   **いいね数: 12,787**

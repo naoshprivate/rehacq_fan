@@ -1,4 +1,4 @@
-# [【ひろゆきvs公明党のホープ】統一教会どう思う？山口那津男とは？【政治と宗教】](https://www.youtube.com/watch?v=9ScFCMtxLkw)
+### [【ひろゆきvs公明党のホープ】統一教会どう思う？山口那津男とは？【政治と宗教】](https://www.youtube.com/watch?v=9ScFCMtxLkw)
 -   公開日: 2023-09-10
 -   視聴数: 558,720
 -   **いいね数: 8,408**

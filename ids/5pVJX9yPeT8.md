@@ -1,4 +1,4 @@
-# [【ひろゆきvsデジタル大臣➁】米中にどう立ち向かう？日本のAI成長戦略【平将明vs西田亮介】](https://www.youtube.com/watch?v=5pVJX9yPeT8)
+### [【ひろゆきvsデジタル大臣➁】米中にどう立ち向かう？日本のAI成長戦略【平将明vs西田亮介】](https://www.youtube.com/watch?v=5pVJX9yPeT8)
 -   公開日: 2025-09-13
 -   視聴数: 139,645
 -   **いいね数: 2,273**

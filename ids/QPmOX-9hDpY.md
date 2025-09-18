@@ -1,4 +1,4 @@
-# [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
+### [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
 -   公開日: 2025-02-27
 -   視聴数: 925,897
 -   **いいね数: 11,817**

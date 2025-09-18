@@ -1,4 +1,4 @@
-# [【石丸伸二vs西田亮介】激論！衰退する地方&離島を救うには【ReHacQ旅in伊豆大島 特別編】](https://www.youtube.com/watch?v=4AiBsr89Kkc)
+### [【石丸伸二vs西田亮介】激論！衰退する地方&離島を救うには【ReHacQ旅in伊豆大島 特別編】](https://www.youtube.com/watch?v=4AiBsr89Kkc)
 -   公開日: 2024-10-18
 -   視聴数: 327,880
 -   **いいね数: 7,696**

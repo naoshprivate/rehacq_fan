@@ -1,4 +1,4 @@
-# [【野村泰紀vs宇宙の謎】ノーベル賞獲得した日本の研究とは？夏休み特別企画！【ReHacQリベラルアーツ・高橋弘樹】](https://www.youtube.com/watch?v=AuAbpS2Fmp8)
+### [【野村泰紀vs宇宙の謎】ノーベル賞獲得した日本の研究とは？夏休み特別企画！【ReHacQリベラルアーツ・高橋弘樹】](https://www.youtube.com/watch?v=AuAbpS2Fmp8)
 -   公開日: 2025-08-23
 -   視聴数: 192,214
 -   **いいね数: 2,569**

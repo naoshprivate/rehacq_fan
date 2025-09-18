@@ -1,4 +1,4 @@
-# [【堀江貴文vs後藤達也】堀江のシン・メディア論【M-1vsアンパンマン】](https://www.youtube.com/watch?v=B_wK9DJdL-8)
+### [【堀江貴文vs後藤達也】堀江のシン・メディア論【M-1vsアンパンマン】](https://www.youtube.com/watch?v=B_wK9DJdL-8)
 -   公開日: 2023-06-15
 -   視聴数: 824,660
 -   **いいね数: 7,494**

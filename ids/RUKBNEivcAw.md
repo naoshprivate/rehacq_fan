@@ -1,4 +1,4 @@
-# [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](https://www.youtube.com/watch?v=RUKBNEivcAw)
+### [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](https://www.youtube.com/watch?v=RUKBNEivcAw)
 -   公開日: 2023-03-25
 -   視聴数: 1,086,244
 -   **いいね数: 14,384**
