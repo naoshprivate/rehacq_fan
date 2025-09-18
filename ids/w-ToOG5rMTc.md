@@ -1,0 +1,11 @@
+1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/https://www.youtube.com/watch?v=w-ToOG5rMTc "wikilink")
+    -   公開日: 2023-10-01
+    -   視聴数: 979,370
+    -   **いいね数: 10,173**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
+1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](https://www.youtube.com/watch?v=w-ToOG5rMTc)
+    -   公開日: 2023-10-01
+    -   視聴数: 979,370
+    -   **いいね数: 10,173**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
+    - [![](https://img.youtube.com/vi/w-ToOG5rMTc/hqdefault.jpg)](https://www.youtube.com/watch?v=w-ToOG5rMTc)

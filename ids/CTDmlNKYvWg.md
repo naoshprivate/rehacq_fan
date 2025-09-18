@@ -1,0 +1,11 @@
+1.  [【高橋弘樹vs天才経済学者】夫婦の経済学とは？NHK伝説番組の秘密【奥山陽子vs ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=CTDmlNKYvWg "wikilink")
+    -   公開日: 2025-03-04
+    -   視聴数: 154,097
+    -   **いいね数: 2,761**
+    -   出演者: 奥山陽子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs天才経済学者】夫婦の経済学とは？NHK伝説番組の秘密【奥山陽子vs ReHacQ】](https://www.youtube.com/watch?v=CTDmlNKYvWg)
+    -   公開日: 2025-03-04
+    -   視聴数: 154,097
+    -   **いいね数: 2,761**
+    -   出演者: 奥山陽子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/CTDmlNKYvWg/hqdefault.jpg)](https://www.youtube.com/watch?v=CTDmlNKYvWg)

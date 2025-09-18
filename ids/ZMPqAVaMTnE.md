@@ -1,0 +1,11 @@
+1.  [【ReHacQ戦争リアル】第二次世界大戦の記憶AIで残せ！東大生の挑戦【高橋弘樹】](/rehacq_fan/ids/https://www.youtube.com/watch?v=ZMPqAVaMTnE "wikilink")
+    -   公開日: 2024-03-31
+    -   視聴数: 29,085
+    -   **いいね数: 649**
+    -   出演者: 庭田杏珠
+1.  [【ReHacQ戦争リアル】第二次世界大戦の記憶AIで残せ！東大生の挑戦【高橋弘樹】](https://www.youtube.com/watch?v=ZMPqAVaMTnE)
+    -   公開日: 2024-03-31
+    -   視聴数: 29,085
+    -   **いいね数: 649**
+    -   出演者: 庭田杏珠
+    - [![](https://img.youtube.com/vi/ZMPqAVaMTnE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZMPqAVaMTnE)

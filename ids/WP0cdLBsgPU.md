@@ -1,0 +1,11 @@
+1.  [【鳥山明に憧れ起業】資金調達30億円！ARスポーツで世界に進出【ドラゴンボール】](/rehacq_fan/ids/https://www.youtube.com/watch?v=WP0cdLBsgPU "wikilink")
+    -   公開日: 2024-03-21
+    -   視聴数: 15,030
+    -   **いいね数: 199**
+    -   出演者: 福田浩士
+1.  [【鳥山明に憧れ起業】資金調達30億円！ARスポーツで世界に進出【ドラゴンボール】](https://www.youtube.com/watch?v=WP0cdLBsgPU)
+    -   公開日: 2024-03-21
+    -   視聴数: 15,030
+    -   **いいね数: 199**
+    -   出演者: 福田浩士
+    - [![](https://img.youtube.com/vi/WP0cdLBsgPU/hqdefault.jpg)](https://www.youtube.com/watch?v=WP0cdLBsgPU)

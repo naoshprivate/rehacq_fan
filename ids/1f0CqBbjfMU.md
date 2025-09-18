@@ -1,0 +1,11 @@
+1.  [【石丸伸二vs彦根市長】トップに必要な嫌われる勇気とは？【どうなる石丸新党】](/rehacq_fan/ids/https://www.youtube.com/watch?v=1f0CqBbjfMU "wikilink")
+    -   公開日: 2024-08-14
+    -   視聴数: 166,059
+    -   **いいね数: 5,845**
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【石丸伸二vs彦根市長】トップに必要な嫌われる勇気とは？【どうなる石丸新党】](https://www.youtube.com/watch?v=1f0CqBbjfMU)
+    -   公開日: 2024-08-14
+    -   視聴数: 166,059
+    -   **いいね数: 5,845**
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+    - [![](https://img.youtube.com/vi/1f0CqBbjfMU/hqdefault.jpg)](https://www.youtube.com/watch?v=1f0CqBbjfMU)

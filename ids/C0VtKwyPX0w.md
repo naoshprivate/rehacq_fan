@@ -1,0 +1,11 @@
+1.  [【高橋弘樹vs出所した元法務大臣】安倍・トランプ外交のキーマンが激白！トランプの狙いと石破政権【河井克行vsReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=C0VtKwyPX0w "wikilink")
+    -   公開日: 2024-12-15
+    -   視聴数: 281,802
+    -   **いいね数: 4,115**
+    -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs出所した元法務大臣】安倍・トランプ外交のキーマンが激白！トランプの狙いと石破政権【河井克行vsReHacQ】](https://www.youtube.com/watch?v=C0VtKwyPX0w)
+    -   公開日: 2024-12-15
+    -   視聴数: 281,802
+    -   **いいね数: 4,115**
+    -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/C0VtKwyPX0w/hqdefault.jpg)](https://www.youtube.com/watch?v=C0VtKwyPX0w)

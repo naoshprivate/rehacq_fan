@@ -1,0 +1,11 @@
+1.  [【後藤達也vs青汁王子】至急3億円必要！会社が資金繰り危機【日経平均が暴落】](/rehacq_fan/ids/https://www.youtube.com/watch?v=X-4WxPi5Dq8 "wikilink")
+    -   公開日: 2024-08-29
+    -   視聴数: 192,378
+    -   **いいね数: 2,327**
+    -   出演者: 三崎優太, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【後藤達也vs青汁王子】至急3億円必要！会社が資金繰り危機【日経平均が暴落】](https://www.youtube.com/watch?v=X-4WxPi5Dq8)
+    -   公開日: 2024-08-29
+    -   視聴数: 192,378
+    -   **いいね数: 2,327**
+    -   出演者: 三崎優太, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+    - [![](https://img.youtube.com/vi/X-4WxPi5Dq8/hqdefault.jpg)](https://www.youtube.com/watch?v=X-4WxPi5Dq8)

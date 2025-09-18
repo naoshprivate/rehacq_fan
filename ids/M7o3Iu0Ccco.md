@@ -1,0 +1,11 @@
+1.  [【ひろゆきvs成田修造】孤独を生む！終身雇用の罠【シン・幸福論】](/rehacq_fan/ids/https://www.youtube.com/watch?v=M7o3Iu0Ccco "wikilink")
+    -   公開日: 2023-08-08
+    -   視聴数: 303,044
+    -   **いいね数: 3,808**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
+1.  [【ひろゆきvs成田修造】孤独を生む！終身雇用の罠【シン・幸福論】](https://www.youtube.com/watch?v=M7o3Iu0Ccco)
+    -   公開日: 2023-08-08
+    -   視聴数: 303,044
+    -   **いいね数: 3,808**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
+    - [![](https://img.youtube.com/vi/M7o3Iu0Ccco/hqdefault.jpg)](https://www.youtube.com/watch?v=M7o3Iu0Ccco)

@@ -1,0 +1,11 @@
+1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=Ue3JGrtEO3Y "wikilink")
+    -   公開日: 2023-11-19
+    -   視聴数: 1,454,290
+    -   **いいね数: 9,047**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](https://www.youtube.com/watch?v=Ue3JGrtEO3Y)
+    -   公開日: 2023-11-19
+    -   視聴数: 1,454,290
+    -   **いいね数: 9,047**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+    - [![](https://img.youtube.com/vi/Ue3JGrtEO3Y/hqdefault.jpg)](https://www.youtube.com/watch?v=Ue3JGrtEO3Y)

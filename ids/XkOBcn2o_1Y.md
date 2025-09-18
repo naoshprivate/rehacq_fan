@@ -1,0 +1,11 @@
+1.  [【後藤達也ガチ取材】利上げは２％超える？日銀元最高幹部が予測【後藤達也vsReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=XkOBcn2o_1Y "wikilink")
+    -   公開日: 2025-04-03
+    -   視聴数: 61,644
+    -   **いいね数: 717**
+    -   出演者: 前田栄治, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+1.  [【後藤達也ガチ取材】利上げは２％超える？日銀元最高幹部が予測【後藤達也vsReHacQ】](https://www.youtube.com/watch?v=XkOBcn2o_1Y)
+    -   公開日: 2025-04-03
+    -   視聴数: 61,644
+    -   **いいね数: 717**
+    -   出演者: 前田栄治, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+    - [![](https://img.youtube.com/vi/XkOBcn2o_1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=XkOBcn2o_1Y)

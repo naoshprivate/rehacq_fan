@@ -1,0 +1,11 @@
+1.  [【辞めTBSvs天才ドズル】「恐怖を感じた…」宇内梨沙が最初に退職考えた衝撃事件とは？【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=txVcapF766Q "wikilink")
+    -   公開日: 2025-03-18
+    -   視聴数: 143,727
+    -   **いいね数: 2,428**
+    -   出演者: ドズル, [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
+1.  [【辞めTBSvs天才ドズル】「恐怖を感じた…」宇内梨沙が最初に退職考えた衝撃事件とは？【ReHacQ】](https://www.youtube.com/watch?v=txVcapF766Q)
+    -   公開日: 2025-03-18
+    -   視聴数: 143,727
+    -   **いいね数: 2,428**
+    -   出演者: ドズル, [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
+    - [![](https://img.youtube.com/vi/txVcapF766Q/hqdefault.jpg)](https://www.youtube.com/watch?v=txVcapF766Q)

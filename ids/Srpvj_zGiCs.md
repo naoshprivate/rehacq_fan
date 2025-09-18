@@ -1,0 +1,11 @@
+1.  [【れいわ新選組vs高橋弘樹】財務省は嘘！？なぜ減税拒む…財政規律の深淵に迫る【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=Srpvj_zGiCs "wikilink")
+    -   公開日: 2025-05-15
+    -   視聴数: 695,006
+    -   **いいね数: 8,958**
+    -   出演者: 高井たかし, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【れいわ新選組vs高橋弘樹】財務省は嘘！？なぜ減税拒む…財政規律の深淵に迫る【ReHacQ】](https://www.youtube.com/watch?v=Srpvj_zGiCs)
+    -   公開日: 2025-05-15
+    -   視聴数: 695,006
+    -   **いいね数: 8,958**
+    -   出演者: 高井たかし, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/Srpvj_zGiCs/hqdefault.jpg)](https://www.youtube.com/watch?v=Srpvj_zGiCs)

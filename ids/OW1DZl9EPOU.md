@@ -1,0 +1,11 @@
+1.  [【石破茂vs ReHacQ】敗北を抱きしめ…総裁選五度目の挑戦！なぜ戦う？【高橋弘樹vsゲル閣下】](/rehacq_fan/ids/https://www.youtube.com/watch?v=OW1DZl9EPOU "wikilink")
+    -   公開日: 2024-09-11
+    -   視聴数: 365,201
+    -   **いいね数: 5,203**
+    -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石破茂vs ReHacQ】敗北を抱きしめ…総裁選五度目の挑戦！なぜ戦う？【高橋弘樹vsゲル閣下】](https://www.youtube.com/watch?v=OW1DZl9EPOU)
+    -   公開日: 2024-09-11
+    -   視聴数: 365,201
+    -   **いいね数: 5,203**
+    -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/OW1DZl9EPOU/hqdefault.jpg)](https://www.youtube.com/watch?v=OW1DZl9EPOU)

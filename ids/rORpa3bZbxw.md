@@ -1,0 +1,11 @@
+1.  [【ひろゆきvsジョージア大使】暴徒襲撃…野党指導者続々逮捕…ジョージア緊迫が意味する重大な世界の危機【世界戦争党とは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=rORpa3bZbxw "wikilink")
+    -   公開日: 2024-12-05
+    -   視聴数: 207,871
+    -   **いいね数: 4,482**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvsジョージア大使】暴徒襲撃…野党指導者続々逮捕…ジョージア緊迫が意味する重大な世界の危機【世界戦争党とは？】](https://www.youtube.com/watch?v=rORpa3bZbxw)
+    -   公開日: 2024-12-05
+    -   視聴数: 207,871
+    -   **いいね数: 4,482**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/rORpa3bZbxw/hqdefault.jpg)](https://www.youtube.com/watch?v=rORpa3bZbxw)

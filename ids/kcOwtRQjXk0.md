@@ -1,0 +1,11 @@
+1.  [【川上量生vs斎藤幸平】「受験と大学教育」…徹底議論【N高の逆襲!?】](/rehacq_fan/ids/https://www.youtube.com/watch?v=kcOwtRQjXk0 "wikilink")
+    -   公開日: 2023-12-02
+    -   視聴数: 145,381
+    -   **いいね数: 2,201**
+    -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+1.  [【川上量生vs斎藤幸平】「受験と大学教育」…徹底議論【N高の逆襲!?】](https://www.youtube.com/watch?v=kcOwtRQjXk0)
+    -   公開日: 2023-12-02
+    -   視聴数: 145,381
+    -   **いいね数: 2,201**
+    -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
+    - [![](https://img.youtube.com/vi/kcOwtRQjXk0/hqdefault.jpg)](https://www.youtube.com/watch?v=kcOwtRQjXk0)

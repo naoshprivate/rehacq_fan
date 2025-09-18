@@ -1,0 +1,11 @@
+1.  [【国山ハセンの深層へ】マイノリティー感じた過去…「今」思い描くキャリア【ハセンのB面とは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=se6tz0bBv54 "wikilink")
+    -   公開日: 2023-04-15
+    -   視聴数: 97,181
+    -   **いいね数: 1,519**
+    -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [辻中仁士](/rehacq_fan/people/辻中仁士 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【国山ハセンの深層へ】マイノリティー感じた過去…「今」思い描くキャリア【ハセンのB面とは？】](https://www.youtube.com/watch?v=se6tz0bBv54)
+    -   公開日: 2023-04-15
+    -   視聴数: 97,181
+    -   **いいね数: 1,519**
+    -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [辻中仁士](/rehacq_fan/people/辻中仁士 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/se6tz0bBv54/hqdefault.jpg)](https://www.youtube.com/watch?v=se6tz0bBv54)

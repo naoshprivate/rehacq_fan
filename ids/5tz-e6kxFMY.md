@@ -1,0 +1,11 @@
+1.  [【AKB48×YKK】ゴルフ場でファスナーのCM作れ【PR戦略】](/rehacq_fan/ids/https://www.youtube.com/watch?v=5tz-e6kxFMY "wikilink")
+    -   公開日: 2023-10-18
+    -   視聴数: 16,078
+    -   **いいね数: 272**
+    -   出演者: 
+1.  [【AKB48×YKK】ゴルフ場でファスナーのCM作れ【PR戦略】](https://www.youtube.com/watch?v=5tz-e6kxFMY)
+    -   公開日: 2023-10-18
+    -   視聴数: 16,078
+    -   **いいね数: 272**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/5tz-e6kxFMY/hqdefault.jpg)](https://www.youtube.com/watch?v=5tz-e6kxFMY)

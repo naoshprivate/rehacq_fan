@@ -1,0 +1,11 @@
+1.  [【石丸伸二vs文藝春秋のエース】元NewsPicsのCEOと激論！地方反撃の狼煙【高橋弘樹&黒岩里奈&坂本大典】](/rehacq_fan/ids/https://www.youtube.com/watch?v=Yw6IksKyRKE "wikilink")
+    -   公開日: 2024-10-04
+    -   視聴数: 263,195
+    -   **いいね数: 6,687**
+    -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
+1.  [【石丸伸二vs文藝春秋のエース】元NewsPicsのCEOと激論！地方反撃の狼煙【高橋弘樹&黒岩里奈&坂本大典】](https://www.youtube.com/watch?v=Yw6IksKyRKE)
+    -   公開日: 2024-10-04
+    -   視聴数: 263,195
+    -   **いいね数: 6,687**
+    -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
+    - [![](https://img.youtube.com/vi/Yw6IksKyRKE/hqdefault.jpg)](https://www.youtube.com/watch?v=Yw6IksKyRKE)

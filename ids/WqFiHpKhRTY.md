@@ -1,0 +1,11 @@
+1.  [【鈴木おさむvs高橋弘樹】なぜ引退？テレビにさよならするワケ【スマスマ放送作家】](/rehacq_fan/ids/https://www.youtube.com/watch?v=WqFiHpKhRTY "wikilink")
+    -   公開日: 2024-01-24
+    -   視聴数: 317,565
+    -   **いいね数: 3,663**
+    -   出演者: [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【鈴木おさむvs高橋弘樹】なぜ引退？テレビにさよならするワケ【スマスマ放送作家】](https://www.youtube.com/watch?v=WqFiHpKhRTY)
+    -   公開日: 2024-01-24
+    -   視聴数: 317,565
+    -   **いいね数: 3,663**
+    -   出演者: [鈴木おさむ](/rehacq_fan/people/鈴木おさむ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/WqFiHpKhRTY/hqdefault.jpg)](https://www.youtube.com/watch?v=WqFiHpKhRTY)

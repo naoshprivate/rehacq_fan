@@ -1,0 +1,11 @@
+1.  [【後藤達也vs運用1兆円投資家】プロが考える新時代の「分散投資」とは？【新NISA丸わかり】](/rehacq_fan/ids/https://www.youtube.com/watch?v=1xcm2-rV-3s "wikilink")
+    -   公開日: 2023-11-02
+    -   視聴数: 467,728
+    -   **いいね数: 4,535**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤野英人](/rehacq_fan/people/藤野英人 "wikilink")
+1.  [【後藤達也vs運用1兆円投資家】プロが考える新時代の「分散投資」とは？【新NISA丸わかり】](https://www.youtube.com/watch?v=1xcm2-rV-3s)
+    -   公開日: 2023-11-02
+    -   視聴数: 467,728
+    -   **いいね数: 4,535**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤野英人](/rehacq_fan/people/藤野英人 "wikilink")
+    - [![](https://img.youtube.com/vi/1xcm2-rV-3s/hqdefault.jpg)](https://www.youtube.com/watch?v=1xcm2-rV-3s)

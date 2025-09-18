@@ -1,0 +1,11 @@
+1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=MxSVlnm0qc4 "wikilink")
+    -   公開日: 2024-11-17
+    -   視聴数: 3,530,753
+    -   **いいね数: 53,899**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](https://www.youtube.com/watch?v=MxSVlnm0qc4)
+    -   公開日: 2024-11-17
+    -   視聴数: 3,530,753
+    -   **いいね数: 53,899**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+    - [![](https://img.youtube.com/vi/MxSVlnm0qc4/hqdefault.jpg)](https://www.youtube.com/watch?v=MxSVlnm0qc4)

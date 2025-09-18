@@ -1,0 +1,11 @@
+1.  [【高橋弘樹vs地面師の闇暴く男】積水ハウス事件…55億なぜ詐取？首謀者と被害者社長の謎【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=QvHHKJZn7d0 "wikilink")
+    -   公開日: 2024-12-09
+    -   視聴数: 381,321
+    -   **いいね数: 3,608**
+    -   出演者: 森功, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs地面師の闇暴く男】積水ハウス事件…55億なぜ詐取？首謀者と被害者社長の謎【ReHacQ】](https://www.youtube.com/watch?v=QvHHKJZn7d0)
+    -   公開日: 2024-12-09
+    -   視聴数: 381,321
+    -   **いいね数: 3,608**
+    -   出演者: 森功, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/QvHHKJZn7d0/hqdefault.jpg)](https://www.youtube.com/watch?v=QvHHKJZn7d0)

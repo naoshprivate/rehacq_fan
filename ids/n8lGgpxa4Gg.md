@@ -1,0 +1,11 @@
+1.  [【成田悠輔vs東大教授】「既得権益」の抵抗とは？衝撃の「正体」【ウェルビーイングな世界とは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=n8lGgpxa4Gg "wikilink")
+    -   公開日: 2023-07-22
+    -   視聴数: 522,483
+    -   **いいね数: 7,026**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 星加良司
+1.  [【成田悠輔vs東大教授】「既得権益」の抵抗とは？衝撃の「正体」【ウェルビーイングな世界とは？】](https://www.youtube.com/watch?v=n8lGgpxa4Gg)
+    -   公開日: 2023-07-22
+    -   視聴数: 522,483
+    -   **いいね数: 7,026**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 星加良司
+    - [![](https://img.youtube.com/vi/n8lGgpxa4Gg/hqdefault.jpg)](https://www.youtube.com/watch?v=n8lGgpxa4Gg)

@@ -1,0 +1,11 @@
+1.  [【石丸伸二vs房総半島】絶景の朝日！廃プールでBBQ！奥深き千葉【ReHacQ旅】](/rehacq_fan/ids/https://www.youtube.com/watch?v=SdPmxChxfZc "wikilink")
+    -   公開日: 2024-11-16
+    -   視聴数: 254,432
+    -   **いいね数: 5,708**
+    -   出演者: 吉木りさ, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+1.  [【石丸伸二vs房総半島】絶景の朝日！廃プールでBBQ！奥深き千葉【ReHacQ旅】](https://www.youtube.com/watch?v=SdPmxChxfZc)
+    -   公開日: 2024-11-16
+    -   視聴数: 254,432
+    -   **いいね数: 5,708**
+    -   出演者: 吉木りさ, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+    - [![](https://img.youtube.com/vi/SdPmxChxfZc/hqdefault.jpg)](https://www.youtube.com/watch?v=SdPmxChxfZc)

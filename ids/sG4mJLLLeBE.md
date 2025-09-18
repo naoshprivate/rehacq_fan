@@ -1,0 +1,11 @@
+1.  [【緊急出演】４年前の…衝撃告白！事件の真相、赤裸々すぎる90分独占インタビュー【ゴーンvs日産】](/rehacq_fan/ids/https://www.youtube.com/watch?v=sG4mJLLLeBE "wikilink")
+    -   公開日: 2024-07-01
+    -   視聴数: 213,861
+    -   **いいね数: 2,209**
+    -   出演者: 西川廣人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【緊急出演】４年前の…衝撃告白！事件の真相、赤裸々すぎる90分独占インタビュー【ゴーンvs日産】](https://www.youtube.com/watch?v=sG4mJLLLeBE)
+    -   公開日: 2024-07-01
+    -   視聴数: 213,861
+    -   **いいね数: 2,209**
+    -   出演者: 西川廣人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/sG4mJLLLeBE/hqdefault.jpg)](https://www.youtube.com/watch?v=sG4mJLLLeBE)

@@ -1,0 +1,11 @@
+1.  [【ReHacQ討論会】練馬区ネット討論会【藤井サチ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=AfXsLzq8_MM "wikilink")
+    -   公開日: 2025-06-17
+    -   視聴数: 209,811
+    -   **いいね数: 5,289**
+    -   出演者: 
+1.  [【ReHacQ討論会】練馬区ネット討論会【藤井サチ】](https://www.youtube.com/watch?v=AfXsLzq8_MM)
+    -   公開日: 2025-06-17
+    -   視聴数: 209,811
+    -   **いいね数: 5,289**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/AfXsLzq8_MM/hqdefault.jpg)](https://www.youtube.com/watch?v=AfXsLzq8_MM)

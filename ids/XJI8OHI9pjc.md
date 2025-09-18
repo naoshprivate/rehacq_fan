@@ -1,0 +1,11 @@
+1.  [【高橋弘樹VS天才実業家】菌で世界を救え！一歩先の菌活医療【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=XJI8OHI9pjc "wikilink")
+    -   公開日: 2025-03-21
+    -   視聴数: 20,696
+    -   **いいね数: 292**
+    -   出演者: 下川穣, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹VS天才実業家】菌で世界を救え！一歩先の菌活医療【ReHacQ】](https://www.youtube.com/watch?v=XJI8OHI9pjc)
+    -   公開日: 2025-03-21
+    -   視聴数: 20,696
+    -   **いいね数: 292**
+    -   出演者: 下川穣, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/XJI8OHI9pjc/hqdefault.jpg)](https://www.youtube.com/watch?v=XJI8OHI9pjc)

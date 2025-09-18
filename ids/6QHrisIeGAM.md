@@ -1,0 +1,11 @@
+1.  [【ひろゆきvs山本一太】国民・玉木氏へ…激論！移民問題…群馬県知事がぶった斬る【ReHacQ高橋弘樹】](/rehacq_fan/ids/https://www.youtube.com/watch?v=6QHrisIeGAM "wikilink")
+    -   公開日: 2025-01-27
+    -   視聴数: 297,706
+    -   **いいね数: 4,489**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs山本一太】国民・玉木氏へ…激論！移民問題…群馬県知事がぶった斬る【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=6QHrisIeGAM)
+    -   公開日: 2025-01-27
+    -   視聴数: 297,706
+    -   **いいね数: 4,489**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/6QHrisIeGAM/hqdefault.jpg)](https://www.youtube.com/watch?v=6QHrisIeGAM)

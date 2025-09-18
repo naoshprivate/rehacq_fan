@@ -1,0 +1,11 @@
+1.  [【ひろゆきin被災地】旅で感じた能登のリアル、旅で見えた能登の未来【まったり雑談with友人ひげおやじ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=QErfKEuNIGc "wikilink")
+    -   公開日: 2024-11-12
+    -   視聴数: 139,222
+    -   **いいね数: 2,140**
+    -   出演者: [ひげおやじ](/rehacq_fan/people/ひげおやじ "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
+1.  [【ひろゆきin被災地】旅で感じた能登のリアル、旅で見えた能登の未来【まったり雑談with友人ひげおやじ】](https://www.youtube.com/watch?v=QErfKEuNIGc)
+    -   公開日: 2024-11-12
+    -   視聴数: 139,222
+    -   **いいね数: 2,140**
+    -   出演者: [ひげおやじ](/rehacq_fan/people/ひげおやじ "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
+    - [![](https://img.youtube.com/vi/QErfKEuNIGc/hqdefault.jpg)](https://www.youtube.com/watch?v=QErfKEuNIGc)

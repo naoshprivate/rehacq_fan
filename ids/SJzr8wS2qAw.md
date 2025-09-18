@@ -1,0 +1,11 @@
+1.  [【後藤達也vs円安】経済界に課題山積...景気を良くするには…【元日銀理事門間一夫】](/rehacq_fan/ids/https://www.youtube.com/watch?v=SJzr8wS2qAw "wikilink")
+    -   公開日: 2025-09-04
+    -   視聴数: 166,741
+    -   **いいね数: 2,539**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
+1.  [【後藤達也vs円安】経済界に課題山積...景気を良くするには…【元日銀理事門間一夫】](https://www.youtube.com/watch?v=SJzr8wS2qAw)
+    -   公開日: 2025-09-04
+    -   視聴数: 166,741
+    -   **いいね数: 2,539**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
+    - [![](https://img.youtube.com/vi/SJzr8wS2qAw/hqdefault.jpg)](https://www.youtube.com/watch?v=SJzr8wS2qAw)

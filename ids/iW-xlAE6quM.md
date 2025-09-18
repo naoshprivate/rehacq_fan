@@ -1,0 +1,11 @@
+1.  [【SUSURUvs高橋弘樹】ラーメンは健康食？ビジネスパーソンのためのラーメン講座【二郎大好き】](/rehacq_fan/ids/https://www.youtube.com/watch?v=iW-xlAE6quM "wikilink")
+    -   公開日: 2024-03-16
+    -   視聴数: 94,801
+    -   **いいね数: 1,250**
+    -   出演者: SUSURU, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【SUSURUvs高橋弘樹】ラーメンは健康食？ビジネスパーソンのためのラーメン講座【二郎大好き】](https://www.youtube.com/watch?v=iW-xlAE6quM)
+    -   公開日: 2024-03-16
+    -   視聴数: 94,801
+    -   **いいね数: 1,250**
+    -   出演者: SUSURU, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/iW-xlAE6quM/hqdefault.jpg)](https://www.youtube.com/watch?v=iW-xlAE6quM)

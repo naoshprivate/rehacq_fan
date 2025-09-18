@@ -1,0 +1,11 @@
+1.  [【ひろゆき&若新雄純】穴場すぎる彫刻の街・井波とは？！巨大な寺の秘密！【衝撃！「富山のひろゆき」参戦】](/rehacq_fan/ids/https://www.youtube.com/watch?v=5dbqaiJmWt4 "wikilink")
+    -   公開日: 2023-06-19
+    -   視聴数: 313,616
+    -   **いいね数: 5,246**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆき&若新雄純】穴場すぎる彫刻の街・井波とは？！巨大な寺の秘密！【衝撃！「富山のひろゆき」参戦】](https://www.youtube.com/watch?v=5dbqaiJmWt4)
+    -   公開日: 2023-06-19
+    -   視聴数: 313,616
+    -   **いいね数: 5,246**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/5dbqaiJmWt4/hqdefault.jpg)](https://www.youtube.com/watch?v=5dbqaiJmWt4)

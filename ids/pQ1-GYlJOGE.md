@@ -1,0 +1,11 @@
+1.  [【成田悠輔と資本主義】日本橋三越…アフリカ救う画展とは？【スラムアート】](/rehacq_fan/ids/https://www.youtube.com/watch?v=pQ1-GYlJOGE "wikilink")
+    -   公開日: 2023-09-16
+    -   視聴数: 106,753
+    -   **いいね数: 2,228**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
+1.  [【成田悠輔と資本主義】日本橋三越…アフリカ救う画展とは？【スラムアート】](https://www.youtube.com/watch?v=pQ1-GYlJOGE)
+    -   公開日: 2023-09-16
+    -   視聴数: 106,753
+    -   **いいね数: 2,228**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
+    - [![](https://img.youtube.com/vi/pQ1-GYlJOGE/hqdefault.jpg)](https://www.youtube.com/watch?v=pQ1-GYlJOGE)
