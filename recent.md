@@ -1,31 +1,31 @@
+1.  [【高橋弘樹vsママ議員】泣き寝入りに光を当てたい…成し遂げた画期的法改正とは？【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=XpvF36-qfRs)
+    -   公開日: 2025-09-18
+    -   視聴数: 2,433
+    -   **いいね数: 96**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/XpvF36-qfRs/hqdefault.jpg)](https://www.youtube.com/watch?v=XpvF36-qfRs)
+1.  [【高橋弘樹vs麻布競馬場vsけんご】読書の秋SP！働きたくない若者 vs「死ぬこと以外かすり傷」世代 読書で変わる仕事の価値観とは？【ReHacQ】](https://www.youtube.com/watch?v=xrPcUsmGTn8)
+    -   公開日: 2025-09-18
+    -   視聴数: 2
+    -   **いいね数: 17**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/xrPcUsmGTn8/hqdefault.jpg)](https://www.youtube.com/watch?v=xrPcUsmGTn8)
+1.  [【生配信】自民党総裁選・林芳正出馬会見 9月18日（木）【ReHacQ】](https://www.youtube.com/watch?v=aU1r3g6bjoI)
+    -   公開日: 2025-09-18
+    -   視聴数: 11,947
+    -   **いいね数: 101**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/aU1r3g6bjoI/hqdefault.jpg)](https://www.youtube.com/watch?v=aU1r3g6bjoI)
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=2DZQwsjuZJE)
     -   公開日: 2025-09-17
-    -   視聴数: 88,008
-    -   **いいね数: 1,399**
+    -   視聴数: 99,957
+    -   **いいね数: 1,504**
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/2DZQwsjuZJE/hqdefault.jpg)](https://www.youtube.com/watch?v=2DZQwsjuZJE)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](https://www.youtube.com/watch?v=h2uDUojYzT0)
     -   公開日: 2025-09-17
-    -   視聴数: 13,869
-    -   **いいね数: 131**
+    -   視聴数: 15,160
+    -   **いいね数: 137**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/h2uDUojYzT0/hqdefault.jpg)](https://www.youtube.com/watch?v=h2uDUojYzT0)
-1.  [【石丸伸二vs再生の道新代表】新代表はAI!?なぜ？まったり生配信【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=bp9fzQOyq0o)
-    -   公開日: 2025-09-16
-    -   視聴数: 298,563
-    -   **いいね数: 12,137**
-    -   出演者: 奥村光貴, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/bp9fzQOyq0o/hqdefault.jpg)](https://www.youtube.com/watch?v=bp9fzQOyq0o)
-1.  [【テスタvs仮想通貨】投資に仮想通貨はあり?暴落の可能性は？【ReHacQ高橋弘樹vs加納裕三】](https://www.youtube.com/watch?v=ubnixUZTbe8)
-    -   公開日: 2025-09-16
-    -   視聴数: 100,413
-    -   **いいね数: 1,100**
-    -   出演者: ジョー・タカヤマ, [テスタ](/rehacq_fan/people/テスタ "wikilink"), [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ubnixUZTbe8/hqdefault.jpg)](https://www.youtube.com/watch?v=ubnixUZTbe8)
-1.  [【生配信】自民党総裁選・小林鷹之出馬会見 9月16日（火）【ReHacQ】](https://www.youtube.com/watch?v=Xc02fYxC_w0)
-    -   公開日: 2025-09-16
-    -   視聴数: 23,707
-    -   **いいね数: 216**
-    -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink")
-    - [![](https://img.youtube.com/vi/Xc02fYxC_w0/hqdefault.jpg)](https://www.youtube.com/watch?v=Xc02fYxC_w0)
 

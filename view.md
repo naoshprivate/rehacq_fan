@@ -307,8 +307,8 @@
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
     -   公開日: 2025-07-20
-    -   視聴数: 1,097,169
-    -   **いいね数: 8,152**
+    -   視聴数: 1,097,371
+    -   **いいね数: 8,150**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](https://www.youtube.com/watch?v=arcYBqJcY8w)
     -   公開日: 2024-01-27
@@ -425,6 +425,11 @@
     -   視聴数: 947,738
     -   **いいね数: 15,135**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
+1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
+    -   公開日: 2025-02-27
+    -   視聴数: 925,897
+    -   **いいね数: 11,817**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](https://www.youtube.com/watch?v=Lcj1tooXlSk)
     -   公開日: 2025-02-18
     -   視聴数: 923,085
@@ -435,11 +440,6 @@
     -   視聴数: 920,434
     -   **いいね数: 18,170**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
-    -   公開日: 2025-02-27
-    -   視聴数: 920,083
-    -   **いいね数: 11,801**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【ひろゆきvs公明党】創価学会は納得？公明党の存在意義とは？徹底議論…【党宣伝局長が参戦！】](https://www.youtube.com/watch?v=nd1_O8GADYw)
     -   公開日: 2023-09-03
     -   視聴数: 919,319
@@ -482,8 +482,8 @@
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](https://www.youtube.com/watch?v=0mVSxF0JYRs)
     -   公開日: 2025-03-06
-    -   視聴数: 859,369
-    -   **いいね数: 10,672**
+    -   視聴数: 864,737
+    -   **いいね数: 10,690**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【中田敦彦vs高橋弘樹】衝撃告白！兵庫県知事選&自民党総裁選…大物出演の裏側とは？【ReHacQ &YouTube大学コラボ】](https://www.youtube.com/watch?v=ZnXwCAVJ7Gs)
     -   公開日: 2024-12-28
