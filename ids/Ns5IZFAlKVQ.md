@@ -1,11 +1,6 @@
-1.  [【松本人志事件vs後藤達也】文春のドン「職業人の決意」…批判覚悟でメディア出演のわけ【新谷学…激白】](/rehacq_fan/ids/https://www.youtube.com/watch?v=Ns5IZFAlKVQ "wikilink")
-    -   公開日: 2024-03-07
-    -   視聴数: 275,266
-    -   **いいね数: 3,243**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
-1.  [【松本人志事件vs後藤達也】文春のドン「職業人の決意」…批判覚悟でメディア出演のわけ【新谷学…激白】](https://www.youtube.com/watch?v=Ns5IZFAlKVQ)
-    -   公開日: 2024-03-07
-    -   視聴数: 275,266
-    -   **いいね数: 3,243**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
+# [【松本人志事件vs後藤達也】文春のドン「職業人の決意」…批判覚悟でメディア出演のわけ【新谷学…激白】](https://www.youtube.com/watch?v=Ns5IZFAlKVQ)
+-   公開日: 2024-03-07
+-   視聴数: 275,266
+-   **いいね数: 3,243**
+-   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
     - [![](https://img.youtube.com/vi/Ns5IZFAlKVQ/hqdefault.jpg)](https://www.youtube.com/watch?v=Ns5IZFAlKVQ)

@@ -1,11 +1,6 @@
-1.  [【週刊文春vsReHacQ】３ヶ月停職！文春の元編集長の赤裸々告白【文春の考えるジャーナリズムとは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=bzD6STVEA_I "wikilink")
-    -   公開日: 2023-09-21
-    -   視聴数: 537,265
-    -   **いいね数: 8,145**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
-1.  [【週刊文春vsReHacQ】３ヶ月停職！文春の元編集長の赤裸々告白【文春の考えるジャーナリズムとは？】](https://www.youtube.com/watch?v=bzD6STVEA_I)
-    -   公開日: 2023-09-21
-    -   視聴数: 537,265
-    -   **いいね数: 8,145**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
+# [【週刊文春vsReHacQ】３ヶ月停職！文春の元編集長の赤裸々告白【文春の考えるジャーナリズムとは？】](https://www.youtube.com/watch?v=bzD6STVEA_I)
+-   公開日: 2023-09-21
+-   視聴数: 537,265
+-   **いいね数: 8,145**
+-   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [新谷学](/rehacq_fan/people/新谷学 "wikilink")
     - [![](https://img.youtube.com/vi/bzD6STVEA_I/hqdefault.jpg)](https://www.youtube.com/watch?v=bzD6STVEA_I)

@@ -1,11 +1,6 @@
-1.  [【河野太郎】ReHacQ収録後の記者会見を撮ってみた](/rehacq_fan/ids/https://www.youtube.com/watch?v=HBjHT8cotKw "wikilink")
-    -   公開日: 2024-09-11
-    -   視聴数: 31,653
-    -   **いいね数: 439**
-    -   出演者: [河野太郎](/rehacq_fan/people/河野太郎 "wikilink")
-1.  [【河野太郎】ReHacQ収録後の記者会見を撮ってみた](https://www.youtube.com/watch?v=HBjHT8cotKw)
-    -   公開日: 2024-09-11
-    -   視聴数: 31,653
-    -   **いいね数: 439**
-    -   出演者: [河野太郎](/rehacq_fan/people/河野太郎 "wikilink")
+# [【河野太郎】ReHacQ収録後の記者会見を撮ってみた](https://www.youtube.com/watch?v=HBjHT8cotKw)
+-   公開日: 2024-09-11
+-   視聴数: 31,653
+-   **いいね数: 439**
+-   出演者: [河野太郎](/rehacq_fan/people/河野太郎 "wikilink")
     - [![](https://img.youtube.com/vi/HBjHT8cotKw/hqdefault.jpg)](https://www.youtube.com/watch?v=HBjHT8cotKw)

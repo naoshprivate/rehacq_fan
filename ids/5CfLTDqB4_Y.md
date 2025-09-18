@@ -1,11 +1,6 @@
-1.  [【石丸伸二の発言...なぜ炎上？】全文解析！レトリックと文法学ぼう【都知事選で学ぶ国語】](/rehacq_fan/ids/https://www.youtube.com/watch?v=5CfLTDqB4_Y "wikilink")
-    -   公開日: 2024-07-21
-    -   視聴数: 456,017
-    -   **いいね数: 10,569**
-    -   出演者: [尾谷昌則](/rehacq_fan/people/尾谷昌則 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二の発言...なぜ炎上？】全文解析！レトリックと文法学ぼう【都知事選で学ぶ国語】](https://www.youtube.com/watch?v=5CfLTDqB4_Y)
-    -   公開日: 2024-07-21
-    -   視聴数: 456,017
-    -   **いいね数: 10,569**
-    -   出演者: [尾谷昌則](/rehacq_fan/people/尾谷昌則 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【石丸伸二の発言...なぜ炎上？】全文解析！レトリックと文法学ぼう【都知事選で学ぶ国語】](https://www.youtube.com/watch?v=5CfLTDqB4_Y)
+-   公開日: 2024-07-21
+-   視聴数: 456,017
+-   **いいね数: 10,569**
+-   出演者: [尾谷昌則](/rehacq_fan/people/尾谷昌則 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5CfLTDqB4_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=5CfLTDqB4_Y)

@@ -1,11 +1,6 @@
-1.  [【電通辞め起業】魅力ある地方の仕事とは？【井上咲楽】](/rehacq_fan/ids/https://www.youtube.com/watch?v=mIImsSW0lv0 "wikilink")
-    -   公開日: 2025-03-08
-    -   視聴数: 44,627
-    -   **いいね数: 503**
-    -   出演者: [井上咲楽](/rehacq_fan/people/井上咲楽 "wikilink"), 矢野健太, 須藤元
-1.  [【電通辞め起業】魅力ある地方の仕事とは？【井上咲楽】](https://www.youtube.com/watch?v=mIImsSW0lv0)
-    -   公開日: 2025-03-08
-    -   視聴数: 44,627
-    -   **いいね数: 503**
-    -   出演者: [井上咲楽](/rehacq_fan/people/井上咲楽 "wikilink"), 矢野健太, 須藤元
+# [【電通辞め起業】魅力ある地方の仕事とは？【井上咲楽】](https://www.youtube.com/watch?v=mIImsSW0lv0)
+-   公開日: 2025-03-08
+-   視聴数: 44,627
+-   **いいね数: 503**
+-   出演者: [井上咲楽](/rehacq_fan/people/井上咲楽 "wikilink"), 矢野健太, 須藤元
     - [![](https://img.youtube.com/vi/mIImsSW0lv0/hqdefault.jpg)](https://www.youtube.com/watch?v=mIImsSW0lv0)

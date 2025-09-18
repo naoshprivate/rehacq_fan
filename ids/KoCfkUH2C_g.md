@@ -1,11 +1,6 @@
-1.  [【高橋弘樹vs東大医学部教授】天才の思考法！学生時代に何考えて生きてた？【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=KoCfkUH2C_g "wikilink")
-    -   公開日: 2024-11-11
-    -   視聴数: 130,382
-    -   **いいね数: 1,992**
-    -   出演者: 上田泰己, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs東大医学部教授】天才の思考法！学生時代に何考えて生きてた？【ReHacQ】](https://www.youtube.com/watch?v=KoCfkUH2C_g)
-    -   公開日: 2024-11-11
-    -   視聴数: 130,382
-    -   **いいね数: 1,992**
-    -   出演者: 上田泰己, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【高橋弘樹vs東大医学部教授】天才の思考法！学生時代に何考えて生きてた？【ReHacQ】](https://www.youtube.com/watch?v=KoCfkUH2C_g)
+-   公開日: 2024-11-11
+-   視聴数: 130,382
+-   **いいね数: 1,992**
+-   出演者: 上田泰己, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/KoCfkUH2C_g/hqdefault.jpg)](https://www.youtube.com/watch?v=KoCfkUH2C_g)

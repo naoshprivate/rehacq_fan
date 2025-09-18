@@ -1,11 +1,6 @@
-1.  [【緊急生配信】東京都知事選2024！ラストボイス④【田母神としお】](/rehacq_fan/ids/https://www.youtube.com/watch?v=wappac7MfkQ "wikilink")
-    -   公開日: 2024-07-05
-    -   視聴数: 39,771
-    -   **いいね数: 1,175**
-    -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【緊急生配信】東京都知事選2024！ラストボイス④【田母神としお】](https://www.youtube.com/watch?v=wappac7MfkQ)
-    -   公開日: 2024-07-05
-    -   視聴数: 39,771
-    -   **いいね数: 1,175**
-    -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【緊急生配信】東京都知事選2024！ラストボイス④【田母神としお】](https://www.youtube.com/watch?v=wappac7MfkQ)
+-   公開日: 2024-07-05
+-   視聴数: 39,771
+-   **いいね数: 1,175**
+-   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/wappac7MfkQ/hqdefault.jpg)](https://www.youtube.com/watch?v=wappac7MfkQ)

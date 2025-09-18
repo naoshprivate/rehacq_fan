@@ -1,11 +1,6 @@
-1.  [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](/rehacq_fan/ids/https://www.youtube.com/watch?v=MblAcX9u9s0 "wikilink")
-    -   公開日: 2024-02-29
-    -   視聴数: 81,664
-    -   **いいね数: 1,297**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](https://www.youtube.com/watch?v=MblAcX9u9s0)
-    -   公開日: 2024-02-29
-    -   視聴数: 81,664
-    -   **いいね数: 1,297**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](https://www.youtube.com/watch?v=MblAcX9u9s0)
+-   公開日: 2024-02-29
+-   視聴数: 81,664
+-   **いいね数: 1,297**
+-   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MblAcX9u9s0/hqdefault.jpg)](https://www.youtube.com/watch?v=MblAcX9u9s0)

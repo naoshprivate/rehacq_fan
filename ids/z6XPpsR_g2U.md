@@ -1,11 +1,6 @@
-1.  [【ひろゆきvs国民民主党】激論！国民民主党の存在意義はなんだ【伊藤孝恵vs西田亮介】](/rehacq_fan/ids/https://www.youtube.com/watch?v=z6XPpsR_g2U "wikilink")
-    -   公開日: 2023-12-24
-    -   視聴数: 199,154
-    -   **いいね数: 2,405**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ひろゆきvs国民民主党】激論！国民民主党の存在意義はなんだ【伊藤孝恵vs西田亮介】](https://www.youtube.com/watch?v=z6XPpsR_g2U)
-    -   公開日: 2023-12-24
-    -   視聴数: 199,154
-    -   **いいね数: 2,405**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+# [【ひろゆきvs国民民主党】激論！国民民主党の存在意義はなんだ【伊藤孝恵vs西田亮介】](https://www.youtube.com/watch?v=z6XPpsR_g2U)
+-   公開日: 2023-12-24
+-   視聴数: 199,154
+-   **いいね数: 2,405**
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/z6XPpsR_g2U/hqdefault.jpg)](https://www.youtube.com/watch?v=z6XPpsR_g2U)

@@ -1,11 +1,6 @@
-1.  [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=hqXxXlDZN5A "wikilink")
-    -   公開日: 2024-04-10
-    -   視聴数: 62,207
-    -   **いいね数: 912**
-    -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](https://www.youtube.com/watch?v=hqXxXlDZN5A)
-    -   公開日: 2024-04-10
-    -   視聴数: 62,207
-    -   **いいね数: 912**
-    -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【猪子寿之vs高橋弘樹】教養としての「チームラボ」【美の奥にある思想とは？】](https://www.youtube.com/watch?v=hqXxXlDZN5A)
+-   公開日: 2024-04-10
+-   視聴数: 62,207
+-   **いいね数: 912**
+-   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [猪子寿之](/rehacq_fan/people/猪子寿之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/hqXxXlDZN5A/hqdefault.jpg)](https://www.youtube.com/watch?v=hqXxXlDZN5A)

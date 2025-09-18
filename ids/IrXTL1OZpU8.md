@@ -1,11 +1,6 @@
-1.  [【高橋弘樹vs財務省のエリート】退職し給料1/3！東大卒苦労人の挑戦【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=IrXTL1OZpU8 "wikilink")
-    -   公開日: 2025-03-26
-    -   視聴数: 75,969
-    -   **いいね数: 987**
-    -   出演者: 中村仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs財務省のエリート】退職し給料1/3！東大卒苦労人の挑戦【ReHacQ】](https://www.youtube.com/watch?v=IrXTL1OZpU8)
-    -   公開日: 2025-03-26
-    -   視聴数: 75,969
-    -   **いいね数: 987**
-    -   出演者: 中村仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【高橋弘樹vs財務省のエリート】退職し給料1/3！東大卒苦労人の挑戦【ReHacQ】](https://www.youtube.com/watch?v=IrXTL1OZpU8)
+-   公開日: 2025-03-26
+-   視聴数: 76,114
+-   **いいね数: 988**
+-   出演者: 中村仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/IrXTL1OZpU8/hqdefault.jpg)](https://www.youtube.com/watch?v=IrXTL1OZpU8)

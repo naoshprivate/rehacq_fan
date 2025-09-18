@@ -1,11 +1,6 @@
-1.  [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](/rehacq_fan/ids/https://www.youtube.com/watch?v=valNrdZIvz0 "wikilink")
-    -   公開日: 2025-08-13
-    -   視聴数: 248,218
-    -   **いいね数: 7,185**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](https://www.youtube.com/watch?v=valNrdZIvz0)
-    -   公開日: 2025-08-13
-    -   視聴数: 248,218
-    -   **いいね数: 7,185**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+# [【ひろゆきvs能登】震災から１年７ヶ月…能登の今、ReHacQ旅【後藤達也】](https://www.youtube.com/watch?v=valNrdZIvz0)
+-   公開日: 2025-08-13
+-   視聴数: 248,218
+-   **いいね数: 7,185**
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/valNrdZIvz0/hqdefault.jpg)](https://www.youtube.com/watch?v=valNrdZIvz0)

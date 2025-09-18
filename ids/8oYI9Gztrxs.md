@@ -1,11 +1,6 @@
-1.  [【石丸伸二vs須藤元気】居酒屋でベロベロ！「玉木、がんばれ！！」須藤元気が酔って本音激白【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=8oYI9Gztrxs "wikilink")
-    -   公開日: 2024-12-27
-    -   視聴数: 509,439
-    -   **いいね数: 11,928**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink")
-1.  [【石丸伸二vs須藤元気】居酒屋でベロベロ！「玉木、がんばれ！！」須藤元気が酔って本音激白【ReHacQ】](https://www.youtube.com/watch?v=8oYI9Gztrxs)
-    -   公開日: 2024-12-27
-    -   視聴数: 509,439
-    -   **いいね数: 11,928**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink")
+# [【石丸伸二vs須藤元気】居酒屋でベロベロ！「玉木、がんばれ！！」須藤元気が酔って本音激白【ReHacQ】](https://www.youtube.com/watch?v=8oYI9Gztrxs)
+-   公開日: 2024-12-27
+-   視聴数: 509,439
+-   **いいね数: 11,928**
+-   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [須藤元気](/rehacq_fan/people/須藤元気 "wikilink")
     - [![](https://img.youtube.com/vi/8oYI9Gztrxs/hqdefault.jpg)](https://www.youtube.com/watch?v=8oYI9Gztrxs)

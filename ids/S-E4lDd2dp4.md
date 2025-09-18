@@ -1,11 +1,6 @@
-1.  [【ReHacQ vs 元野村総研】大企業を辞め...女一人社長のリアルな悩みとは【赤裸々告白】](/rehacq_fan/ids/https://www.youtube.com/watch?v=S-E4lDd2dp4 "wikilink")
-    -   公開日: 2024-07-26
-    -   視聴数: 130,618
-    -   **いいね数: 1,747**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ReHacQ vs 元野村総研】大企業を辞め...女一人社長のリアルな悩みとは【赤裸々告白】](https://www.youtube.com/watch?v=S-E4lDd2dp4)
-    -   公開日: 2024-07-26
-    -   視聴数: 130,618
-    -   **いいね数: 1,747**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【ReHacQ vs 元野村総研】大企業を辞め...女一人社長のリアルな悩みとは【赤裸々告白】](https://www.youtube.com/watch?v=S-E4lDd2dp4)
+-   公開日: 2024-07-26
+-   視聴数: 130,618
+-   **いいね数: 1,747**
+-   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/S-E4lDd2dp4/hqdefault.jpg)](https://www.youtube.com/watch?v=S-E4lDd2dp4)

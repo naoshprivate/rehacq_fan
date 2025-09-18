@@ -1,11 +1,6 @@
-1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/https://www.youtube.com/watch?v=KihRlwlSPCI "wikilink")
-    -   公開日: 2025-07-12
-    -   視聴数: 609,357
-    -   **いいね数: 18,607**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](https://www.youtube.com/watch?v=KihRlwlSPCI)
-    -   公開日: 2025-07-12
-    -   視聴数: 609,357
-    -   **いいね数: 18,607**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](https://www.youtube.com/watch?v=KihRlwlSPCI)
+-   公開日: 2025-07-12
+-   視聴数: 609,357
+-   **いいね数: 18,607**
+-   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/KihRlwlSPCI/hqdefault.jpg)](https://www.youtube.com/watch?v=KihRlwlSPCI)

@@ -1,11 +1,6 @@
-1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=RwjSzGvyEoA "wikilink")
-    -   公開日: 2025-06-10
-    -   視聴数: 696,255
-    -   **いいね数: 14,683**
-    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
-    -   公開日: 2025-06-10
-    -   視聴数: 696,255
-    -   **いいね数: 14,683**
-    -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](https://www.youtube.com/watch?v=RwjSzGvyEoA)
+-   公開日: 2025-06-10
+-   視聴数: 696,255
+-   **いいね数: 14,683**
+-   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/RwjSzGvyEoA/hqdefault.jpg)](https://www.youtube.com/watch?v=RwjSzGvyEoA)

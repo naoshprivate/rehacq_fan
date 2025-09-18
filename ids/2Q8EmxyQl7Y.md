@@ -1,11 +1,6 @@
-1.  [【辞めメルカリ→ライドシェア風雲児】なぜ転身？日本から１兆円企業を生み出すには【辞めZOZO幹部→ホテル業界革命家】](/rehacq_fan/ids/https://www.youtube.com/watch?v=2Q8EmxyQl7Y "wikilink")
-    -   公開日: 2024-08-05
-    -   視聴数: 31,246
-    -   **いいね数: 326**
-    -   出演者: 濱渦伸次, 青柳直樹
-1.  [【辞めメルカリ→ライドシェア風雲児】なぜ転身？日本から１兆円企業を生み出すには【辞めZOZO幹部→ホテル業界革命家】](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)
-    -   公開日: 2024-08-05
-    -   視聴数: 31,246
-    -   **いいね数: 326**
-    -   出演者: 濱渦伸次, 青柳直樹
+# [【辞めメルカリ→ライドシェア風雲児】なぜ転身？日本から１兆円企業を生み出すには【辞めZOZO幹部→ホテル業界革命家】](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)
+-   公開日: 2024-08-05
+-   視聴数: 31,246
+-   **いいね数: 326**
+-   出演者: 濱渦伸次, 青柳直樹
     - [![](https://img.youtube.com/vi/2Q8EmxyQl7Y/hqdefault.jpg)](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)

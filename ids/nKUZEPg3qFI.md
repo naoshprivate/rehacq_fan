@@ -1,11 +1,6 @@
-1.  [【松本人志、中居正広問題を考える】YESを信じると事件に…ハーバード大学准教授・内田舞が語る「同意」とは？【ReHacQ・奥井奈々】](/rehacq_fan/ids/https://www.youtube.com/watch?v=nKUZEPg3qFI "wikilink")
-    -   公開日: 2025-01-07
-    -   視聴数: 163,193
-    -   **いいね数: 2,176**
-    -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink")
-1.  [【松本人志、中居正広問題を考える】YESを信じると事件に…ハーバード大学准教授・内田舞が語る「同意」とは？【ReHacQ・奥井奈々】](https://www.youtube.com/watch?v=nKUZEPg3qFI)
-    -   公開日: 2025-01-07
-    -   視聴数: 163,193
-    -   **いいね数: 2,176**
-    -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink")
+# [【松本人志、中居正広問題を考える】YESを信じると事件に…ハーバード大学准教授・内田舞が語る「同意」とは？【ReHacQ・奥井奈々】](https://www.youtube.com/watch?v=nKUZEPg3qFI)
+-   公開日: 2025-01-07
+-   視聴数: 163,193
+-   **いいね数: 2,176**
+-   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink")
     - [![](https://img.youtube.com/vi/nKUZEPg3qFI/hqdefault.jpg)](https://www.youtube.com/watch?v=nKUZEPg3qFI)

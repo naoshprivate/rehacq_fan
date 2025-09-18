@@ -1,11 +1,6 @@
-1.  [【成田悠輔の師匠っぽい男】ノーベル賞学者が小島に語った「天才育成法」【根本論】](/rehacq_fan/ids/https://www.youtube.com/watch?v=N4VizqzLR6M "wikilink")
-    -   公開日: 2023-04-29
-    -   視聴数: 190,026
-    -   **いいね数: 3,384**
-    -   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【成田悠輔の師匠っぽい男】ノーベル賞学者が小島に語った「天才育成法」【根本論】](https://www.youtube.com/watch?v=N4VizqzLR6M)
-    -   公開日: 2023-04-29
-    -   視聴数: 190,026
-    -   **いいね数: 3,384**
-    -   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【成田悠輔の師匠っぽい男】ノーベル賞学者が小島に語った「天才育成法」【根本論】](https://www.youtube.com/watch?v=N4VizqzLR6M)
+-   公開日: 2023-04-29
+-   視聴数: 190,026
+-   **いいね数: 3,384**
+-   出演者: 小島武仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/N4VizqzLR6M/hqdefault.jpg)](https://www.youtube.com/watch?v=N4VizqzLR6M)

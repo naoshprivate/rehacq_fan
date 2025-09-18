@@ -1,11 +1,6 @@
-1.  [【ReHacQvsバンクアカデミー】相互関税で世界貿易戦争へ…!?2025年波乱相場どう乗り切る？【新NISAvs小林亮平】](/rehacq_fan/ids/https://www.youtube.com/watch?v=8cTJabLTw-4 "wikilink")
-    -   公開日: 2025-08-16
-    -   視聴数: 96,831
-    -   **いいね数: 345**
-    -   出演者: 小林亮平, [横川楓](/rehacq_fan/people/横川楓 "wikilink")
-1.  [【ReHacQvsバンクアカデミー】相互関税で世界貿易戦争へ…!?2025年波乱相場どう乗り切る？【新NISAvs小林亮平】](https://www.youtube.com/watch?v=8cTJabLTw-4)
-    -   公開日: 2025-08-16
-    -   視聴数: 96,831
-    -   **いいね数: 345**
-    -   出演者: 小林亮平, [横川楓](/rehacq_fan/people/横川楓 "wikilink")
+# [【ReHacQvsバンクアカデミー】相互関税で世界貿易戦争へ…!?2025年波乱相場どう乗り切る？【新NISAvs小林亮平】](https://www.youtube.com/watch?v=8cTJabLTw-4)
+-   公開日: 2025-08-16
+-   視聴数: 96,831
+-   **いいね数: 345**
+-   出演者: 小林亮平, [横川楓](/rehacq_fan/people/横川楓 "wikilink")
     - [![](https://img.youtube.com/vi/8cTJabLTw-4/hqdefault.jpg)](https://www.youtube.com/watch?v=8cTJabLTw-4)

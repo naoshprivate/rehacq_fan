@@ -1,11 +1,6 @@
-1.  [【ハーバード大学准教授の子育て】母の怒り！キャリアと子育て諦めないためには？ボストン大学助教授が激論【塩田佳代子VS内田舞vs藤井サチReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=oyMrAAxdbRo "wikilink")
-    -   公開日: 2025-03-24
-    -   視聴数: 36,392
-    -   **いいね数: 849**
-    -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
-1.  [【ハーバード大学准教授の子育て】母の怒り！キャリアと子育て諦めないためには？ボストン大学助教授が激論【塩田佳代子VS内田舞vs藤井サチReHacQ】](https://www.youtube.com/watch?v=oyMrAAxdbRo)
-    -   公開日: 2025-03-24
-    -   視聴数: 36,392
-    -   **いいね数: 849**
-    -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
+# [【ハーバード大学准教授の子育て】母の怒り！キャリアと子育て諦めないためには？ボストン大学助教授が激論【塩田佳代子VS内田舞vs藤井サチReHacQ】](https://www.youtube.com/watch?v=oyMrAAxdbRo)
+-   公開日: 2025-03-24
+-   視聴数: 36,392
+-   **いいね数: 849**
+-   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
     - [![](https://img.youtube.com/vi/oyMrAAxdbRo/hqdefault.jpg)](https://www.youtube.com/watch?v=oyMrAAxdbRo)

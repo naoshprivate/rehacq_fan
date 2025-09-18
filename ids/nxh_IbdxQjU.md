@@ -1,11 +1,6 @@
-1.  [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](/rehacq_fan/ids/https://www.youtube.com/watch?v=nxh_IbdxQjU "wikilink")
-    -   公開日: 2024-01-13
-    -   視聴数: 56,982
-    -   **いいね数: 721**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
-1.  [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](https://www.youtube.com/watch?v=nxh_IbdxQjU)
-    -   公開日: 2024-01-13
-    -   視聴数: 56,982
-    -   **いいね数: 721**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
+# [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](https://www.youtube.com/watch?v=nxh_IbdxQjU)
+-   公開日: 2024-01-13
+-   視聴数: 56,982
+-   **いいね数: 721**
+-   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
     - [![](https://img.youtube.com/vi/nxh_IbdxQjU/hqdefault.jpg)](https://www.youtube.com/watch?v=nxh_IbdxQjU)

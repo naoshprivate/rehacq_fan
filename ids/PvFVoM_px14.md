@@ -1,11 +1,6 @@
-1.  [【高橋弘樹vsエリート外交官】気候変動の超エースが衝撃退社！なぜ？G20大阪終え…憂国の退官【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=PvFVoM_px14 "wikilink")
-    -   公開日: 2025-08-27
-    -   視聴数: 83,424
-    -   **いいね数: 927**
-    -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vsエリート外交官】気候変動の超エースが衝撃退社！なぜ？G20大阪終え…憂国の退官【ReHacQ】](https://www.youtube.com/watch?v=PvFVoM_px14)
-    -   公開日: 2025-08-27
-    -   視聴数: 83,424
-    -   **いいね数: 927**
-    -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【高橋弘樹vsエリート外交官】気候変動の超エースが衝撃退社！なぜ？G20大阪終え…憂国の退官【ReHacQ】](https://www.youtube.com/watch?v=PvFVoM_px14)
+-   公開日: 2025-08-27
+-   視聴数: 83,424
+-   **いいね数: 927**
+-   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/PvFVoM_px14/hqdefault.jpg)](https://www.youtube.com/watch?v=PvFVoM_px14)

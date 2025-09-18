@@ -1,11 +1,6 @@
-1.  [【後藤達也vs財務大臣】消費税どうなる？トランプ関税は？金利は？減税と財務規律...加藤勝信氏が激白の90分【ReHacQ高橋弘樹】](/rehacq_fan/ids/https://www.youtube.com/watch?v=EnKWdlsCKB0 "wikilink")
-    -   公開日: 2025-06-05
-    -   視聴数: 167,689
-    -   **いいね数: 2,246**
-    -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【後藤達也vs財務大臣】消費税どうなる？トランプ関税は？金利は？減税と財務規律...加藤勝信氏が激白の90分【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=EnKWdlsCKB0)
-    -   公開日: 2025-06-05
-    -   視聴数: 167,689
-    -   **いいね数: 2,246**
-    -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+# [【後藤達也vs財務大臣】消費税どうなる？トランプ関税は？金利は？減税と財務規律...加藤勝信氏が激白の90分【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=EnKWdlsCKB0)
+-   公開日: 2025-06-05
+-   視聴数: 167,689
+-   **いいね数: 2,246**
+-   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/EnKWdlsCKB0/hqdefault.jpg)](https://www.youtube.com/watch?v=EnKWdlsCKB0)

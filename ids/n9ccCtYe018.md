@@ -1,11 +1,6 @@
-1.  [【フジテレビvs大株主ダルトン】株主総会で直接対決！フジの新取締役は誰？清水社長の進退は？【ReHacQ 高橋弘樹】](/rehacq_fan/ids/https://www.youtube.com/watch?v=n9ccCtYe018 "wikilink")
-    -   公開日: 2025-06-16
-    -   視聴数: 112,319
-    -   **いいね数: 1,320**
-    -   出演者: 西田真澄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【フジテレビvs大株主ダルトン】株主総会で直接対決！フジの新取締役は誰？清水社長の進退は？【ReHacQ 高橋弘樹】](https://www.youtube.com/watch?v=n9ccCtYe018)
-    -   公開日: 2025-06-16
-    -   視聴数: 112,319
-    -   **いいね数: 1,320**
-    -   出演者: 西田真澄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【フジテレビvs大株主ダルトン】株主総会で直接対決！フジの新取締役は誰？清水社長の進退は？【ReHacQ 高橋弘樹】](https://www.youtube.com/watch?v=n9ccCtYe018)
+-   公開日: 2025-06-16
+-   視聴数: 112,319
+-   **いいね数: 1,320**
+-   出演者: 西田真澄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/n9ccCtYe018/hqdefault.jpg)](https://www.youtube.com/watch?v=n9ccCtYe018)

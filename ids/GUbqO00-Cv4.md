@@ -1,11 +1,6 @@
-1.  [【ひろゆきvs石丸伸二】深夜のまったり雑談！参院選終え日本は変わる？【後藤達也vs高橋弘樹】](/rehacq_fan/ids/https://www.youtube.com/watch?v=GUbqO00-Cv4 "wikilink")
-    -   公開日: 2025-09-07
-    -   視聴数: 425,171
-    -   **いいね数: 10,941**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs石丸伸二】深夜のまったり雑談！参院選終え日本は変わる？【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=GUbqO00-Cv4)
-    -   公開日: 2025-09-07
-    -   視聴数: 425,171
-    -   **いいね数: 10,941**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【ひろゆきvs石丸伸二】深夜のまったり雑談！参院選終え日本は変わる？【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=GUbqO00-Cv4)
+-   公開日: 2025-09-07
+-   視聴数: 425,171
+-   **いいね数: 10,941**
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GUbqO00-Cv4/hqdefault.jpg)](https://www.youtube.com/watch?v=GUbqO00-Cv4)

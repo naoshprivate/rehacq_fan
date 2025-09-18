@@ -1,11 +1,6 @@
-1.  [【東出昌大vs高橋弘樹】ウソと真実…東出昌大が魂の告白【世界の果てにひろゆき置いてきた】](/rehacq_fan/ids/https://www.youtube.com/watch?v=kz9VfPZWXGk "wikilink")
-    -   公開日: 2024-02-13
-    -   視聴数: 628,454
-    -   **いいね数: 7,997**
-    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【東出昌大vs高橋弘樹】ウソと真実…東出昌大が魂の告白【世界の果てにひろゆき置いてきた】](https://www.youtube.com/watch?v=kz9VfPZWXGk)
-    -   公開日: 2024-02-13
-    -   視聴数: 628,454
-    -   **いいね数: 7,997**
-    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【東出昌大vs高橋弘樹】ウソと真実…東出昌大が魂の告白【世界の果てにひろゆき置いてきた】](https://www.youtube.com/watch?v=kz9VfPZWXGk)
+-   公開日: 2024-02-13
+-   視聴数: 628,454
+-   **いいね数: 7,997**
+-   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/kz9VfPZWXGk/hqdefault.jpg)](https://www.youtube.com/watch?v=kz9VfPZWXGk)

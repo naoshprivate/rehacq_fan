@@ -1,11 +1,6 @@
-1.  [【ReHacQキャリア塾】年功序列は悪？32歳で執行役員になるための「出世術」とは？【就活生必見！】](/rehacq_fan/ids/https://www.youtube.com/watch?v=D0Z_KeBndWI "wikilink")
-    -   公開日: 2023-11-21
-    -   視聴数: 46,607
-    -   **いいね数: 535**
-    -   出演者: 木下治紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ReHacQキャリア塾】年功序列は悪？32歳で執行役員になるための「出世術」とは？【就活生必見！】](https://www.youtube.com/watch?v=D0Z_KeBndWI)
-    -   公開日: 2023-11-21
-    -   視聴数: 46,607
-    -   **いいね数: 535**
-    -   出演者: 木下治紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【ReHacQキャリア塾】年功序列は悪？32歳で執行役員になるための「出世術」とは？【就活生必見！】](https://www.youtube.com/watch?v=D0Z_KeBndWI)
+-   公開日: 2023-11-21
+-   視聴数: 46,607
+-   **いいね数: 535**
+-   出演者: 木下治紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/D0Z_KeBndWI/hqdefault.jpg)](https://www.youtube.com/watch?v=D0Z_KeBndWI)

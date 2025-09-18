@@ -1,11 +1,6 @@
-1.  [【後藤達也vsみずほ銀行エコノミスト】為替リスクに備えよ！【新時代の赤字とは？】](/rehacq_fan/ids/https://www.youtube.com/watch?v=EoqnXuoYT2s "wikilink")
-    -   公開日: 2023-10-12
-    -   視聴数: 409,865
-    -   **いいね数: 4,707**
-    -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【後藤達也vsみずほ銀行エコノミスト】為替リスクに備えよ！【新時代の赤字とは？】](https://www.youtube.com/watch?v=EoqnXuoYT2s)
-    -   公開日: 2023-10-12
-    -   視聴数: 409,865
-    -   **いいね数: 4,707**
-    -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+# [【後藤達也vsみずほ銀行エコノミスト】為替リスクに備えよ！【新時代の赤字とは？】](https://www.youtube.com/watch?v=EoqnXuoYT2s)
+-   公開日: 2023-10-12
+-   視聴数: 409,865
+-   **いいね数: 4,707**
+-   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/EoqnXuoYT2s/hqdefault.jpg)](https://www.youtube.com/watch?v=EoqnXuoYT2s)

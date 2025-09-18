@@ -1,11 +1,6 @@
-1.  [【石丸伸二が尊敬する男】前市長と激論！奈良県知事vs奈良県議！K-POP問題の真相は？【山下真vs永田恒】](/rehacq_fan/ids/https://www.youtube.com/watch?v=pSOPJHdu0ww "wikilink")
-    -   公開日: 2025-04-03
-    -   視聴数: 112,552
-    -   **いいね数: 1,656**
-    -   出演者: [山下真](/rehacq_fan/people/山下真 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【石丸伸二が尊敬する男】前市長と激論！奈良県知事vs奈良県議！K-POP問題の真相は？【山下真vs永田恒】](https://www.youtube.com/watch?v=pSOPJHdu0ww)
-    -   公開日: 2025-04-03
-    -   視聴数: 112,552
-    -   **いいね数: 1,656**
-    -   出演者: [山下真](/rehacq_fan/people/山下真 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【石丸伸二が尊敬する男】前市長と激論！奈良県知事vs奈良県議！K-POP問題の真相は？【山下真vs永田恒】](https://www.youtube.com/watch?v=pSOPJHdu0ww)
+-   公開日: 2025-04-03
+-   視聴数: 112,552
+-   **いいね数: 1,656**
+-   出演者: [山下真](/rehacq_fan/people/山下真 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/pSOPJHdu0ww/hqdefault.jpg)](https://www.youtube.com/watch?v=pSOPJHdu0ww)

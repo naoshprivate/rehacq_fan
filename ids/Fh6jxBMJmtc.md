@@ -1,11 +1,6 @@
-1.  [【成田修造vs不動産投資②】プロが伝授！投資物件の見分け方と落とし穴【vs登坂淳一】](/rehacq_fan/ids/https://www.youtube.com/watch?v=Fh6jxBMJmtc "wikilink")
-    -   公開日: 2024-12-02
-    -   視聴数: 91,782
-    -   **いいね数: 1,194**
-    -   出演者: [クックジュリアン聖也](/rehacq_fan/people/クックジュリアン聖也 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [登坂淳一](/rehacq_fan/people/登坂淳一 "wikilink")
-1.  [【成田修造vs不動産投資②】プロが伝授！投資物件の見分け方と落とし穴【vs登坂淳一】](https://www.youtube.com/watch?v=Fh6jxBMJmtc)
-    -   公開日: 2024-12-02
-    -   視聴数: 91,782
-    -   **いいね数: 1,194**
-    -   出演者: [クックジュリアン聖也](/rehacq_fan/people/クックジュリアン聖也 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [登坂淳一](/rehacq_fan/people/登坂淳一 "wikilink")
+# [【成田修造vs不動産投資②】プロが伝授！投資物件の見分け方と落とし穴【vs登坂淳一】](https://www.youtube.com/watch?v=Fh6jxBMJmtc)
+-   公開日: 2024-12-02
+-   視聴数: 91,782
+-   **いいね数: 1,194**
+-   出演者: [クックジュリアン聖也](/rehacq_fan/people/クックジュリアン聖也 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [登坂淳一](/rehacq_fan/people/登坂淳一 "wikilink")
     - [![](https://img.youtube.com/vi/Fh6jxBMJmtc/hqdefault.jpg)](https://www.youtube.com/watch?v=Fh6jxBMJmtc)

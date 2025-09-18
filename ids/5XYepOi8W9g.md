@@ -1,11 +1,6 @@
-1.  [没](/rehacq_fan/ids/https://www.youtube.com/watch?v=5XYepOi8W9g "wikilink")
-    -   公開日: 2025-09-16
-    -   視聴数: 4
-    -   **いいね数: 2**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-1.  [没](https://www.youtube.com/watch?v=5XYepOi8W9g)
-    -   公開日: 2025-09-16
-    -   視聴数: 4
-    -   **いいね数: 2**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
+# [没](https://www.youtube.com/watch?v=5XYepOi8W9g)
+-   公開日: 2025-09-16
+-   視聴数: 4
+-   **いいね数: 2**
+-   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/5XYepOi8W9g/hqdefault.jpg)](https://www.youtube.com/watch?v=5XYepOi8W9g)

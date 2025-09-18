@@ -1,11 +1,6 @@
-1.  [【成田悠輔の飲み友達】東大准教授の安泰捨て…起業のワケ【真のユニコーン目指す】](/rehacq_fan/ids/https://www.youtube.com/watch?v=m7KwPX9J0l4 "wikilink")
-    -   公開日: 2023-12-15
-    -   視聴数: 100,167
-    -   **いいね数: 1,358**
-    -   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【成田悠輔の飲み友達】東大准教授の安泰捨て…起業のワケ【真のユニコーン目指す】](https://www.youtube.com/watch?v=m7KwPX9J0l4)
-    -   公開日: 2023-12-15
-    -   視聴数: 100,167
-    -   **いいね数: 1,358**
-    -   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+# [【成田悠輔の飲み友達】東大准教授の安泰捨て…起業のワケ【真のユニコーン目指す】](https://www.youtube.com/watch?v=m7KwPX9J0l4)
+-   公開日: 2023-12-15
+-   視聴数: 100,167
+-   **いいね数: 1,358**
+-   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/m7KwPX9J0l4/hqdefault.jpg)](https://www.youtube.com/watch?v=m7KwPX9J0l4)

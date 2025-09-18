@@ -1,11 +1,6 @@
-1.  [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](/rehacq_fan/ids/https://www.youtube.com/watch?v=XOZukE5vBPQ "wikilink")
-    -   公開日: 2025-03-20
-    -   視聴数: 71,102
-    -   **いいね数: 850**
-    -   出演者: 宇野康秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-1.  [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=XOZukE5vBPQ)
-    -   公開日: 2025-03-20
-    -   視聴数: 71,102
-    -   **いいね数: 850**
-    -   出演者: 宇野康秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+# [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](https://www.youtube.com/watch?v=XOZukE5vBPQ)
+-   公開日: 2025-03-20
+-   視聴数: 71,102
+-   **いいね数: 850**
+-   出演者: 宇野康秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/XOZukE5vBPQ/hqdefault.jpg)](https://www.youtube.com/watch?v=XOZukE5vBPQ)

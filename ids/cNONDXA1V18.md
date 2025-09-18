@@ -1,11 +1,6 @@
-1.  [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](/rehacq_fan/ids/https://www.youtube.com/watch?v=cNONDXA1V18 "wikilink")
-    -   公開日: 2025-08-02
-    -   視聴数: 378,627
-    -   **いいね数: 7,787**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](https://www.youtube.com/watch?v=cNONDXA1V18)
-    -   公開日: 2025-08-02
-    -   視聴数: 378,627
-    -   **いいね数: 7,787**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+# [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](https://www.youtube.com/watch?v=cNONDXA1V18)
+-   公開日: 2025-08-02
+-   視聴数: 378,627
+-   **いいね数: 7,787**
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
     - [![](https://img.youtube.com/vi/cNONDXA1V18/hqdefault.jpg)](https://www.youtube.com/watch?v=cNONDXA1V18)
