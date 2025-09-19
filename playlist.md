@@ -1,28 +1,28 @@
 # プレイリスト (305): ReHacQ SP /  ReHacQTV
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](/rehacq_fan/ids/2DZQwsjuZJE "wikilink")
     -   公開日: 2025-09-17
-    -   視聴数: 118,504
-    -   **いいね数: 1,673**
+    -   視聴数: 118,954
+    -   **いいね数: 1,675**
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【優秀な人ほど失敗する】できるプレーヤーがなぜ？３万人の研修実績で磨かれた部下のマネジメント法とは？【肉乃小路ニクヨ】](/rehacq_fan/ids/RQx0Se_RJi4 "wikilink")
     -   公開日: 2025-08-29
-    -   視聴数: 44,425
-    -   **いいね数: 646**
+    -   視聴数: 44,906
+    -   **いいね数: 650**
     -   出演者: 橋本拓也, [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink")
 1.  [【情報格差が子供の進路に直結】大学入試も視野に！？経験者ママたちが教えるコスパ・タイパ最強の中学受験とは？【呂布カルマ】](/rehacq_fan/ids/-1nRgmMLc0U "wikilink")
     -   公開日: 2025-08-26
-    -   視聴数: 46,971
-    -   **いいね数: 423**
+    -   視聴数: 47,754
+    -   **いいね数: 426**
     -   出演者: 中村祥子, 佐野倫子, [呂布カルマ](/rehacq_fan/people/呂布カルマ "wikilink"), 宮本さおり
 1.  [【斉藤幸平vsイスラエル】200人が殺害…なぜ世界はパレスチナに沈黙するのか_パレスチナ問題の真実【ReHacQ】](/rehacq_fan/ids/sDwgzxWvwwg "wikilink")
     -   公開日: 2025-08-25
-    -   視聴数: 39,086
-    -   **いいね数: 663**
+    -   視聴数: 39,930
+    -   **いいね数: 684**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [箱田徹](/rehacq_fan/people/箱田徹 "wikilink")
 1.  [【高橋弘樹vs長尾一洋】兵法書「孫子」から学ぶ！現代企業の経営戦略とは…!?【孫子兵法家】](/rehacq_fan/ids/BAE7mqXcRNI "wikilink")
     -   公開日: 2025-08-23
-    -   視聴数: 45,217
-    -   **いいね数: 645**
+    -   視聴数: 45,471
+    -   **いいね数: 646**
     -   出演者: 長尾一洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参政党と金】なぜ？参政党のお金の流れを徹底研究【ReHacQ高橋弘樹】](/rehacq_fan/ids/PBFyp-7cJdo "wikilink")
     -   公開日: 2025-08-10
@@ -201,8 +201,8 @@
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【節約オタクふゆこVS正直FP】情報弱者にならないマネー講座！社会保険・国民保険の事実とは？【ReHacQ】](/rehacq_fan/ids/vgHOnZ1a2hg "wikilink")
     -   公開日: 2025-07-09
-    -   視聴数: 93,487
-    -   **いいね数: 947**
+    -   視聴数: 93,908
+    -   **いいね数: 954**
     -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 菱田雅生
 1.  [【公明党代表vs高橋弘樹】公明党にNG無し質問！毎年数兆円の財源は？【斉藤鉄夫vsReHacQ】](/rehacq_fan/ids/LX3Ro3GwfAw "wikilink")
     -   公開日: 2025-07-08
@@ -261,22 +261,22 @@
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
 1.  [【働き方革命】１日７分の習慣で行動が変わる！？休日に自己効力感を高めよ【越川慎司】](/rehacq_fan/ids/XORxTQ_VyFI "wikilink")
     -   公開日: 2025-06-24
-    -   視聴数: 40,385
+    -   視聴数: 40,504
     -   **いいね数: 4,822**
     -   出演者: 越川慎司, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】第一部…大激論！議席0「再生の道」の真意は？第二部…「あつまれ！落選の森」候補者vs石丸代表！衝撃の真実【ReHacQ西田亮介】](/rehacq_fan/ids/tg3vnK5st1E "wikilink")
     -   公開日: 2025-06-23
-    -   視聴数: 1,074,891
-    -   **いいね数: 27,093**
+    -   視聴数: 1,075,156
+    -   **いいね数: 27,084**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】アメリカがイラン爆撃...ホルムズ海峡封鎖？どうなる原油価格？日本経済への影響を解説【須賀川 拓vs藤代 宏一】](/rehacq_fan/ids/NRPv6J1I9dg "wikilink")
     -   公開日: 2025-06-23
-    -   視聴数: 67,299
+    -   視聴数: 67,323
     -   **いいね数: 737**
     -   出演者: [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【須賀川拓vs高橋和夫】イランを爆撃…アメリカ&イスラエルに報復は？戦争危機【ReHacQ高橋弘樹】](/rehacq_fan/ids/SmKgt5up4xA "wikilink")
     -   公開日: 2025-06-22
-    -   視聴数: 348,256
+    -   視聴数: 348,442
     -   **いいね数: 3,967**
     -   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】杉並区ネット討論会【高橋弘樹】](/rehacq_fan/ids/c3nbSj-qmMU "wikilink")
@@ -1496,93 +1496,93 @@
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東浩紀vs西田亮介】民主主義は機能不全？お酒飲みながらまったり雑談【高橋弘樹】](/rehacq_fan/ids/lbyF5plbnJ0 "wikilink")
     -   公開日: 2024-04-28
-    -   視聴数: 464,122
-    -   **いいね数: 4,785**
+    -   視聴数: 464,285
+    -   **いいね数: 4,784**
     -   出演者: 
 1.  [【東出昌大が絶句】衝撃の瞬間！東出をノックアウトする子ども…天空の露天風呂【高橋弘樹&斎藤幸平】](/rehacq_fan/ids/CTm7yMHnSV4 "wikilink")
     -   公開日: 2024-04-27
-    -   視聴数: 313,627
-    -   **いいね数: 3,336**
+    -   視聴数: 313,866
+    -   **いいね数: 3,341**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【東出昌大が絶句…】山梨の電飾村…26年かけたカラフルな家たち【斎藤幸平と日蓮宗総本山へ】](/rehacq_fan/ids/v5IYoV-wkPY "wikilink")
     -   公開日: 2024-04-22
-    -   視聴数: 160,235
-    -   **いいね数: 2,048**
+    -   視聴数: 160,374
+    -   **いいね数: 2,049**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【東出昌大と町中華】餃子と醤油ラーメン、絶品の町【斎藤幸平も絶句】](/rehacq_fan/ids/y4Ke27uyupg "wikilink")
     -   公開日: 2024-04-14
-    -   視聴数: 578,542
-    -   **いいね数: 4,556**
+    -   視聴数: 579,245
+    -   **いいね数: 4,566**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【東出昌大vs高橋弘樹】結婚とは…男2人まったり旅【ひろゆきもびっくり】](/rehacq_fan/ids/-s9bnb6Fnkw "wikilink")
     -   公開日: 2024-04-07
-    -   視聴数: 349,449
-    -   **いいね数: 4,179**
+    -   視聴数: 349,837
+    -   **いいね数: 4,185**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【川上量生vs立花孝志】なぜ再び？緊急対談【１年ぶり】](/rehacq_fan/ids/ONfq9M6aRG0 "wikilink")
     -   公開日: 2024-04-05
-    -   視聴数: 690,759
-    -   **いいね数: 6,393**
+    -   視聴数: 690,888
+    -   **いいね数: 6,394**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【ReHacQ能登地震の今】神社崩壊…日本一の巨大能登キリコはどうなる？【復興の現在と未来】](/rehacq_fan/ids/pppgfJuZ0Y8 "wikilink")
     -   公開日: 2024-03-30
-    -   視聴数: 29,177
+    -   視聴数: 29,181
     -   **いいね数: 743**
     -   出演者: 青木栄美子
 1.  [【ReHacQ時事SP】震災から100日…リアルな現在地【漁師たちの思い】](/rehacq_fan/ids/jMgWndSuSEU "wikilink")
     -   公開日: 2024-03-28
-    -   視聴数: 33,911
+    -   視聴数: 33,913
     -   **いいね数: 1,032**
     -   出演者: 青木栄美子
 1.  [【ひろゆきvs川上量生】なぜ？離婚が増える原因【生活保護】](/rehacq_fan/ids/p_ueXvOizys "wikilink")
     -   公開日: 2024-03-04
-    -   視聴数: 159,573
-    -   **いいね数: 2,041**
+    -   視聴数: 160,013
+    -   **いいね数: 2,048**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink")
 1.  [【石丸市長vs高橋弘樹】衝撃事実！裏側をぶっちゃけトーク【旅の思い出】](/rehacq_fan/ids/CGl5xyi96uQ "wikilink")
     -   公開日: 2024-03-03
-    -   視聴数: 294,175
-    -   **いいね数: 4,921**
+    -   視聴数: 294,250
+    -   **いいね数: 4,922**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs児童養護施設】子供の自由が奪われる...児童福祉の問題とは？【母子家庭】](/rehacq_fan/ids/XJnfFesGJ-w "wikilink")
     -   公開日: 2024-02-23
-    -   視聴数: 269,220
-    -   **いいね数: 2,821**
+    -   視聴数: 270,700
+    -   **いいね数: 2,837**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink")
 1.  [【緊急生配信】圧力で会見中止…日大アメフト部、解任された前監督が真相激白【日本大学アメフト大麻事件…真相は？】](/rehacq_fan/ids/-95N8PZ04pU "wikilink")
     -   公開日: 2024-02-22
-    -   視聴数: 223,770
+    -   視聴数: 223,788
     -   **いいね数: 3,339**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東出昌大vs高橋弘樹♯2】性悪説vs性善説…人間がクズな行動とるワケ【世界の果てにひろゆき置いてきた】](/rehacq_fan/ids/88ZsOpYqik0 "wikilink")
     -   公開日: 2024-02-16
-    -   視聴数: 566,647
-    -   **いいね数: 7,081**
+    -   視聴数: 568,209
+    -   **いいね数: 7,089**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東出昌大vs高橋弘樹】ウソと真実…東出昌大が魂の告白【世界の果てにひろゆき置いてきた】](/rehacq_fan/ids/kz9VfPZWXGk "wikilink")
     -   公開日: 2024-02-13
-    -   視聴数: 628,454
-    -   **いいね数: 7,997**
+    -   視聴数: 629,605
+    -   **いいね数: 8,007**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【台湾有事と日本】アメリカは日本守る？沖縄危機とは…【佐々木れな】](/rehacq_fan/ids/ijzP9OrXlRU "wikilink")
     -   公開日: 2024-02-07
-    -   視聴数: 118,387
+    -   視聴数: 118,408
     -   **いいね数: 2,311**
     -   出演者: 佐々木れな, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スパイvs日本】ガチ暴露！台湾総統選の裏…日本メディアの根本問題【習近平vsバイデン】](/rehacq_fan/ids/QGFkn1rc7MA "wikilink")
     -   公開日: 2024-02-02
-    -   視聴数: 212,334
+    -   視聴数: 212,345
     -   **いいね数: 3,514**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岸田総理vs自民党】意味なし!?派閥解消の罠【西田亮介】](/rehacq_fan/ids/1DcTnmbPmzM "wikilink")
     -   公開日: 2024-01-20
-    -   視聴数: 121,850
+    -   視聴数: 121,874
     -   **いいね数: 1,942**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【西田亮介vs国民民主党】衝撃！永田町で働く女性リアル【なぜ女性議員増えない？】](/rehacq_fan/ids/cNXaPKT8MMI "wikilink")
     -   公開日: 2024-01-19
-    -   視聴数: 114,157
-    -   **いいね数: 1,783**
+    -   視聴数: 114,197
+    -   **いいね数: 1,784**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【川上量生vs 野村泰紀】おじさん3人！仙台旅【斎藤幸平】](/rehacq_fan/ids/aWIbpn0pXLM "wikilink")
     -   公開日: 2023-12-30
@@ -1606,8 +1606,8 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsスザンヌ】祝！ちょっぴり重大発表 & まったり雑談【日本一ゆるいビジネス番組】](/rehacq_fan/ids/_Sc1dUY3UOQ "wikilink")
     -   公開日: 2023-11-11
-    -   視聴数: 96,671
-    -   **いいね数: 1,491**
+    -   視聴数: 96,687
+    -   **いいね数: 1,492**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【福島原発の旅】田んぼにカエルが！日常の奇跡味わう復興旅【デカ盛り！海鮮丼】](/rehacq_fan/ids/dHoeKd7UDeE "wikilink")
     -   公開日: 2023-11-10
@@ -1918,8 +1918,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介&高橋弘樹】まったり生配信！維新・音喜多駿&立憲・落合貴之&自由守る会・さんのへあや&自民・川松真一朗 飲み雑談【ReHacQ】](/rehacq_fan/ids/cOmyZ36jEcg "wikilink")
     -   公開日: 2025-06-22
-    -   視聴数: 403,157
-    -   **いいね数: 3,639**
+    -   視聴数: 403,202
+    -   **いいね数: 3,638**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), 落合貴之, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 関口健太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主はどこへ？】兵庫県議会が民主主義を破壊…懐かしのオバタリアン…古古古米食べてみた【ReHacQ高橋弘樹】](/rehacq_fan/ids/BrMIMJLbvt0 "wikilink")
     -   公開日: 2025-05-31
@@ -3037,8 +3037,8 @@
 # プレイリスト (102): なぜ会社辞めたんですか!?  / なぜ政治家やってるんですか？ / 輝け！エキセントリック中年  /  スラッシュキャリアー / 本音キャリア相談室/初心タイムカプセル/超大企業レボリューション
 1.  [【高橋弘樹vsエリート外交官】気候変動の超エースが衝撃退社！なぜ？G20大阪終え…憂国の退官【ReHacQ】](/rehacq_fan/ids/PvFVoM_px14 "wikilink")
     -   公開日: 2025-08-27
-    -   視聴数: 83,424
-    -   **いいね数: 927**
+    -   視聴数: 84,298
+    -   **いいね数: 934**
     -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs伝説の衣装デザイナー茅野しのぶ】激白！ヒット連発のコツと努力の方向性とは【AKB48・推しの子・ウマ娘】](/rehacq_fan/ids/xCWiaPpaq9c "wikilink")
     -   公開日: 2025-07-18
@@ -3062,8 +3062,8 @@
     -   出演者: 生井秀一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めTBS】news23のエース記者が衝撃退社…なぜ？須賀川拓が衝撃告白【ReHacQ】](/rehacq_fan/ids/4CGY4E6aLXw "wikilink")
     -   公開日: 2025-06-24
-    -   視聴数: 473,256
-    -   **いいね数: 6,743**
+    -   視聴数: 477,307
+    -   **いいね数: 6,801**
     -   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立憲最高幹部vs高橋弘樹】元厚労大臣！長妻昭が自民党政治にガチ激怒...国民民主とどう差別化？参院選のSNS戦略とは【ReHacQ】](/rehacq_fan/ids/pXs5PmEcFUk "wikilink")
     -   公開日: 2025-06-02
@@ -3552,18 +3552,18 @@
     -   出演者: 田中泰延, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国山ハセンの深層へ】マイノリティー感じた過去…「今」思い描くキャリア【ハセンのB面とは？】](/rehacq_fan/ids/se6tz0bBv54 "wikilink")
     -   公開日: 2023-04-15
-    -   視聴数: 97,181
+    -   視聴数: 97,195
     -   **いいね数: 1,519**
     -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [辻中仁士](/rehacq_fan/people/辻中仁士 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【PIVOT ✕ ReHacQ】番組名を失敗疑惑！常識壊す新時代の「働き方」とは？【元ＴＢＳ国山ハセン】](/rehacq_fan/ids/jfo8GKexGJc "wikilink")
     -   公開日: 2023-04-10
-    -   視聴数: 121,873
+    -   視聴数: 121,884
     -   **いいね数: 1,947**
     -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【辞めNHK】プライドとは何か？退社理由、赤裸々告白【龍馬伝】](/rehacq_fan/ids/NkePAeuWVzY "wikilink")
     -   公開日: 2023-03-28
-    -   視聴数: 218,714
-    -   **いいね数: 6,539**
+    -   視聴数: 218,792
+    -   **いいね数: 6,541**
     -   出演者: 鈴木圭, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (99): ReHacQs
