@@ -3,4 +3,4 @@
 -   視聴数: 228,865
 -   **いいね数: 3,399**
 -   出演者: [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [養老孟司](/rehacq_fan/people/養老孟司 "wikilink")
-    - [![](https://img.youtube.com/vi/k3AOtxFw9BE/hqdefault.jpg)](https://www.youtube.com/watch?v=k3AOtxFw9BE)
+- [![](https://img.youtube.com/vi/k3AOtxFw9BE/hqdefault.jpg)](https://www.youtube.com/watch?v=k3AOtxFw9BE)

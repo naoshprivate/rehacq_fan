@@ -3,4 +3,4 @@
 -   視聴数: 40,509
 -   **いいね数: 438**
 -   出演者: 上武康亮, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/g3HMFA6fMlA/hqdefault.jpg)](https://www.youtube.com/watch?v=g3HMFA6fMlA)
+- [![](https://img.youtube.com/vi/g3HMFA6fMlA/hqdefault.jpg)](https://www.youtube.com/watch?v=g3HMFA6fMlA)

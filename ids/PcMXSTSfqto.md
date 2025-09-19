@@ -3,4 +3,4 @@
 -   視聴数: 1,211,985
 -   **いいね数: 14,406**
 -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/PcMXSTSfqto/hqdefault.jpg)](https://www.youtube.com/watch?v=PcMXSTSfqto)
+- [![](https://img.youtube.com/vi/PcMXSTSfqto/hqdefault.jpg)](https://www.youtube.com/watch?v=PcMXSTSfqto)

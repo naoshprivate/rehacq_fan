@@ -3,4 +3,4 @@
 -   視聴数: 22,362
 -   **いいね数: 265**
 -   出演者: 佐々木孔明, 福澤知浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/w15LSyBqLew/hqdefault.jpg)](https://www.youtube.com/watch?v=w15LSyBqLew)
+- [![](https://img.youtube.com/vi/w15LSyBqLew/hqdefault.jpg)](https://www.youtube.com/watch?v=w15LSyBqLew)

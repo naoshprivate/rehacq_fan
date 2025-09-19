@@ -3,4 +3,4 @@
 -   視聴数: 34,123
 -   **いいね数: 683**
 -   出演者: 橋詰寛也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/cPAL9THqHjo/hqdefault.jpg)](https://www.youtube.com/watch?v=cPAL9THqHjo)
+- [![](https://img.youtube.com/vi/cPAL9THqHjo/hqdefault.jpg)](https://www.youtube.com/watch?v=cPAL9THqHjo)

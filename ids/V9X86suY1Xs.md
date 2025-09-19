@@ -3,4 +3,4 @@
 -   視聴数: 701,349
 -   **いいね数: 15,713**
 -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/V9X86suY1Xs/hqdefault.jpg)](https://www.youtube.com/watch?v=V9X86suY1Xs)
+- [![](https://img.youtube.com/vi/V9X86suY1Xs/hqdefault.jpg)](https://www.youtube.com/watch?v=V9X86suY1Xs)

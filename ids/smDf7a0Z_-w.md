@@ -3,4 +3,4 @@
 -   視聴数: 1,102,244
 -   **いいね数: 15,393**
 -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/smDf7a0Z_-w/hqdefault.jpg)](https://www.youtube.com/watch?v=smDf7a0Z_-w)
+- [![](https://img.youtube.com/vi/smDf7a0Z_-w/hqdefault.jpg)](https://www.youtube.com/watch?v=smDf7a0Z_-w)

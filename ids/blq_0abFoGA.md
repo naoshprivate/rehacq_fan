@@ -3,4 +3,4 @@
 -   視聴数: 47,476
 -   **いいね数: 664**
 -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/blq_0abFoGA/hqdefault.jpg)](https://www.youtube.com/watch?v=blq_0abFoGA)
+- [![](https://img.youtube.com/vi/blq_0abFoGA/hqdefault.jpg)](https://www.youtube.com/watch?v=blq_0abFoGA)

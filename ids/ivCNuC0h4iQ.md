@@ -3,4 +3,4 @@
 -   視聴数: 360,321
 -   **いいね数: 5,601**
 -   出演者: 東野篤子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ivCNuC0h4iQ/hqdefault.jpg)](https://www.youtube.com/watch?v=ivCNuC0h4iQ)
+- [![](https://img.youtube.com/vi/ivCNuC0h4iQ/hqdefault.jpg)](https://www.youtube.com/watch?v=ivCNuC0h4iQ)

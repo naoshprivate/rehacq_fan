@@ -3,4 +3,4 @@
 -   視聴数: 215,471
 -   **いいね数: 2,498**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 平井卓也
-    - [![](https://img.youtube.com/vi/y2i1xkKmeVg/hqdefault.jpg)](https://www.youtube.com/watch?v=y2i1xkKmeVg)
+- [![](https://img.youtube.com/vi/y2i1xkKmeVg/hqdefault.jpg)](https://www.youtube.com/watch?v=y2i1xkKmeVg)

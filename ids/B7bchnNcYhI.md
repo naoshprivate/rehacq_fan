@@ -3,4 +3,4 @@
 -   視聴数: 901,424
 -   **いいね数: 10,012**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
-    - [![](https://img.youtube.com/vi/B7bchnNcYhI/hqdefault.jpg)](https://www.youtube.com/watch?v=B7bchnNcYhI)
+- [![](https://img.youtube.com/vi/B7bchnNcYhI/hqdefault.jpg)](https://www.youtube.com/watch?v=B7bchnNcYhI)

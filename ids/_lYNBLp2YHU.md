@@ -3,4 +3,4 @@
 -   視聴数: 35,470
 -   **いいね数: 275**
 -   出演者: 江口亮介
-    - [![](https://img.youtube.com/vi/_lYNBLp2YHU/hqdefault.jpg)](https://www.youtube.com/watch?v=_lYNBLp2YHU)
+- [![](https://img.youtube.com/vi/_lYNBLp2YHU/hqdefault.jpg)](https://www.youtube.com/watch?v=_lYNBLp2YHU)

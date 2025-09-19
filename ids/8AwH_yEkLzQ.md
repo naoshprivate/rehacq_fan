@@ -3,4 +3,4 @@
 -   視聴数: 190,014
 -   **いいね数: 2,306**
 -   出演者: 玉木伸介, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
-    - [![](https://img.youtube.com/vi/8AwH_yEkLzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=8AwH_yEkLzQ)
+- [![](https://img.youtube.com/vi/8AwH_yEkLzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=8AwH_yEkLzQ)

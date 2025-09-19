@@ -3,4 +3,4 @@
 -   視聴数: 920,434
 -   **いいね数: 18,170**
 -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/EmOGwtR3x6I/hqdefault.jpg)](https://www.youtube.com/watch?v=EmOGwtR3x6I)
+- [![](https://img.youtube.com/vi/EmOGwtR3x6I/hqdefault.jpg)](https://www.youtube.com/watch?v=EmOGwtR3x6I)

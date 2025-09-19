@@ -3,4 +3,4 @@
 -   視聴数: 81,413
 -   **いいね数: 1,128**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
-    - [![](https://img.youtube.com/vi/n5HfycsJkuw/hqdefault.jpg)](https://www.youtube.com/watch?v=n5HfycsJkuw)
+- [![](https://img.youtube.com/vi/n5HfycsJkuw/hqdefault.jpg)](https://www.youtube.com/watch?v=n5HfycsJkuw)

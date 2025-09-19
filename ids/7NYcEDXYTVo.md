@@ -3,4 +3,4 @@
 -   視聴数: 21,034
 -   **いいね数: 324**
 -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink")
-    - [![](https://img.youtube.com/vi/7NYcEDXYTVo/hqdefault.jpg)](https://www.youtube.com/watch?v=7NYcEDXYTVo)
+- [![](https://img.youtube.com/vi/7NYcEDXYTVo/hqdefault.jpg)](https://www.youtube.com/watch?v=7NYcEDXYTVo)

@@ -3,4 +3,4 @@
 -   視聴数: 169,126
 -   **いいね数: 1,655**
 -   出演者: 古里圭史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/eHS9hq396zE/hqdefault.jpg)](https://www.youtube.com/watch?v=eHS9hq396zE)
+- [![](https://img.youtube.com/vi/eHS9hq396zE/hqdefault.jpg)](https://www.youtube.com/watch?v=eHS9hq396zE)

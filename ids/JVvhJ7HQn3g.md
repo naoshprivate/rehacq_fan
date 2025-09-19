@@ -3,4 +3,4 @@
 -   視聴数: 25,022
 -   **いいね数: 280**
 -   出演者: 池澤あやか, 田中研之
-    - [![](https://img.youtube.com/vi/JVvhJ7HQn3g/hqdefault.jpg)](https://www.youtube.com/watch?v=JVvhJ7HQn3g)
+- [![](https://img.youtube.com/vi/JVvhJ7HQn3g/hqdefault.jpg)](https://www.youtube.com/watch?v=JVvhJ7HQn3g)

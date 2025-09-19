@@ -3,4 +3,4 @@
 -   視聴数: 1,825,854
 -   **いいね数: 23,679**
 -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/TkJRmw7WPeI/hqdefault.jpg)](https://www.youtube.com/watch?v=TkJRmw7WPeI)
+- [![](https://img.youtube.com/vi/TkJRmw7WPeI/hqdefault.jpg)](https://www.youtube.com/watch?v=TkJRmw7WPeI)

@@ -3,4 +3,4 @@
 -   視聴数: 167,683
 -   **いいね数: 2,610**
 -   出演者: 武藤千春, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink")
-    - [![](https://img.youtube.com/vi/abnGVAuM5e4/hqdefault.jpg)](https://www.youtube.com/watch?v=abnGVAuM5e4)
+- [![](https://img.youtube.com/vi/abnGVAuM5e4/hqdefault.jpg)](https://www.youtube.com/watch?v=abnGVAuM5e4)

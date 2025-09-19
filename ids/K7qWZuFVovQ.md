@@ -3,4 +3,4 @@
 -   視聴数: 126,273
 -   **いいね数: 1,707**
 -   出演者: 烏谷昌幸, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/K7qWZuFVovQ/hqdefault.jpg)](https://www.youtube.com/watch?v=K7qWZuFVovQ)
+- [![](https://img.youtube.com/vi/K7qWZuFVovQ/hqdefault.jpg)](https://www.youtube.com/watch?v=K7qWZuFVovQ)

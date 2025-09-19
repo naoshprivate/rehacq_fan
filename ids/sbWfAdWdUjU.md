@@ -3,4 +3,4 @@
 -   視聴数: 200,891
 -   **いいね数: 5,858**
 -   出演者: プリティ長嶋, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/sbWfAdWdUjU/hqdefault.jpg)](https://www.youtube.com/watch?v=sbWfAdWdUjU)
+- [![](https://img.youtube.com/vi/sbWfAdWdUjU/hqdefault.jpg)](https://www.youtube.com/watch?v=sbWfAdWdUjU)

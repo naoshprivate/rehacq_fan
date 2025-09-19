@@ -3,4 +3,4 @@
 -   視聴数: 779,568
 -   **いいね数: 13,185**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/-GqBTGclvu0/hqdefault.jpg)](https://www.youtube.com/watch?v=-GqBTGclvu0)
+- [![](https://img.youtube.com/vi/-GqBTGclvu0/hqdefault.jpg)](https://www.youtube.com/watch?v=-GqBTGclvu0)

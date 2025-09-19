@@ -3,4 +3,4 @@
 -   視聴数: 314,345
 -   **いいね数: 4,187**
 -   出演者: 上月良祐, [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/92AneLWhbCA/hqdefault.jpg)](https://www.youtube.com/watch?v=92AneLWhbCA)
+- [![](https://img.youtube.com/vi/92AneLWhbCA/hqdefault.jpg)](https://www.youtube.com/watch?v=92AneLWhbCA)

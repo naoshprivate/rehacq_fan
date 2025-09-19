@@ -3,4 +3,4 @@
 -   視聴数: 20,696
 -   **いいね数: 292**
 -   出演者: 下川穣, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XJI8OHI9pjc/hqdefault.jpg)](https://www.youtube.com/watch?v=XJI8OHI9pjc)
+- [![](https://img.youtube.com/vi/XJI8OHI9pjc/hqdefault.jpg)](https://www.youtube.com/watch?v=XJI8OHI9pjc)

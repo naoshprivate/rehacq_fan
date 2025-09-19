@@ -3,4 +3,4 @@
 -   視聴数: 123,447
 -   **いいね数: 1,331**
 -   出演者: 伊藤夢人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/DXPDjSdAfWs/hqdefault.jpg)](https://www.youtube.com/watch?v=DXPDjSdAfWs)
+- [![](https://img.youtube.com/vi/DXPDjSdAfWs/hqdefault.jpg)](https://www.youtube.com/watch?v=DXPDjSdAfWs)

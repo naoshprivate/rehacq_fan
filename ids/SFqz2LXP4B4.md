@@ -3,4 +3,4 @@
 -   視聴数: 30,906
 -   **いいね数: 300**
 -   出演者: 四宮浩二, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/SFqz2LXP4B4/hqdefault.jpg)](https://www.youtube.com/watch?v=SFqz2LXP4B4)
+- [![](https://img.youtube.com/vi/SFqz2LXP4B4/hqdefault.jpg)](https://www.youtube.com/watch?v=SFqz2LXP4B4)

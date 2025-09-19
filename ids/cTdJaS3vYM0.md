@@ -3,4 +3,4 @@
 -   視聴数: 113,421
 -   **いいね数: 1,611**
 -   出演者: 仲田泰祐, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/cTdJaS3vYM0/hqdefault.jpg)](https://www.youtube.com/watch?v=cTdJaS3vYM0)
+- [![](https://img.youtube.com/vi/cTdJaS3vYM0/hqdefault.jpg)](https://www.youtube.com/watch?v=cTdJaS3vYM0)

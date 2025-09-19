@@ -3,4 +3,4 @@
 -   視聴数: 178,195
 -   **いいね数: 1,769**
 -   出演者: 細野豪志, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/Oy3MsO8fTqs/hqdefault.jpg)](https://www.youtube.com/watch?v=Oy3MsO8fTqs)
+- [![](https://img.youtube.com/vi/Oy3MsO8fTqs/hqdefault.jpg)](https://www.youtube.com/watch?v=Oy3MsO8fTqs)

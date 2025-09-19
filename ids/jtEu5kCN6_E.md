@@ -3,4 +3,4 @@
 -   視聴数: 314,659
 -   **いいね数: 4,446**
 -   出演者: [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/jtEu5kCN6_E/hqdefault.jpg)](https://www.youtube.com/watch?v=jtEu5kCN6_E)
+- [![](https://img.youtube.com/vi/jtEu5kCN6_E/hqdefault.jpg)](https://www.youtube.com/watch?v=jtEu5kCN6_E)

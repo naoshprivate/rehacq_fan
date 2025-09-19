@@ -3,4 +3,4 @@
 -   視聴数: 46,971
 -   **いいね数: 423**
 -   出演者: 中村祥子, 佐野倫子, [呂布カルマ](/rehacq_fan/people/呂布カルマ "wikilink"), 宮本さおり
-    - [![](https://img.youtube.com/vi/-1nRgmMLc0U/hqdefault.jpg)](https://www.youtube.com/watch?v=-1nRgmMLc0U)
+- [![](https://img.youtube.com/vi/-1nRgmMLc0U/hqdefault.jpg)](https://www.youtube.com/watch?v=-1nRgmMLc0U)

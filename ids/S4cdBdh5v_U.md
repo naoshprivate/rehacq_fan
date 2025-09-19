@@ -3,4 +3,4 @@
 -   視聴数: 410,707
 -   **いいね数: 11,339**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/S4cdBdh5v_U/hqdefault.jpg)](https://www.youtube.com/watch?v=S4cdBdh5v_U)
+- [![](https://img.youtube.com/vi/S4cdBdh5v_U/hqdefault.jpg)](https://www.youtube.com/watch?v=S4cdBdh5v_U)

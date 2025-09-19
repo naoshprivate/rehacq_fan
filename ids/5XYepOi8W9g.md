@@ -3,4 +3,4 @@
 -   視聴数: 4
 -   **いいね数: 2**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-    - [![](https://img.youtube.com/vi/5XYepOi8W9g/hqdefault.jpg)](https://www.youtube.com/watch?v=5XYepOi8W9g)
+- [![](https://img.youtube.com/vi/5XYepOi8W9g/hqdefault.jpg)](https://www.youtube.com/watch?v=5XYepOi8W9g)

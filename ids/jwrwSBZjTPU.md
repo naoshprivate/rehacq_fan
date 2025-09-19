@@ -3,4 +3,4 @@
 -   視聴数: 168,030
 -   **いいね数: 1,963**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [田中章義](/rehacq_fan/people/田中章義 "wikilink"), [藤宮若菜](/rehacq_fan/people/藤宮若菜 "wikilink")
-    - [![](https://img.youtube.com/vi/jwrwSBZjTPU/hqdefault.jpg)](https://www.youtube.com/watch?v=jwrwSBZjTPU)
+- [![](https://img.youtube.com/vi/jwrwSBZjTPU/hqdefault.jpg)](https://www.youtube.com/watch?v=jwrwSBZjTPU)

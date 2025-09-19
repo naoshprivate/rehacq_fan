@@ -3,4 +3,4 @@
 -   視聴数: 84,688
 -   **いいね数: 525**
 -   出演者: [小川淳也](/rehacq_fan/people/小川淳也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/RK8MAVm9Bpo/hqdefault.jpg)](https://www.youtube.com/watch?v=RK8MAVm9Bpo)
+- [![](https://img.youtube.com/vi/RK8MAVm9Bpo/hqdefault.jpg)](https://www.youtube.com/watch?v=RK8MAVm9Bpo)

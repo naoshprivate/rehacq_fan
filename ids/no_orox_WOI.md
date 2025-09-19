@@ -3,4 +3,4 @@
 -   視聴数: 185,416
 -   **いいね数: 2,451**
 -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/no_orox_WOI/hqdefault.jpg)](https://www.youtube.com/watch?v=no_orox_WOI)
+- [![](https://img.youtube.com/vi/no_orox_WOI/hqdefault.jpg)](https://www.youtube.com/watch?v=no_orox_WOI)

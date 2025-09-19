@@ -3,4 +3,4 @@
 -   視聴数: 108,257
 -   **いいね数: 826**
 -   出演者: 重徳和彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/26pk3dR-ctM/hqdefault.jpg)](https://www.youtube.com/watch?v=26pk3dR-ctM)
+- [![](https://img.youtube.com/vi/26pk3dR-ctM/hqdefault.jpg)](https://www.youtube.com/watch?v=26pk3dR-ctM)

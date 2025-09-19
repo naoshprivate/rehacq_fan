@@ -3,4 +3,4 @@
 -   視聴数: 157,559
 -   **いいね数: 2,568**
 -   出演者: 中野晴啓, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/fKFlVKecZvI/hqdefault.jpg)](https://www.youtube.com/watch?v=fKFlVKecZvI)
+- [![](https://img.youtube.com/vi/fKFlVKecZvI/hqdefault.jpg)](https://www.youtube.com/watch?v=fKFlVKecZvI)

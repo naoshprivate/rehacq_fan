@@ -3,4 +3,4 @@
 -   視聴数: 67,115
 -   **いいね数: 872**
 -   出演者: 嬉野雅道, 藤村忠寿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/6PSaff90K2c/hqdefault.jpg)](https://www.youtube.com/watch?v=6PSaff90K2c)
+- [![](https://img.youtube.com/vi/6PSaff90K2c/hqdefault.jpg)](https://www.youtube.com/watch?v=6PSaff90K2c)

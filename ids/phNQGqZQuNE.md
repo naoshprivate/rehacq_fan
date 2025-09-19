@@ -3,4 +3,4 @@
 -   視聴数: 53,908
 -   **いいね数: 796**
 -   出演者: [いけちゃん](/rehacq_fan/people/いけちゃん "wikilink"), [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
-    - [![](https://img.youtube.com/vi/phNQGqZQuNE/hqdefault.jpg)](https://www.youtube.com/watch?v=phNQGqZQuNE)
+- [![](https://img.youtube.com/vi/phNQGqZQuNE/hqdefault.jpg)](https://www.youtube.com/watch?v=phNQGqZQuNE)

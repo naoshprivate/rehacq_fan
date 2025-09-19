@@ -3,4 +3,4 @@
 -   視聴数: 17,368
 -   **いいね数: 174**
 -   出演者: 石田しんご, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/1XBXLOl1Vio/hqdefault.jpg)](https://www.youtube.com/watch?v=1XBXLOl1Vio)
+- [![](https://img.youtube.com/vi/1XBXLOl1Vio/hqdefault.jpg)](https://www.youtube.com/watch?v=1XBXLOl1Vio)

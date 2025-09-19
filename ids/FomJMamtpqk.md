@@ -3,4 +3,4 @@
 -   視聴数: 269,077
 -   **いいね数: 5,011**
 -   出演者: 市村龍太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/FomJMamtpqk/hqdefault.jpg)](https://www.youtube.com/watch?v=FomJMamtpqk)
+- [![](https://img.youtube.com/vi/FomJMamtpqk/hqdefault.jpg)](https://www.youtube.com/watch?v=FomJMamtpqk)

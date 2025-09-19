@@ -3,4 +3,4 @@
 -   視聴数: 465,160
 -   **いいね数: 6,345**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [スーツ](/rehacq_fan/people/スーツ "wikilink"), 五十嵐立青, 小林伸行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/JyePlh6u8UI/hqdefault.jpg)](https://www.youtube.com/watch?v=JyePlh6u8UI)
+- [![](https://img.youtube.com/vi/JyePlh6u8UI/hqdefault.jpg)](https://www.youtube.com/watch?v=JyePlh6u8UI)

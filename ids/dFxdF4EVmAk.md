@@ -3,4 +3,4 @@
 -   視聴数: 29,436
 -   **いいね数: 505**
 -   出演者: 井上伸一郎, [川上量生](/rehacq_fan/people/川上量生 "wikilink")
-    - [![](https://img.youtube.com/vi/dFxdF4EVmAk/hqdefault.jpg)](https://www.youtube.com/watch?v=dFxdF4EVmAk)
+- [![](https://img.youtube.com/vi/dFxdF4EVmAk/hqdefault.jpg)](https://www.youtube.com/watch?v=dFxdF4EVmAk)

@@ -3,4 +3,4 @@
 -   視聴数: 81,692
 -   **いいね数: 733**
 -   出演者: 福島みずほ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/lakGjhOBAdw/hqdefault.jpg)](https://www.youtube.com/watch?v=lakGjhOBAdw)
+- [![](https://img.youtube.com/vi/lakGjhOBAdw/hqdefault.jpg)](https://www.youtube.com/watch?v=lakGjhOBAdw)

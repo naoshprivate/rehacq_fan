@@ -3,4 +3,4 @@
 -   視聴数: 257,950
 -   **いいね数: 3,731**
 -   出演者: 上田泰己, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/I--nTX0cKwQ/hqdefault.jpg)](https://www.youtube.com/watch?v=I--nTX0cKwQ)
+- [![](https://img.youtube.com/vi/I--nTX0cKwQ/hqdefault.jpg)](https://www.youtube.com/watch?v=I--nTX0cKwQ)

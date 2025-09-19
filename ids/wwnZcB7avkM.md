@@ -3,4 +3,4 @@
 -   視聴数: 312,434
 -   **いいね数: 2,890**
 -   出演者: 岡元兵八郎, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/wwnZcB7avkM/hqdefault.jpg)](https://www.youtube.com/watch?v=wwnZcB7avkM)
+- [![](https://img.youtube.com/vi/wwnZcB7avkM/hqdefault.jpg)](https://www.youtube.com/watch?v=wwnZcB7avkM)

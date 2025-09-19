@@ -3,4 +3,4 @@
 -   視聴数: 348,256
 -   **いいね数: 3,967**
 -   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/SmKgt5up4xA/hqdefault.jpg)](https://www.youtube.com/watch?v=SmKgt5up4xA)
+- [![](https://img.youtube.com/vi/SmKgt5up4xA/hqdefault.jpg)](https://www.youtube.com/watch?v=SmKgt5up4xA)

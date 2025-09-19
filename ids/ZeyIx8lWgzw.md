@@ -3,4 +3,4 @@
 -   視聴数: 39,508
 -   **いいね数: 625**
 -   出演者: 中村多伽, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ZeyIx8lWgzw/hqdefault.jpg)](https://www.youtube.com/watch?v=ZeyIx8lWgzw)
+- [![](https://img.youtube.com/vi/ZeyIx8lWgzw/hqdefault.jpg)](https://www.youtube.com/watch?v=ZeyIx8lWgzw)

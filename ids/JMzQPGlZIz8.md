@@ -3,4 +3,4 @@
 -   視聴数: 110,423
 -   **いいね数: 3,318**
 -   出演者: ワリード・シアム, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/JMzQPGlZIz8/hqdefault.jpg)](https://www.youtube.com/watch?v=JMzQPGlZIz8)
+- [![](https://img.youtube.com/vi/JMzQPGlZIz8/hqdefault.jpg)](https://www.youtube.com/watch?v=JMzQPGlZIz8)

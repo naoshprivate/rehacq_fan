@@ -3,4 +3,4 @@
 -   視聴数: 95,141
 -   **いいね数: 1,063**
 -   出演者: 長妻昭, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ZQGAoWwQy60/hqdefault.jpg)](https://www.youtube.com/watch?v=ZQGAoWwQy60)
+- [![](https://img.youtube.com/vi/ZQGAoWwQy60/hqdefault.jpg)](https://www.youtube.com/watch?v=ZQGAoWwQy60)

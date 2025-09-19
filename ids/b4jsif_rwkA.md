@@ -3,4 +3,4 @@
 -   視聴数: 357,295
 -   **いいね数: 7,362**
 -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/b4jsif_rwkA/hqdefault.jpg)](https://www.youtube.com/watch?v=b4jsif_rwkA)
+- [![](https://img.youtube.com/vi/b4jsif_rwkA/hqdefault.jpg)](https://www.youtube.com/watch?v=b4jsif_rwkA)

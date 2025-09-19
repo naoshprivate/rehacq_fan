@@ -3,4 +3,4 @@
 -   視聴数: 793,397
 -   **いいね数: 11,002**
 -   出演者: 稲村和美, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/zotM7TzK6aQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zotM7TzK6aQ)
+- [![](https://img.youtube.com/vi/zotM7TzK6aQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zotM7TzK6aQ)

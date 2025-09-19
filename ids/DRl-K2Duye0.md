@@ -3,4 +3,4 @@
 -   視聴数: 297,579
 -   **いいね数: 3,436**
 -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), 宗野創, [小川淳也](/rehacq_fan/people/小川淳也 "wikilink"), 岸谷蘭丸, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/DRl-K2Duye0/hqdefault.jpg)](https://www.youtube.com/watch?v=DRl-K2Duye0)
+- [![](https://img.youtube.com/vi/DRl-K2Duye0/hqdefault.jpg)](https://www.youtube.com/watch?v=DRl-K2Duye0)

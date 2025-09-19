@@ -3,4 +3,4 @@
 -   視聴数: 71,437
 -   **いいね数: 842**
 -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [小林葵](/rehacq_fan/people/小林葵 "wikilink")
-    - [![](https://img.youtube.com/vi/Ly-i2VEtupY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ly-i2VEtupY)
+- [![](https://img.youtube.com/vi/Ly-i2VEtupY/hqdefault.jpg)](https://www.youtube.com/watch?v=Ly-i2VEtupY)

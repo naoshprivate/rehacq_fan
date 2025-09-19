@@ -3,4 +3,4 @@
 -   視聴数: 61,901
 -   **いいね数: 546**
 -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 鈴⽊敏之
-    - [![](https://img.youtube.com/vi/qAJcS4ZR_Lg/hqdefault.jpg)](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)
+- [![](https://img.youtube.com/vi/qAJcS4ZR_Lg/hqdefault.jpg)](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)

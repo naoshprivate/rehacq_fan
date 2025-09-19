@@ -3,4 +3,4 @@
 -   視聴数: 171,036
 -   **いいね数: 1,606**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 大串博志, [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
-    - [![](https://img.youtube.com/vi/nPmeOleX-6g/hqdefault.jpg)](https://www.youtube.com/watch?v=nPmeOleX-6g)
+- [![](https://img.youtube.com/vi/nPmeOleX-6g/hqdefault.jpg)](https://www.youtube.com/watch?v=nPmeOleX-6g)

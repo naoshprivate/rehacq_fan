@@ -3,4 +3,4 @@
 -   視聴数: 361,039
 -   **いいね数: 7,945**
 -   出演者: 吉木りさ, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/41xZeoUCeOE/hqdefault.jpg)](https://www.youtube.com/watch?v=41xZeoUCeOE)
+- [![](https://img.youtube.com/vi/41xZeoUCeOE/hqdefault.jpg)](https://www.youtube.com/watch?v=41xZeoUCeOE)

@@ -3,4 +3,4 @@
 -   視聴数: 64,723
 -   **いいね数: 939**
 -   出演者: 海老原嗣生, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/NzML9UY89ZU/hqdefault.jpg)](https://www.youtube.com/watch?v=NzML9UY89ZU)
+- [![](https://img.youtube.com/vi/NzML9UY89ZU/hqdefault.jpg)](https://www.youtube.com/watch?v=NzML9UY89ZU)

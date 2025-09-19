@@ -3,4 +3,4 @@
 -   視聴数: 317,691
 -   **いいね数: 2,506**
 -   出演者: 塚田英次郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/9qS-LRhHbh4/hqdefault.jpg)](https://www.youtube.com/watch?v=9qS-LRhHbh4)
+- [![](https://img.youtube.com/vi/9qS-LRhHbh4/hqdefault.jpg)](https://www.youtube.com/watch?v=9qS-LRhHbh4)

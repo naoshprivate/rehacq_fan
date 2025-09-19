@@ -3,4 +3,4 @@
 -   視聴数: 29,177
 -   **いいね数: 743**
 -   出演者: 青木栄美子
-    - [![](https://img.youtube.com/vi/pppgfJuZ0Y8/hqdefault.jpg)](https://www.youtube.com/watch?v=pppgfJuZ0Y8)
+- [![](https://img.youtube.com/vi/pppgfJuZ0Y8/hqdefault.jpg)](https://www.youtube.com/watch?v=pppgfJuZ0Y8)

@@ -3,4 +3,4 @@
 -   視聴数: 1,406,431
 -   **いいね数: 13,630**
 -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/DnaUPmvmoHU/hqdefault.jpg)](https://www.youtube.com/watch?v=DnaUPmvmoHU)
+- [![](https://img.youtube.com/vi/DnaUPmvmoHU/hqdefault.jpg)](https://www.youtube.com/watch?v=DnaUPmvmoHU)

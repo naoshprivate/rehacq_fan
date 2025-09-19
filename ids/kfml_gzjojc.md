@@ -3,4 +3,4 @@
 -   視聴数: 208,965
 -   **いいね数: 2,374**
 -   出演者: 鎌田雄一郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/kfml_gzjojc/hqdefault.jpg)](https://www.youtube.com/watch?v=kfml_gzjojc)
+- [![](https://img.youtube.com/vi/kfml_gzjojc/hqdefault.jpg)](https://www.youtube.com/watch?v=kfml_gzjojc)

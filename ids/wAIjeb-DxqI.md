@@ -3,4 +3,4 @@
 -   視聴数: 604,834
 -   **いいね数: 6,296**
 -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink")
-    - [![](https://img.youtube.com/vi/wAIjeb-DxqI/hqdefault.jpg)](https://www.youtube.com/watch?v=wAIjeb-DxqI)
+- [![](https://img.youtube.com/vi/wAIjeb-DxqI/hqdefault.jpg)](https://www.youtube.com/watch?v=wAIjeb-DxqI)

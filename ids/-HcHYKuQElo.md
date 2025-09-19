@@ -3,4 +3,4 @@
 -   視聴数: 461,642
 -   **いいね数: 8,591**
 -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
-    - [![](https://img.youtube.com/vi/-HcHYKuQElo/hqdefault.jpg)](https://www.youtube.com/watch?v=-HcHYKuQElo)
+- [![](https://img.youtube.com/vi/-HcHYKuQElo/hqdefault.jpg)](https://www.youtube.com/watch?v=-HcHYKuQElo)

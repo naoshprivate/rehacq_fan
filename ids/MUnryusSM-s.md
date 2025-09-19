@@ -3,4 +3,4 @@
 -   視聴数: 257,952
 -   **いいね数: 2,106**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 黒岩祐治
-    - [![](https://img.youtube.com/vi/MUnryusSM-s/hqdefault.jpg)](https://www.youtube.com/watch?v=MUnryusSM-s)
+- [![](https://img.youtube.com/vi/MUnryusSM-s/hqdefault.jpg)](https://www.youtube.com/watch?v=MUnryusSM-s)

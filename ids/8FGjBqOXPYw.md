@@ -3,4 +3,4 @@
 -   視聴数: 139,987
 -   **いいね数: 1,949**
 -   出演者: 小谷哲男, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/8FGjBqOXPYw/hqdefault.jpg)](https://www.youtube.com/watch?v=8FGjBqOXPYw)
+- [![](https://img.youtube.com/vi/8FGjBqOXPYw/hqdefault.jpg)](https://www.youtube.com/watch?v=8FGjBqOXPYw)

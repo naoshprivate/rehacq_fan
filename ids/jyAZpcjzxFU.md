@@ -3,4 +3,4 @@
 -   視聴数: 2,314,916
 -   **いいね数: 29,132**
 -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jyAZpcjzxFU/hqdefault.jpg)](https://www.youtube.com/watch?v=jyAZpcjzxFU)
+- [![](https://img.youtube.com/vi/jyAZpcjzxFU/hqdefault.jpg)](https://www.youtube.com/watch?v=jyAZpcjzxFU)

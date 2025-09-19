@@ -3,4 +3,4 @@
 -   視聴数: 100,064
 -   **いいね数: 1,271**
 -   出演者: 小見山祐紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/NcP1-X_STEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=NcP1-X_STEQ)
+- [![](https://img.youtube.com/vi/NcP1-X_STEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=NcP1-X_STEQ)

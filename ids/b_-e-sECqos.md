@@ -3,4 +3,4 @@
 -   視聴数: 85,710
 -   **いいね数: 881**
 -   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), 鈴木一人
-    - [![](https://img.youtube.com/vi/b_-e-sECqos/hqdefault.jpg)](https://www.youtube.com/watch?v=b_-e-sECqos)
+- [![](https://img.youtube.com/vi/b_-e-sECqos/hqdefault.jpg)](https://www.youtube.com/watch?v=b_-e-sECqos)

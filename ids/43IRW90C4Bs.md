@@ -3,4 +3,4 @@
 -   視聴数: 80,982
 -   **いいね数: 1,338**
 -   出演者: 阿武野勝彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/43IRW90C4Bs/hqdefault.jpg)](https://www.youtube.com/watch?v=43IRW90C4Bs)
+- [![](https://img.youtube.com/vi/43IRW90C4Bs/hqdefault.jpg)](https://www.youtube.com/watch?v=43IRW90C4Bs)

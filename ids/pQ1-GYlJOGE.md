@@ -3,4 +3,4 @@
 -   視聴数: 106,753
 -   **いいね数: 2,228**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
-    - [![](https://img.youtube.com/vi/pQ1-GYlJOGE/hqdefault.jpg)](https://www.youtube.com/watch?v=pQ1-GYlJOGE)
+- [![](https://img.youtube.com/vi/pQ1-GYlJOGE/hqdefault.jpg)](https://www.youtube.com/watch?v=pQ1-GYlJOGE)

@@ -3,4 +3,4 @@
 -   視聴数: 1,096,280
 -   **いいね数: 14,419**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
-    - [![](https://img.youtube.com/vi/arcYBqJcY8w/hqdefault.jpg)](https://www.youtube.com/watch?v=arcYBqJcY8w)
+- [![](https://img.youtube.com/vi/arcYBqJcY8w/hqdefault.jpg)](https://www.youtube.com/watch?v=arcYBqJcY8w)

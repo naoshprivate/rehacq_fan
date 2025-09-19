@@ -3,4 +3,4 @@
 -   視聴数: 175,952
 -   **いいね数: 2,868**
 -   出演者: 大前プジョルジョ健太, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/fsS0Jv4PVrY/hqdefault.jpg)](https://www.youtube.com/watch?v=fsS0Jv4PVrY)
+- [![](https://img.youtube.com/vi/fsS0Jv4PVrY/hqdefault.jpg)](https://www.youtube.com/watch?v=fsS0Jv4PVrY)

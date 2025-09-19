@@ -3,4 +3,4 @@
 -   視聴数: 273,637
 -   **いいね数: 2,411**
 -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), [髙橋史好](/rehacq_fan/people/髙橋史好 "wikilink")
-    - [![](https://img.youtube.com/vi/SLnQC1oxGR0/hqdefault.jpg)](https://www.youtube.com/watch?v=SLnQC1oxGR0)
+- [![](https://img.youtube.com/vi/SLnQC1oxGR0/hqdefault.jpg)](https://www.youtube.com/watch?v=SLnQC1oxGR0)

@@ -3,4 +3,4 @@
 -   視聴数: 37,328
 -   **いいね数: 598**
 -   出演者: 永岡里菜, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Ge69eMLpCi8/hqdefault.jpg)](https://www.youtube.com/watch?v=Ge69eMLpCi8)
+- [![](https://img.youtube.com/vi/Ge69eMLpCi8/hqdefault.jpg)](https://www.youtube.com/watch?v=Ge69eMLpCi8)

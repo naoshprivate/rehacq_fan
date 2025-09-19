@@ -3,4 +3,4 @@
 -   視聴数: 119,769
 -   **いいね数: 1,039**
 -   出演者: 前嶋和弘, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/i2KTcQt-fnU/hqdefault.jpg)](https://www.youtube.com/watch?v=i2KTcQt-fnU)
+- [![](https://img.youtube.com/vi/i2KTcQt-fnU/hqdefault.jpg)](https://www.youtube.com/watch?v=i2KTcQt-fnU)

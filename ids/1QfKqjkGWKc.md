@@ -3,4 +3,4 @@
 -   視聴数: 94,653
 -   **いいね数: 1,160**
 -   出演者: [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 木村弥生
-    - [![](https://img.youtube.com/vi/1QfKqjkGWKc/hqdefault.jpg)](https://www.youtube.com/watch?v=1QfKqjkGWKc)
+- [![](https://img.youtube.com/vi/1QfKqjkGWKc/hqdefault.jpg)](https://www.youtube.com/watch?v=1QfKqjkGWKc)

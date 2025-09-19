@@ -3,4 +3,4 @@
 -   視聴数: 117,748
 -   **いいね数: 1,593**
 -   出演者: [河野太郎](/rehacq_fan/people/河野太郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/3AgnRmQKhg4/hqdefault.jpg)](https://www.youtube.com/watch?v=3AgnRmQKhg4)
+- [![](https://img.youtube.com/vi/3AgnRmQKhg4/hqdefault.jpg)](https://www.youtube.com/watch?v=3AgnRmQKhg4)

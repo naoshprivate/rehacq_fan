@@ -3,4 +3,4 @@
 -   視聴数: 218,703
 -   **いいね数: 2,818**
 -   出演者: 斉藤一弥, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/-E4FCUxnn9M/hqdefault.jpg)](https://www.youtube.com/watch?v=-E4FCUxnn9M)
+- [![](https://img.youtube.com/vi/-E4FCUxnn9M/hqdefault.jpg)](https://www.youtube.com/watch?v=-E4FCUxnn9M)

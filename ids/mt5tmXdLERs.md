@@ -3,4 +3,4 @@
 -   視聴数: 1,094,392
 -   **いいね数: 13,565**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
-    - [![](https://img.youtube.com/vi/mt5tmXdLERs/hqdefault.jpg)](https://www.youtube.com/watch?v=mt5tmXdLERs)
+- [![](https://img.youtube.com/vi/mt5tmXdLERs/hqdefault.jpg)](https://www.youtube.com/watch?v=mt5tmXdLERs)

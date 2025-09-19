@@ -3,4 +3,4 @@
 -   視聴数: 109,274
 -   **いいね数: 1,209**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/znp0KrD0pjs/hqdefault.jpg)](https://www.youtube.com/watch?v=znp0KrD0pjs)
+- [![](https://img.youtube.com/vi/znp0KrD0pjs/hqdefault.jpg)](https://www.youtube.com/watch?v=znp0KrD0pjs)

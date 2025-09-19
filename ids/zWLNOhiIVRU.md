@@ -3,4 +3,4 @@
 -   視聴数: 29,525
 -   **いいね数: 548**
 -   出演者: 古本武司, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
-    - [![](https://img.youtube.com/vi/zWLNOhiIVRU/hqdefault.jpg)](https://www.youtube.com/watch?v=zWLNOhiIVRU)
+- [![](https://img.youtube.com/vi/zWLNOhiIVRU/hqdefault.jpg)](https://www.youtube.com/watch?v=zWLNOhiIVRU)

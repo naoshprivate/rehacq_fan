@@ -3,4 +3,4 @@
 -   視聴数: 203,856
 -   **いいね数: 2,926**
 -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/QCiCNEJOShg/hqdefault.jpg)](https://www.youtube.com/watch?v=QCiCNEJOShg)
+- [![](https://img.youtube.com/vi/QCiCNEJOShg/hqdefault.jpg)](https://www.youtube.com/watch?v=QCiCNEJOShg)

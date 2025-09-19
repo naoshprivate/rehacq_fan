@@ -3,4 +3,4 @@
 -   視聴数: 56,985
 -   **いいね数: 518**
 -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), 町田穂高
-    - [![](https://img.youtube.com/vi/sorUSlXYB2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=sorUSlXYB2Y)
+- [![](https://img.youtube.com/vi/sorUSlXYB2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=sorUSlXYB2Y)

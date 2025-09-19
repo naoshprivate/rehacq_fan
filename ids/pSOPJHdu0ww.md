@@ -3,4 +3,4 @@
 -   視聴数: 112,562
 -   **いいね数: 1,656**
 -   出演者: [山下真](/rehacq_fan/people/山下真 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/pSOPJHdu0ww/hqdefault.jpg)](https://www.youtube.com/watch?v=pSOPJHdu0ww)
+- [![](https://img.youtube.com/vi/pSOPJHdu0ww/hqdefault.jpg)](https://www.youtube.com/watch?v=pSOPJHdu0ww)

@@ -3,4 +3,4 @@
 -   視聴数: 272,757
 -   **いいね数: 5,861**
 -   出演者: [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink"), 藤野智哉
-    - [![](https://img.youtube.com/vi/L_wVwlUt09c/hqdefault.jpg)](https://www.youtube.com/watch?v=L_wVwlUt09c)
+- [![](https://img.youtube.com/vi/L_wVwlUt09c/hqdefault.jpg)](https://www.youtube.com/watch?v=L_wVwlUt09c)

@@ -3,4 +3,4 @@
 -   視聴数: 36,056
 -   **いいね数: 598**
 -   出演者: 片桐常弥, 鈴木隆史, [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
-    - [![](https://img.youtube.com/vi/BuVEkvDyKHk/hqdefault.jpg)](https://www.youtube.com/watch?v=BuVEkvDyKHk)
+- [![](https://img.youtube.com/vi/BuVEkvDyKHk/hqdefault.jpg)](https://www.youtube.com/watch?v=BuVEkvDyKHk)

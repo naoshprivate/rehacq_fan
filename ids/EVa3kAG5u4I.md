@@ -3,4 +3,4 @@
 -   視聴数: 674,137
 -   **いいね数: 6,051**
 -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 森永康平
-    - [![](https://img.youtube.com/vi/EVa3kAG5u4I/hqdefault.jpg)](https://www.youtube.com/watch?v=EVa3kAG5u4I)
+- [![](https://img.youtube.com/vi/EVa3kAG5u4I/hqdefault.jpg)](https://www.youtube.com/watch?v=EVa3kAG5u4I)

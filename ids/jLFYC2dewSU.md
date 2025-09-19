@@ -3,4 +3,4 @@
 -   視聴数: 60,427
 -   **いいね数: 880**
 -   出演者: 井上潤, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jLFYC2dewSU/hqdefault.jpg)](https://www.youtube.com/watch?v=jLFYC2dewSU)
+- [![](https://img.youtube.com/vi/jLFYC2dewSU/hqdefault.jpg)](https://www.youtube.com/watch?v=jLFYC2dewSU)

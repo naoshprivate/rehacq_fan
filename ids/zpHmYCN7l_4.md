@@ -3,4 +3,4 @@
 -   視聴数: 89,466
 -   **いいね数: 1,724**
 -   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [赤沢亮正](/rehacq_fan/people/赤沢亮正 "wikilink")
-    - [![](https://img.youtube.com/vi/zpHmYCN7l_4/hqdefault.jpg)](https://www.youtube.com/watch?v=zpHmYCN7l_4)
+- [![](https://img.youtube.com/vi/zpHmYCN7l_4/hqdefault.jpg)](https://www.youtube.com/watch?v=zpHmYCN7l_4)

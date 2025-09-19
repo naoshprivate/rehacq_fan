@@ -3,4 +3,4 @@
 -   視聴数: 20,885
 -   **いいね数: 1,104**
 -   出演者: やた一久, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
-    - [![](https://img.youtube.com/vi/UPYQsqANtYo/hqdefault.jpg)](https://www.youtube.com/watch?v=UPYQsqANtYo)
+- [![](https://img.youtube.com/vi/UPYQsqANtYo/hqdefault.jpg)](https://www.youtube.com/watch?v=UPYQsqANtYo)

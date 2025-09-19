@@ -3,4 +3,4 @@
 -   視聴数: 806,549
 -   **いいね数: 12,642**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ボビーオロゴン
-    - [![](https://img.youtube.com/vi/wL9l_wH2yk4/hqdefault.jpg)](https://www.youtube.com/watch?v=wL9l_wH2yk4)
+- [![](https://img.youtube.com/vi/wL9l_wH2yk4/hqdefault.jpg)](https://www.youtube.com/watch?v=wL9l_wH2yk4)

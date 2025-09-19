@@ -3,4 +3,4 @@
 -   視聴数: 368,275
 -   **いいね数: 8,143**
 -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/n0VEjrT_6w8/hqdefault.jpg)](https://www.youtube.com/watch?v=n0VEjrT_6w8)
+- [![](https://img.youtube.com/vi/n0VEjrT_6w8/hqdefault.jpg)](https://www.youtube.com/watch?v=n0VEjrT_6w8)

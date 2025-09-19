@@ -3,4 +3,4 @@
 -   視聴数: 23,183
 -   **いいね数: 469**
 -   出演者: 粉川なつみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/RGgooR7mJRY/hqdefault.jpg)](https://www.youtube.com/watch?v=RGgooR7mJRY)
+- [![](https://img.youtube.com/vi/RGgooR7mJRY/hqdefault.jpg)](https://www.youtube.com/watch?v=RGgooR7mJRY)

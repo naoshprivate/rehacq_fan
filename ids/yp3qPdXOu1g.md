@@ -3,4 +3,4 @@
 -   視聴数: 241,590
 -   **いいね数: 3,586**
 -   出演者: 武田一顯, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/yp3qPdXOu1g/hqdefault.jpg)](https://www.youtube.com/watch?v=yp3qPdXOu1g)
+- [![](https://img.youtube.com/vi/yp3qPdXOu1g/hqdefault.jpg)](https://www.youtube.com/watch?v=yp3qPdXOu1g)

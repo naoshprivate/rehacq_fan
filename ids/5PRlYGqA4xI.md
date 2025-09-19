@@ -3,4 +3,4 @@
 -   視聴数: 43,194
 -   **いいね数: 619**
 -   出演者: [田中章義](/rehacq_fan/people/田中章義 "wikilink"), [藤宮若菜](/rehacq_fan/people/藤宮若菜 "wikilink")
-    - [![](https://img.youtube.com/vi/5PRlYGqA4xI/hqdefault.jpg)](https://www.youtube.com/watch?v=5PRlYGqA4xI)
+- [![](https://img.youtube.com/vi/5PRlYGqA4xI/hqdefault.jpg)](https://www.youtube.com/watch?v=5PRlYGqA4xI)

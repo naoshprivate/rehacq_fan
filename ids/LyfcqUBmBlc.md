@@ -3,4 +3,4 @@
 -   視聴数: 1,232,283
 -   **いいね数: 15,911**
 -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/LyfcqUBmBlc/hqdefault.jpg)](https://www.youtube.com/watch?v=LyfcqUBmBlc)
+- [![](https://img.youtube.com/vi/LyfcqUBmBlc/hqdefault.jpg)](https://www.youtube.com/watch?v=LyfcqUBmBlc)

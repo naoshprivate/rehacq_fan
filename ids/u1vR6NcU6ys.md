@@ -3,4 +3,4 @@
 -   視聴数: 481,898
 -   **いいね数: 14,665**
 -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/u1vR6NcU6ys/hqdefault.jpg)](https://www.youtube.com/watch?v=u1vR6NcU6ys)
+- [![](https://img.youtube.com/vi/u1vR6NcU6ys/hqdefault.jpg)](https://www.youtube.com/watch?v=u1vR6NcU6ys)

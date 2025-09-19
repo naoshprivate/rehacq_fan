@@ -3,4 +3,4 @@
 -   視聴数: 41,778
 -   **いいね数: 582**
 -   出演者: 石橋和章, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/7CO4km8yNtw/hqdefault.jpg)](https://www.youtube.com/watch?v=7CO4km8yNtw)
+- [![](https://img.youtube.com/vi/7CO4km8yNtw/hqdefault.jpg)](https://www.youtube.com/watch?v=7CO4km8yNtw)

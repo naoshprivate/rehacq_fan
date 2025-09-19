@@ -3,4 +3,4 @@
 -   視聴数: 880,939
 -   **いいね数: 15,043**
 -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/TRuYLYqTUDU/hqdefault.jpg)](https://www.youtube.com/watch?v=TRuYLYqTUDU)
+- [![](https://img.youtube.com/vi/TRuYLYqTUDU/hqdefault.jpg)](https://www.youtube.com/watch?v=TRuYLYqTUDU)

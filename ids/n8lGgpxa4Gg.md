@@ -3,4 +3,4 @@
 -   視聴数: 522,483
 -   **いいね数: 7,026**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 星加良司
-    - [![](https://img.youtube.com/vi/n8lGgpxa4Gg/hqdefault.jpg)](https://www.youtube.com/watch?v=n8lGgpxa4Gg)
+- [![](https://img.youtube.com/vi/n8lGgpxa4Gg/hqdefault.jpg)](https://www.youtube.com/watch?v=n8lGgpxa4Gg)

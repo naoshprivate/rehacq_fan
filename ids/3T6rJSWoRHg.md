@@ -3,4 +3,4 @@
 -   視聴数: 399,473
 -   **いいね数: 10,710**
 -   出演者: [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/3T6rJSWoRHg/hqdefault.jpg)](https://www.youtube.com/watch?v=3T6rJSWoRHg)
+- [![](https://img.youtube.com/vi/3T6rJSWoRHg/hqdefault.jpg)](https://www.youtube.com/watch?v=3T6rJSWoRHg)

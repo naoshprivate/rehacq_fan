@@ -3,4 +3,4 @@
 -   視聴数: 66,540
 -   **いいね数: 1,784**
 -   出演者: 砂川玄志郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/1dDAqZFMZXE/hqdefault.jpg)](https://www.youtube.com/watch?v=1dDAqZFMZXE)
+- [![](https://img.youtube.com/vi/1dDAqZFMZXE/hqdefault.jpg)](https://www.youtube.com/watch?v=1dDAqZFMZXE)

@@ -3,4 +3,4 @@
 -   視聴数: 31,532
 -   **いいね数: 453**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 澤村直道
-    - [![](https://img.youtube.com/vi/-TFt_x-ryX4/hqdefault.jpg)](https://www.youtube.com/watch?v=-TFt_x-ryX4)
+- [![](https://img.youtube.com/vi/-TFt_x-ryX4/hqdefault.jpg)](https://www.youtube.com/watch?v=-TFt_x-ryX4)

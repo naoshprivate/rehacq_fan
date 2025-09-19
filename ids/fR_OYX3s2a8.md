@@ -3,4 +3,4 @@
 -   視聴数: 78,807
 -   **いいね数: 1,364**
 -   出演者: さとうさやか, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/fR_OYX3s2a8/hqdefault.jpg)](https://www.youtube.com/watch?v=fR_OYX3s2a8)
+- [![](https://img.youtube.com/vi/fR_OYX3s2a8/hqdefault.jpg)](https://www.youtube.com/watch?v=fR_OYX3s2a8)

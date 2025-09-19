@@ -3,4 +3,4 @@
 -   視聴数: 41,125
 -   **いいね数: 646**
 -   出演者: 吉田翔栄, 神谷航平
-    - [![](https://img.youtube.com/vi/vJEK3ExARQI/hqdefault.jpg)](https://www.youtube.com/watch?v=vJEK3ExARQI)
+- [![](https://img.youtube.com/vi/vJEK3ExARQI/hqdefault.jpg)](https://www.youtube.com/watch?v=vJEK3ExARQI)

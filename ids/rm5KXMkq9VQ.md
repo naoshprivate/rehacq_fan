@@ -3,4 +3,4 @@
 -   視聴数: 626,650
 -   **いいね数: 8,781**
 -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/rm5KXMkq9VQ/hqdefault.jpg)](https://www.youtube.com/watch?v=rm5KXMkq9VQ)
+- [![](https://img.youtube.com/vi/rm5KXMkq9VQ/hqdefault.jpg)](https://www.youtube.com/watch?v=rm5KXMkq9VQ)

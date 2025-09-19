@@ -3,4 +3,4 @@
 -   視聴数: 154,544
 -   **いいね数: 2,143**
 -   出演者: 森本萌乃, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/vO_kKj2e5Gg/hqdefault.jpg)](https://www.youtube.com/watch?v=vO_kKj2e5Gg)
+- [![](https://img.youtube.com/vi/vO_kKj2e5Gg/hqdefault.jpg)](https://www.youtube.com/watch?v=vO_kKj2e5Gg)

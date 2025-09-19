@@ -3,4 +3,4 @@
 -   視聴数: 90,033
 -   **いいね数: 1,442**
 -   出演者: [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
-    - [![](https://img.youtube.com/vi/1Q7vkYMwAlY/hqdefault.jpg)](https://www.youtube.com/watch?v=1Q7vkYMwAlY)
+- [![](https://img.youtube.com/vi/1Q7vkYMwAlY/hqdefault.jpg)](https://www.youtube.com/watch?v=1Q7vkYMwAlY)

@@ -3,4 +3,4 @@
 -   視聴数: 116,192
 -   **いいね数: 2,195**
 -   出演者: [岡部芳彦](/rehacq_fan/people/岡部芳彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jVCeP_FCK2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=jVCeP_FCK2Y)
+- [![](https://img.youtube.com/vi/jVCeP_FCK2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=jVCeP_FCK2Y)

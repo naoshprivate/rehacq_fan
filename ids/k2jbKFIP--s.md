@@ -3,4 +3,4 @@
 -   視聴数: 1,027,493
 -   **いいね数: 17,939**
 -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/k2jbKFIP--s/hqdefault.jpg)](https://www.youtube.com/watch?v=k2jbKFIP--s)
+- [![](https://img.youtube.com/vi/k2jbKFIP--s/hqdefault.jpg)](https://www.youtube.com/watch?v=k2jbKFIP--s)

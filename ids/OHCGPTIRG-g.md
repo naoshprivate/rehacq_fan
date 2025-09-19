@@ -3,4 +3,4 @@
 -   視聴数: 229,551
 -   **いいね数: 2,630**
 -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/OHCGPTIRG-g/hqdefault.jpg)](https://www.youtube.com/watch?v=OHCGPTIRG-g)
+- [![](https://img.youtube.com/vi/OHCGPTIRG-g/hqdefault.jpg)](https://www.youtube.com/watch?v=OHCGPTIRG-g)

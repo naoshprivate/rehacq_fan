@@ -3,4 +3,4 @@
 -   視聴数: 246,451
 -   **いいね数: 3,468**
 -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/GmjCS1jDWKs/hqdefault.jpg)](https://www.youtube.com/watch?v=GmjCS1jDWKs)
+- [![](https://img.youtube.com/vi/GmjCS1jDWKs/hqdefault.jpg)](https://www.youtube.com/watch?v=GmjCS1jDWKs)

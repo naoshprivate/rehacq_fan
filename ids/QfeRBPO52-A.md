@@ -3,4 +3,4 @@
 -   視聴数: 555,117
 -   **いいね数: 5,566**
 -   出演者: 渡邊勝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/QfeRBPO52-A/hqdefault.jpg)](https://www.youtube.com/watch?v=QfeRBPO52-A)
+- [![](https://img.youtube.com/vi/QfeRBPO52-A/hqdefault.jpg)](https://www.youtube.com/watch?v=QfeRBPO52-A)

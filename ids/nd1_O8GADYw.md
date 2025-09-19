@@ -3,4 +3,4 @@
 -   視聴数: 919,319
 -   **いいね数: 10,630**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 伊佐進一
-    - [![](https://img.youtube.com/vi/nd1_O8GADYw/hqdefault.jpg)](https://www.youtube.com/watch?v=nd1_O8GADYw)
+- [![](https://img.youtube.com/vi/nd1_O8GADYw/hqdefault.jpg)](https://www.youtube.com/watch?v=nd1_O8GADYw)

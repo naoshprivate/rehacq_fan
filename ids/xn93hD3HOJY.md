@@ -3,4 +3,4 @@
 -   視聴数: 112,944
 -   **いいね数: 899**
 -   出演者: [岩谷良平](/rehacq_fan/people/岩谷良平 "wikilink"), 金子道仁
-    - [![](https://img.youtube.com/vi/xn93hD3HOJY/hqdefault.jpg)](https://www.youtube.com/watch?v=xn93hD3HOJY)
+- [![](https://img.youtube.com/vi/xn93hD3HOJY/hqdefault.jpg)](https://www.youtube.com/watch?v=xn93hD3HOJY)

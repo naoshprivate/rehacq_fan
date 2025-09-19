@@ -3,4 +3,4 @@
 -   視聴数: 27,513
 -   **いいね数: 558**
 -   出演者: 小西公大, [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
-    - [![](https://img.youtube.com/vi/pEPuR7OV6dc/hqdefault.jpg)](https://www.youtube.com/watch?v=pEPuR7OV6dc)
+- [![](https://img.youtube.com/vi/pEPuR7OV6dc/hqdefault.jpg)](https://www.youtube.com/watch?v=pEPuR7OV6dc)

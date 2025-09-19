@@ -3,4 +3,4 @@
 -   視聴数: 151,020
 -   **いいね数: 2,039**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ヨッピー
-    - [![](https://img.youtube.com/vi/3Jx0xIMmwOs/hqdefault.jpg)](https://www.youtube.com/watch?v=3Jx0xIMmwOs)
+- [![](https://img.youtube.com/vi/3Jx0xIMmwOs/hqdefault.jpg)](https://www.youtube.com/watch?v=3Jx0xIMmwOs)

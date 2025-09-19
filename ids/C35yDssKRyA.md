@@ -3,4 +3,4 @@
 -   視聴数: 148,388
 -   **いいね数: 1,753**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
-    - [![](https://img.youtube.com/vi/C35yDssKRyA/hqdefault.jpg)](https://www.youtube.com/watch?v=C35yDssKRyA)
+- [![](https://img.youtube.com/vi/C35yDssKRyA/hqdefault.jpg)](https://www.youtube.com/watch?v=C35yDssKRyA)

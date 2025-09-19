@@ -3,4 +3,4 @@
 -   視聴数: 527,330
 -   **いいね数: 7,311**
 -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [養老孟司](/rehacq_fan/people/養老孟司 "wikilink")
-    - [![](https://img.youtube.com/vi/2T6YJh_P5NU/hqdefault.jpg)](https://www.youtube.com/watch?v=2T6YJh_P5NU)
+- [![](https://img.youtube.com/vi/2T6YJh_P5NU/hqdefault.jpg)](https://www.youtube.com/watch?v=2T6YJh_P5NU)

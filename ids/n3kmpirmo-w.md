@@ -3,4 +3,4 @@
 -   視聴数: 28,573
 -   **いいね数: 332**
 -   出演者: 
-    - [![](https://img.youtube.com/vi/n3kmpirmo-w/hqdefault.jpg)](https://www.youtube.com/watch?v=n3kmpirmo-w)
+- [![](https://img.youtube.com/vi/n3kmpirmo-w/hqdefault.jpg)](https://www.youtube.com/watch?v=n3kmpirmo-w)

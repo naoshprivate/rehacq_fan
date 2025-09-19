@@ -3,4 +3,4 @@
 -   視聴数: 99,713
 -   **いいね数: 1,208**
 -   出演者: 山口慎太郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/fNqraiVSyjc/hqdefault.jpg)](https://www.youtube.com/watch?v=fNqraiVSyjc)
+- [![](https://img.youtube.com/vi/fNqraiVSyjc/hqdefault.jpg)](https://www.youtube.com/watch?v=fNqraiVSyjc)

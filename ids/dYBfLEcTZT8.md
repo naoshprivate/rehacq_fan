@@ -3,4 +3,4 @@
 -   視聴数: 20,395
 -   **いいね数: 311**
 -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
-    - [![](https://img.youtube.com/vi/dYBfLEcTZT8/hqdefault.jpg)](https://www.youtube.com/watch?v=dYBfLEcTZT8)
+- [![](https://img.youtube.com/vi/dYBfLEcTZT8/hqdefault.jpg)](https://www.youtube.com/watch?v=dYBfLEcTZT8)

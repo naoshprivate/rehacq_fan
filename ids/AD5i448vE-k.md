@@ -3,4 +3,4 @@
 -   視聴数: 244,131
 -   **いいね数: 2,406**
 -   出演者: 北口拓実, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/AD5i448vE-k/hqdefault.jpg)](https://www.youtube.com/watch?v=AD5i448vE-k)
+- [![](https://img.youtube.com/vi/AD5i448vE-k/hqdefault.jpg)](https://www.youtube.com/watch?v=AD5i448vE-k)

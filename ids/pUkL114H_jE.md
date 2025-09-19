@@ -3,4 +3,4 @@
 -   視聴数: 240,113
 -   **いいね数: 1,938**
 -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/pUkL114H_jE/hqdefault.jpg)](https://www.youtube.com/watch?v=pUkL114H_jE)
+- [![](https://img.youtube.com/vi/pUkL114H_jE/hqdefault.jpg)](https://www.youtube.com/watch?v=pUkL114H_jE)

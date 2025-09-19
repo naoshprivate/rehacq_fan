@@ -3,4 +3,4 @@
 -   視聴数: 63,387
 -   **いいね数: 855**
 -   出演者: 伊神満, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jFyyGJa1CPk/hqdefault.jpg)](https://www.youtube.com/watch?v=jFyyGJa1CPk)
+- [![](https://img.youtube.com/vi/jFyyGJa1CPk/hqdefault.jpg)](https://www.youtube.com/watch?v=jFyyGJa1CPk)

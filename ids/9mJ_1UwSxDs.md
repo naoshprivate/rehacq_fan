@@ -3,4 +3,4 @@
 -   視聴数: 82,891
 -   **いいね数: 1,150**
 -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小林亮介
-    - [![](https://img.youtube.com/vi/9mJ_1UwSxDs/hqdefault.jpg)](https://www.youtube.com/watch?v=9mJ_1UwSxDs)
+- [![](https://img.youtube.com/vi/9mJ_1UwSxDs/hqdefault.jpg)](https://www.youtube.com/watch?v=9mJ_1UwSxDs)

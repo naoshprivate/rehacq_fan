@@ -3,4 +3,4 @@
 -   視聴数: 2,638,841
 -   **いいね数: 40,022**
 -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/3Hfpr-_7Ykg/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)
+- [![](https://img.youtube.com/vi/3Hfpr-_7Ykg/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hfpr-_7Ykg)

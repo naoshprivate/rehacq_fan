@@ -3,4 +3,4 @@
 -   視聴数: 276,405
 -   **いいね数: 2,473**
 -   出演者: 古田大輔, [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/wCvFYaZrbMs/hqdefault.jpg)](https://www.youtube.com/watch?v=wCvFYaZrbMs)
+- [![](https://img.youtube.com/vi/wCvFYaZrbMs/hqdefault.jpg)](https://www.youtube.com/watch?v=wCvFYaZrbMs)

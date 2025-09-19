@@ -3,4 +3,4 @@
 -   視聴数: 211,543
 -   **いいね数: 3,492**
 -   出演者: [片石貴](/rehacq_fan/people/片石貴 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/bBIGqbNQar4/hqdefault.jpg)](https://www.youtube.com/watch?v=bBIGqbNQar4)
+- [![](https://img.youtube.com/vi/bBIGqbNQar4/hqdefault.jpg)](https://www.youtube.com/watch?v=bBIGqbNQar4)

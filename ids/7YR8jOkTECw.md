@@ -3,4 +3,4 @@
 -   視聴数: 56,753
 -   **いいね数: 896**
 -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), 宇野常寛, 笹原和俊
-    - [![](https://img.youtube.com/vi/7YR8jOkTECw/hqdefault.jpg)](https://www.youtube.com/watch?v=7YR8jOkTECw)
+- [![](https://img.youtube.com/vi/7YR8jOkTECw/hqdefault.jpg)](https://www.youtube.com/watch?v=7YR8jOkTECw)

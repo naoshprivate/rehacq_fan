@@ -3,4 +3,4 @@
 -   視聴数: 44,315
 -   **いいね数: 574**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 井上佳央里, [成田修造](/rehacq_fan/people/成田修造 "wikilink")
-    - [![](https://img.youtube.com/vi/ELi7MRHB7RM/hqdefault.jpg)](https://www.youtube.com/watch?v=ELi7MRHB7RM)
+- [![](https://img.youtube.com/vi/ELi7MRHB7RM/hqdefault.jpg)](https://www.youtube.com/watch?v=ELi7MRHB7RM)

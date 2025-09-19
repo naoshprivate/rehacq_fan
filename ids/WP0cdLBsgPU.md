@@ -3,4 +3,4 @@
 -   視聴数: 15,030
 -   **いいね数: 199**
 -   出演者: 福田浩士
-    - [![](https://img.youtube.com/vi/WP0cdLBsgPU/hqdefault.jpg)](https://www.youtube.com/watch?v=WP0cdLBsgPU)
+- [![](https://img.youtube.com/vi/WP0cdLBsgPU/hqdefault.jpg)](https://www.youtube.com/watch?v=WP0cdLBsgPU)

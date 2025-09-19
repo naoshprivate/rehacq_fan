@@ -3,4 +3,4 @@
 -   視聴数: 188,855
 -   **いいね数: 2,551**
 -   出演者: 上月良祐, 舟山康江, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/VHYDUlGYyQI/hqdefault.jpg)](https://www.youtube.com/watch?v=VHYDUlGYyQI)
+- [![](https://img.youtube.com/vi/VHYDUlGYyQI/hqdefault.jpg)](https://www.youtube.com/watch?v=VHYDUlGYyQI)

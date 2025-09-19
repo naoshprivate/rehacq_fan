@@ -3,4 +3,4 @@
 -   視聴数: 32,890
 -   **いいね数: 257**
 -   出演者: 菅原淳一, [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/1fRj3pR4oag/hqdefault.jpg)](https://www.youtube.com/watch?v=1fRj3pR4oag)
+- [![](https://img.youtube.com/vi/1fRj3pR4oag/hqdefault.jpg)](https://www.youtube.com/watch?v=1fRj3pR4oag)

@@ -3,4 +3,4 @@
 -   視聴数: 364,914
 -   **いいね数: 4,795**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink")
-    - [![](https://img.youtube.com/vi/K5wQ3q80DS8/hqdefault.jpg)](https://www.youtube.com/watch?v=K5wQ3q80DS8)
+- [![](https://img.youtube.com/vi/K5wQ3q80DS8/hqdefault.jpg)](https://www.youtube.com/watch?v=K5wQ3q80DS8)

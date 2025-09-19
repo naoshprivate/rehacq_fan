@@ -3,4 +3,4 @@
 -   視聴数: 81,682
 -   **いいね数: 790**
 -   出演者: 杉尾秀哉, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/eXsztVBq3hI/hqdefault.jpg)](https://www.youtube.com/watch?v=eXsztVBq3hI)
+- [![](https://img.youtube.com/vi/eXsztVBq3hI/hqdefault.jpg)](https://www.youtube.com/watch?v=eXsztVBq3hI)

@@ -3,4 +3,4 @@
 -   視聴数: 52,939
 -   **いいね数: 928**
 -   出演者: 谷内江望, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ecN-e9OR3HM/hqdefault.jpg)](https://www.youtube.com/watch?v=ecN-e9OR3HM)
+- [![](https://img.youtube.com/vi/ecN-e9OR3HM/hqdefault.jpg)](https://www.youtube.com/watch?v=ecN-e9OR3HM)

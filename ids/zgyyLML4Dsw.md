@@ -3,4 +3,4 @@
 -   視聴数: 31,165
 -   **いいね数: 421**
 -   出演者: 八田舞, 八田飛鳥, 大川淳子, [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
-    - [![](https://img.youtube.com/vi/zgyyLML4Dsw/hqdefault.jpg)](https://www.youtube.com/watch?v=zgyyLML4Dsw)
+- [![](https://img.youtube.com/vi/zgyyLML4Dsw/hqdefault.jpg)](https://www.youtube.com/watch?v=zgyyLML4Dsw)

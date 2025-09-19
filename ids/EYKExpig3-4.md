@@ -3,4 +3,4 @@
 -   視聴数: 1,111,965
 -   **いいね数: 18,503**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-    - [![](https://img.youtube.com/vi/EYKExpig3-4/hqdefault.jpg)](https://www.youtube.com/watch?v=EYKExpig3-4)
+- [![](https://img.youtube.com/vi/EYKExpig3-4/hqdefault.jpg)](https://www.youtube.com/watch?v=EYKExpig3-4)

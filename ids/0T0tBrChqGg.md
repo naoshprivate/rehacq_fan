@@ -3,4 +3,4 @@
 -   視聴数: 120,180
 -   **いいね数: 2,522**
 -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), 白井たかひろ
-    - [![](https://img.youtube.com/vi/0T0tBrChqGg/hqdefault.jpg)](https://www.youtube.com/watch?v=0T0tBrChqGg)
+- [![](https://img.youtube.com/vi/0T0tBrChqGg/hqdefault.jpg)](https://www.youtube.com/watch?v=0T0tBrChqGg)

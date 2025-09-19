@@ -3,4 +3,4 @@
 -   視聴数: 302,634
 -   **いいね数: 4,197**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
-    - [![](https://img.youtube.com/vi/N-QvIzuwk8s/hqdefault.jpg)](https://www.youtube.com/watch?v=N-QvIzuwk8s)
+- [![](https://img.youtube.com/vi/N-QvIzuwk8s/hqdefault.jpg)](https://www.youtube.com/watch?v=N-QvIzuwk8s)

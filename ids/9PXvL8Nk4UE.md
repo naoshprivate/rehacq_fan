@@ -3,4 +3,4 @@
 -   視聴数: 167,619
 -   **いいね数: 1,098**
 -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 菊地崇仁
-    - [![](https://img.youtube.com/vi/9PXvL8Nk4UE/hqdefault.jpg)](https://www.youtube.com/watch?v=9PXvL8Nk4UE)
+- [![](https://img.youtube.com/vi/9PXvL8Nk4UE/hqdefault.jpg)](https://www.youtube.com/watch?v=9PXvL8Nk4UE)

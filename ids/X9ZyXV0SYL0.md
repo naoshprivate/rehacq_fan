@@ -3,4 +3,4 @@
 -   視聴数: 251,860
 -   **いいね数: 5,158**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [麻生要一](/rehacq_fan/people/麻生要一 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
-    - [![](https://img.youtube.com/vi/X9ZyXV0SYL0/hqdefault.jpg)](https://www.youtube.com/watch?v=X9ZyXV0SYL0)
+- [![](https://img.youtube.com/vi/X9ZyXV0SYL0/hqdefault.jpg)](https://www.youtube.com/watch?v=X9ZyXV0SYL0)

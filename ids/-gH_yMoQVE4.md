@@ -3,4 +3,4 @@
 -   視聴数: 173,000
 -   **いいね数: 2,932**
 -   出演者: 井上慎平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/-gH_yMoQVE4/hqdefault.jpg)](https://www.youtube.com/watch?v=-gH_yMoQVE4)
+- [![](https://img.youtube.com/vi/-gH_yMoQVE4/hqdefault.jpg)](https://www.youtube.com/watch?v=-gH_yMoQVE4)

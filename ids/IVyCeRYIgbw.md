@@ -3,4 +3,4 @@
 -   視聴数: 34,046
 -   **いいね数: 510**
 -   出演者: 千代田修平, 白木英美
-    - [![](https://img.youtube.com/vi/IVyCeRYIgbw/hqdefault.jpg)](https://www.youtube.com/watch?v=IVyCeRYIgbw)
+- [![](https://img.youtube.com/vi/IVyCeRYIgbw/hqdefault.jpg)](https://www.youtube.com/watch?v=IVyCeRYIgbw)

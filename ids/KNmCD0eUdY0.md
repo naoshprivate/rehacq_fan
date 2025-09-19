@@ -3,4 +3,4 @@
 -   視聴数: 191,944
 -   **いいね数: 2,248**
 -   出演者: [岩谷良平](/rehacq_fan/people/岩谷良平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/KNmCD0eUdY0/hqdefault.jpg)](https://www.youtube.com/watch?v=KNmCD0eUdY0)
+- [![](https://img.youtube.com/vi/KNmCD0eUdY0/hqdefault.jpg)](https://www.youtube.com/watch?v=KNmCD0eUdY0)

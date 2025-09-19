@@ -3,4 +3,4 @@
 -   視聴数: 329,244
 -   **いいね数: 4,787**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 井口浩之
-    - [![](https://img.youtube.com/vi/5muMuRJ1fQw/hqdefault.jpg)](https://www.youtube.com/watch?v=5muMuRJ1fQw)
+- [![](https://img.youtube.com/vi/5muMuRJ1fQw/hqdefault.jpg)](https://www.youtube.com/watch?v=5muMuRJ1fQw)

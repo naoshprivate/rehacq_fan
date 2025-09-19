@@ -3,4 +3,4 @@
 -   視聴数: 177,366
 -   **いいね数: 6,855**
 -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/sT-2mKXHPm8/hqdefault.jpg)](https://www.youtube.com/watch?v=sT-2mKXHPm8)
+- [![](https://img.youtube.com/vi/sT-2mKXHPm8/hqdefault.jpg)](https://www.youtube.com/watch?v=sT-2mKXHPm8)

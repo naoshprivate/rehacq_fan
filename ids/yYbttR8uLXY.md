@@ -3,4 +3,4 @@
 -   視聴数: 80,718
 -   **いいね数: 1,141**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 氷川竜介
-    - [![](https://img.youtube.com/vi/yYbttR8uLXY/hqdefault.jpg)](https://www.youtube.com/watch?v=yYbttR8uLXY)
+- [![](https://img.youtube.com/vi/yYbttR8uLXY/hqdefault.jpg)](https://www.youtube.com/watch?v=yYbttR8uLXY)

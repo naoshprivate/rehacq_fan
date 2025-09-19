@@ -3,4 +3,4 @@
 -   視聴数: 174,527
 -   **いいね数: 3,134**
 -   出演者: おちゅり, 林裕介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/AJ-1tM4seM4/hqdefault.jpg)](https://www.youtube.com/watch?v=AJ-1tM4seM4)
+- [![](https://img.youtube.com/vi/AJ-1tM4seM4/hqdefault.jpg)](https://www.youtube.com/watch?v=AJ-1tM4seM4)

@@ -3,4 +3,4 @@
 -   視聴数: 851,920
 -   **いいね数: 16,177**
 -   出演者: [中田敦彦](/rehacq_fan/people/中田敦彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ZnXwCAVJ7Gs/hqdefault.jpg)](https://www.youtube.com/watch?v=ZnXwCAVJ7Gs)
+- [![](https://img.youtube.com/vi/ZnXwCAVJ7Gs/hqdefault.jpg)](https://www.youtube.com/watch?v=ZnXwCAVJ7Gs)

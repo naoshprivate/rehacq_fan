@@ -3,4 +3,4 @@
 -   視聴数: 97,940
 -   **いいね数: 838**
 -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
-    - [![](https://img.youtube.com/vi/k-v9M-DDo4s/hqdefault.jpg)](https://www.youtube.com/watch?v=k-v9M-DDo4s)
+- [![](https://img.youtube.com/vi/k-v9M-DDo4s/hqdefault.jpg)](https://www.youtube.com/watch?v=k-v9M-DDo4s)

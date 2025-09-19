@@ -3,4 +3,4 @@
 -   視聴数: 57,728
 -   **いいね数: 546**
 -   出演者: 西村誠司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/y7lt6HdPtw0/hqdefault.jpg)](https://www.youtube.com/watch?v=y7lt6HdPtw0)
+- [![](https://img.youtube.com/vi/y7lt6HdPtw0/hqdefault.jpg)](https://www.youtube.com/watch?v=y7lt6HdPtw0)

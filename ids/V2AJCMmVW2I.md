@@ -3,4 +3,4 @@
 -   視聴数: 947,738
 -   **いいね数: 15,135**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
-    - [![](https://img.youtube.com/vi/V2AJCMmVW2I/hqdefault.jpg)](https://www.youtube.com/watch?v=V2AJCMmVW2I)
+- [![](https://img.youtube.com/vi/V2AJCMmVW2I/hqdefault.jpg)](https://www.youtube.com/watch?v=V2AJCMmVW2I)

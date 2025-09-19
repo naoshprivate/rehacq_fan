@@ -3,4 +3,4 @@
 -   視聴数: 197,237
 -   **いいね数: 1,826**
 -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/MMwMk6u7rFE/hqdefault.jpg)](https://www.youtube.com/watch?v=MMwMk6u7rFE)
+- [![](https://img.youtube.com/vi/MMwMk6u7rFE/hqdefault.jpg)](https://www.youtube.com/watch?v=MMwMk6u7rFE)

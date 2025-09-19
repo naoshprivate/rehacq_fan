@@ -3,4 +3,4 @@
 -   視聴数: 9,785
 -   **いいね数: 72**
 -   出演者: 落合貴之, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/j7psvJ6nJa4/hqdefault.jpg)](https://www.youtube.com/watch?v=j7psvJ6nJa4)
+- [![](https://img.youtube.com/vi/j7psvJ6nJa4/hqdefault.jpg)](https://www.youtube.com/watch?v=j7psvJ6nJa4)

@@ -3,4 +3,4 @@
 -   視聴数: 414,946
 -   **いいね数: 4,822**
 -   出演者: [足立康史](/rehacq_fan/people/足立康史 "wikilink")
-    - [![](https://img.youtube.com/vi/VKcPq7WgiTk/hqdefault.jpg)](https://www.youtube.com/watch?v=VKcPq7WgiTk)
+- [![](https://img.youtube.com/vi/VKcPq7WgiTk/hqdefault.jpg)](https://www.youtube.com/watch?v=VKcPq7WgiTk)

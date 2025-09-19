@@ -3,4 +3,4 @@
 -   視聴数: 565,875
 -   **いいね数: 7,378**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ボビーオロゴン, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), 菊池信之介
-    - [![](https://img.youtube.com/vi/H5IVSMGIoyg/hqdefault.jpg)](https://www.youtube.com/watch?v=H5IVSMGIoyg)
+- [![](https://img.youtube.com/vi/H5IVSMGIoyg/hqdefault.jpg)](https://www.youtube.com/watch?v=H5IVSMGIoyg)

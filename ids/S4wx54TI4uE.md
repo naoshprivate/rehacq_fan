@@ -3,4 +3,4 @@
 -   視聴数: 71,544
 -   **いいね数: 1,192**
 -   出演者: 中空麻奈, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/S4wx54TI4uE/hqdefault.jpg)](https://www.youtube.com/watch?v=S4wx54TI4uE)
+- [![](https://img.youtube.com/vi/S4wx54TI4uE/hqdefault.jpg)](https://www.youtube.com/watch?v=S4wx54TI4uE)

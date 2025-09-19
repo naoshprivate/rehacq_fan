@@ -3,4 +3,4 @@
 -   視聴数: 80,885
 -   **いいね数: 970**
 -   出演者: 大塚淳, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 西郷甲矢人
-    - [![](https://img.youtube.com/vi/gUFo_s-MRaA/hqdefault.jpg)](https://www.youtube.com/watch?v=gUFo_s-MRaA)
+- [![](https://img.youtube.com/vi/gUFo_s-MRaA/hqdefault.jpg)](https://www.youtube.com/watch?v=gUFo_s-MRaA)

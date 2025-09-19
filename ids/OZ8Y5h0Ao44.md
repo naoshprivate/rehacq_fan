@@ -3,4 +3,4 @@
 -   視聴数: 62,625
 -   **いいね数: 1,235**
 -   出演者: [矢田稚子](/rehacq_fan/people/矢田稚子 "wikilink")
-    - [![](https://img.youtube.com/vi/OZ8Y5h0Ao44/hqdefault.jpg)](https://www.youtube.com/watch?v=OZ8Y5h0Ao44)
+- [![](https://img.youtube.com/vi/OZ8Y5h0Ao44/hqdefault.jpg)](https://www.youtube.com/watch?v=OZ8Y5h0Ao44)

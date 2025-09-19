@@ -3,4 +3,4 @@
 -   視聴数: 69,116
 -   **いいね数: 1,387**
 -   出演者: 横田徹, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/e02Gz9w7fhU/hqdefault.jpg)](https://www.youtube.com/watch?v=e02Gz9w7fhU)
+- [![](https://img.youtube.com/vi/e02Gz9w7fhU/hqdefault.jpg)](https://www.youtube.com/watch?v=e02Gz9w7fhU)

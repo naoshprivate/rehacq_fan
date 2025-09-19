@@ -3,4 +3,4 @@
 -   視聴数: 173,042
 -   **いいね数: 1,981**
 -   出演者: チャエン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/9Yv_TGQOD3w/hqdefault.jpg)](https://www.youtube.com/watch?v=9Yv_TGQOD3w)
+- [![](https://img.youtube.com/vi/9Yv_TGQOD3w/hqdefault.jpg)](https://www.youtube.com/watch?v=9Yv_TGQOD3w)

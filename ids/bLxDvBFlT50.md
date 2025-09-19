@@ -3,4 +3,4 @@
 -   視聴数: 125,538
 -   **いいね数: 1,476**
 -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/bLxDvBFlT50/hqdefault.jpg)](https://www.youtube.com/watch?v=bLxDvBFlT50)
+- [![](https://img.youtube.com/vi/bLxDvBFlT50/hqdefault.jpg)](https://www.youtube.com/watch?v=bLxDvBFlT50)

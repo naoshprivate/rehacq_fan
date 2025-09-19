@@ -3,4 +3,4 @@
 -   視聴数: 66,167
 -   **いいね数: 608**
 -   出演者: 大野峻典, [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink"), 柏村祐
-    - [![](https://img.youtube.com/vi/ukcrO85nVnY/hqdefault.jpg)](https://www.youtube.com/watch?v=ukcrO85nVnY)
+- [![](https://img.youtube.com/vi/ukcrO85nVnY/hqdefault.jpg)](https://www.youtube.com/watch?v=ukcrO85nVnY)

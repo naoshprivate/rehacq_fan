@@ -3,4 +3,4 @@
 -   視聴数: 84,214
 -   **いいね数: 1,634**
 -   出演者: 吉見俊哉, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/B_oCnrkmsUU/hqdefault.jpg)](https://www.youtube.com/watch?v=B_oCnrkmsUU)
+- [![](https://img.youtube.com/vi/B_oCnrkmsUU/hqdefault.jpg)](https://www.youtube.com/watch?v=B_oCnrkmsUU)

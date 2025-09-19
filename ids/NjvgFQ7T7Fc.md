@@ -3,4 +3,4 @@
 -   視聴数: 53,196
 -   **いいね数: 604**
 -   出演者: 三浦崇宏, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/NjvgFQ7T7Fc/hqdefault.jpg)](https://www.youtube.com/watch?v=NjvgFQ7T7Fc)
+- [![](https://img.youtube.com/vi/NjvgFQ7T7Fc/hqdefault.jpg)](https://www.youtube.com/watch?v=NjvgFQ7T7Fc)

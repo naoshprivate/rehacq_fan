@@ -3,4 +3,4 @@
 -   視聴数: 547,455
 -   **いいね数: 10,298**
 -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
-    - [![](https://img.youtube.com/vi/fxJfGYo9DVw/hqdefault.jpg)](https://www.youtube.com/watch?v=fxJfGYo9DVw)
+- [![](https://img.youtube.com/vi/fxJfGYo9DVw/hqdefault.jpg)](https://www.youtube.com/watch?v=fxJfGYo9DVw)

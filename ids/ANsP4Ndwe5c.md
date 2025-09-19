@@ -3,4 +3,4 @@
 -   視聴数: 69,459
 -   **いいね数: 1,038**
 -   出演者: 徐浩予, 柳ヶ瀬裕文, 渡部カンコロンゴ清花
-    - [![](https://img.youtube.com/vi/ANsP4Ndwe5c/hqdefault.jpg)](https://www.youtube.com/watch?v=ANsP4Ndwe5c)
+- [![](https://img.youtube.com/vi/ANsP4Ndwe5c/hqdefault.jpg)](https://www.youtube.com/watch?v=ANsP4Ndwe5c)

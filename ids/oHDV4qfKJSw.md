@@ -3,4 +3,4 @@
 -   視聴数: 1,739,441
 -   **いいね数: 26,489**
 -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/oHDV4qfKJSw/hqdefault.jpg)](https://www.youtube.com/watch?v=oHDV4qfKJSw)
+- [![](https://img.youtube.com/vi/oHDV4qfKJSw/hqdefault.jpg)](https://www.youtube.com/watch?v=oHDV4qfKJSw)

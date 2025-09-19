@@ -3,4 +3,4 @@
 -   視聴数: 322,853
 -   **いいね数: 3,723**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 郷原信郎
-    - [![](https://img.youtube.com/vi/FY7omsAJpf8/hqdefault.jpg)](https://www.youtube.com/watch?v=FY7omsAJpf8)
+- [![](https://img.youtube.com/vi/FY7omsAJpf8/hqdefault.jpg)](https://www.youtube.com/watch?v=FY7omsAJpf8)

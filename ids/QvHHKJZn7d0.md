@@ -3,4 +3,4 @@
 -   視聴数: 383,258
 -   **いいね数: 3,615**
 -   出演者: 森功, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/QvHHKJZn7d0/hqdefault.jpg)](https://www.youtube.com/watch?v=QvHHKJZn7d0)
+- [![](https://img.youtube.com/vi/QvHHKJZn7d0/hqdefault.jpg)](https://www.youtube.com/watch?v=QvHHKJZn7d0)

@@ -3,4 +3,4 @@
 -   視聴数: 63,487
 -   **いいね数: 1,053**
 -   出演者: [平将明](/rehacq_fan/people/平将明 "wikilink"), [松尾豊](/rehacq_fan/people/松尾豊 "wikilink")
-    - [![](https://img.youtube.com/vi/oVOBt1IQKf0/hqdefault.jpg)](https://www.youtube.com/watch?v=oVOBt1IQKf0)
+- [![](https://img.youtube.com/vi/oVOBt1IQKf0/hqdefault.jpg)](https://www.youtube.com/watch?v=oVOBt1IQKf0)

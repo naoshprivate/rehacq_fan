@@ -3,4 +3,4 @@
 -   視聴数: 45,966
 -   **いいね数: 542**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 木下慶彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/tEZla-w45Ic/hqdefault.jpg)](https://www.youtube.com/watch?v=tEZla-w45Ic)
+- [![](https://img.youtube.com/vi/tEZla-w45Ic/hqdefault.jpg)](https://www.youtube.com/watch?v=tEZla-w45Ic)

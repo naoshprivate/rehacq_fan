@@ -3,4 +3,4 @@
 -   視聴数: 456,017
 -   **いいね数: 10,569**
 -   出演者: [尾谷昌則](/rehacq_fan/people/尾谷昌則 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/5CfLTDqB4_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=5CfLTDqB4_Y)
+- [![](https://img.youtube.com/vi/5CfLTDqB4_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=5CfLTDqB4_Y)

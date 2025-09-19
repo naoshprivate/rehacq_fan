@@ -3,4 +3,4 @@
 -   視聴数: 352,693
 -   **いいね数: 5,175**
 -   出演者: うなぽよ, [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/FjH7TzdPu80/hqdefault.jpg)](https://www.youtube.com/watch?v=FjH7TzdPu80)
+- [![](https://img.youtube.com/vi/FjH7TzdPu80/hqdefault.jpg)](https://www.youtube.com/watch?v=FjH7TzdPu80)

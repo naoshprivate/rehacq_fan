@@ -3,4 +3,4 @@
 -   視聴数: 46,969
 -   **いいね数: 662**
 -   出演者: 木下勝寿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/SNnv-SIfKvQ/hqdefault.jpg)](https://www.youtube.com/watch?v=SNnv-SIfKvQ)
+- [![](https://img.youtube.com/vi/SNnv-SIfKvQ/hqdefault.jpg)](https://www.youtube.com/watch?v=SNnv-SIfKvQ)

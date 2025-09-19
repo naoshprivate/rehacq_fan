@@ -3,4 +3,4 @@
 -   視聴数: 271,695
 -   **いいね数: 5,731**
 -   出演者: なかやまきんに君
-    - [![](https://img.youtube.com/vi/STROqkOzMIw/hqdefault.jpg)](https://www.youtube.com/watch?v=STROqkOzMIw)
+- [![](https://img.youtube.com/vi/STROqkOzMIw/hqdefault.jpg)](https://www.youtube.com/watch?v=STROqkOzMIw)

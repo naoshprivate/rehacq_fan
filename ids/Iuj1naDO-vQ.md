@@ -3,4 +3,4 @@
 -   視聴数: 144,121
 -   **いいね数: 1,353**
 -   出演者: 泉健太, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Iuj1naDO-vQ/hqdefault.jpg)](https://www.youtube.com/watch?v=Iuj1naDO-vQ)
+- [![](https://img.youtube.com/vi/Iuj1naDO-vQ/hqdefault.jpg)](https://www.youtube.com/watch?v=Iuj1naDO-vQ)

@@ -3,4 +3,4 @@
 -   視聴数: 89,269
 -   **いいね数: 4,898**
 -   出演者: [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/ZmUitnuWX8g/hqdefault.jpg)](https://www.youtube.com/watch?v=ZmUitnuWX8g)
+- [![](https://img.youtube.com/vi/ZmUitnuWX8g/hqdefault.jpg)](https://www.youtube.com/watch?v=ZmUitnuWX8g)

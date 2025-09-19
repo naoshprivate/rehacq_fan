@@ -3,4 +3,4 @@
 -   視聴数: 690,759
 -   **いいね数: 6,393**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
-    - [![](https://img.youtube.com/vi/ONfq9M6aRG0/hqdefault.jpg)](https://www.youtube.com/watch?v=ONfq9M6aRG0)
+- [![](https://img.youtube.com/vi/ONfq9M6aRG0/hqdefault.jpg)](https://www.youtube.com/watch?v=ONfq9M6aRG0)

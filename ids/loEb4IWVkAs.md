@@ -3,4 +3,4 @@
 -   視聴数: 971,303
 -   **いいね数: 19,882**
 -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/loEb4IWVkAs/hqdefault.jpg)](https://www.youtube.com/watch?v=loEb4IWVkAs)
+- [![](https://img.youtube.com/vi/loEb4IWVkAs/hqdefault.jpg)](https://www.youtube.com/watch?v=loEb4IWVkAs)

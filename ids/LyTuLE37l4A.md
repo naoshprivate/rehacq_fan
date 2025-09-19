@@ -3,4 +3,4 @@
 -   視聴数: 771,572
 -   **いいね数: 28,070**
 -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/LyTuLE37l4A/hqdefault.jpg)](https://www.youtube.com/watch?v=LyTuLE37l4A)
+- [![](https://img.youtube.com/vi/LyTuLE37l4A/hqdefault.jpg)](https://www.youtube.com/watch?v=LyTuLE37l4A)

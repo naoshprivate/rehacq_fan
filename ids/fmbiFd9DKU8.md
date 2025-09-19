@@ -3,4 +3,4 @@
 -   視聴数: 372,103
 -   **いいね数: 3,270**
 -   出演者: [末廣徹](/rehacq_fan/people/末廣徹 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/fmbiFd9DKU8/hqdefault.jpg)](https://www.youtube.com/watch?v=fmbiFd9DKU8)
+- [![](https://img.youtube.com/vi/fmbiFd9DKU8/hqdefault.jpg)](https://www.youtube.com/watch?v=fmbiFd9DKU8)

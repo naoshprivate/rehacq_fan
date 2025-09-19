@@ -3,4 +3,4 @@
 -   視聴数: 324,019
 -   **いいね数: 5,102**
 -   出演者: にいみ彰平, 大空こうき, [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), 森ようすけ, 水沼ひでゆき
-    - [![](https://img.youtube.com/vi/uWcy3kCV-3E/hqdefault.jpg)](https://www.youtube.com/watch?v=uWcy3kCV-3E)
+- [![](https://img.youtube.com/vi/uWcy3kCV-3E/hqdefault.jpg)](https://www.youtube.com/watch?v=uWcy3kCV-3E)

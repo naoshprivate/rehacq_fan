@@ -3,4 +3,4 @@
 -   視聴数: 1,122,292
 -   **いいね数: 16,562**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元引きこもりがVTuber, [大井基行](/rehacq_fan/people/大井基行 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/vJ2MS0ZjLdA/hqdefault.jpg)](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
+- [![](https://img.youtube.com/vi/vJ2MS0ZjLdA/hqdefault.jpg)](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)

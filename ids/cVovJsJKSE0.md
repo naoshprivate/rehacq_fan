@@ -3,4 +3,4 @@
 -   視聴数: 28,845
 -   **いいね数: 333**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 平岡晃
-    - [![](https://img.youtube.com/vi/cVovJsJKSE0/hqdefault.jpg)](https://www.youtube.com/watch?v=cVovJsJKSE0)
+- [![](https://img.youtube.com/vi/cVovJsJKSE0/hqdefault.jpg)](https://www.youtube.com/watch?v=cVovJsJKSE0)

@@ -3,4 +3,4 @@
 -   視聴数: 92,975
 -   **いいね数: 1,357**
 -   出演者: 生井秀一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/CKorEyzN4dY/hqdefault.jpg)](https://www.youtube.com/watch?v=CKorEyzN4dY)
+- [![](https://img.youtube.com/vi/CKorEyzN4dY/hqdefault.jpg)](https://www.youtube.com/watch?v=CKorEyzN4dY)

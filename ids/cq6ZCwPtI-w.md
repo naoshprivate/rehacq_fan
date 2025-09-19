@@ -3,4 +3,4 @@
 -   視聴数: 58,393
 -   **いいね数: 853**
 -   出演者: 田中章雄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/cq6ZCwPtI-w/hqdefault.jpg)](https://www.youtube.com/watch?v=cq6ZCwPtI-w)
+- [![](https://img.youtube.com/vi/cq6ZCwPtI-w/hqdefault.jpg)](https://www.youtube.com/watch?v=cq6ZCwPtI-w)

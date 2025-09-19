@@ -3,4 +3,4 @@
 -   視聴数: 396,139
 -   **いいね数: 6,037**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
-    - [![](https://img.youtube.com/vi/GsqiHF6qiT4/hqdefault.jpg)](https://www.youtube.com/watch?v=GsqiHF6qiT4)
+- [![](https://img.youtube.com/vi/GsqiHF6qiT4/hqdefault.jpg)](https://www.youtube.com/watch?v=GsqiHF6qiT4)

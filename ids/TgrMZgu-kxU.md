@@ -3,4 +3,4 @@
 -   視聴数: 66,850
 -   **いいね数: 759**
 -   出演者: 渡辺ゆたか, 銭谷翔
-    - [![](https://img.youtube.com/vi/TgrMZgu-kxU/hqdefault.jpg)](https://www.youtube.com/watch?v=TgrMZgu-kxU)
+- [![](https://img.youtube.com/vi/TgrMZgu-kxU/hqdefault.jpg)](https://www.youtube.com/watch?v=TgrMZgu-kxU)

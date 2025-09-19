@@ -3,4 +3,4 @@
 -   視聴数: 100,167
 -   **いいね数: 1,358**
 -   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/m7KwPX9J0l4/hqdefault.jpg)](https://www.youtube.com/watch?v=m7KwPX9J0l4)
+- [![](https://img.youtube.com/vi/m7KwPX9J0l4/hqdefault.jpg)](https://www.youtube.com/watch?v=m7KwPX9J0l4)

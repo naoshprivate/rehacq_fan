@@ -3,4 +3,4 @@
 -   視聴数: 168,362
 -   **いいね数: 2,648**
 -   出演者: 河野玄斗
-    - [![](https://img.youtube.com/vi/XY7gWqzenxk/hqdefault.jpg)](https://www.youtube.com/watch?v=XY7gWqzenxk)
+- [![](https://img.youtube.com/vi/XY7gWqzenxk/hqdefault.jpg)](https://www.youtube.com/watch?v=XY7gWqzenxk)

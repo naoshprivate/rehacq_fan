@@ -3,4 +3,4 @@
 -   視聴数: 127,693
 -   **いいね数: 2,059**
 -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink")
-    - [![](https://img.youtube.com/vi/ztUX1yYMMA8/hqdefault.jpg)](https://www.youtube.com/watch?v=ztUX1yYMMA8)
+- [![](https://img.youtube.com/vi/ztUX1yYMMA8/hqdefault.jpg)](https://www.youtube.com/watch?v=ztUX1yYMMA8)

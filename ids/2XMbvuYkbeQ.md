@@ -3,4 +3,4 @@
 -   視聴数: 1,100,628
 -   **いいね数: 20,785**
 -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/2XMbvuYkbeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=2XMbvuYkbeQ)
+- [![](https://img.youtube.com/vi/2XMbvuYkbeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=2XMbvuYkbeQ)

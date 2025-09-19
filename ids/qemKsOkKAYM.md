@@ -3,4 +3,4 @@
 -   視聴数: 2,474,420
 -   **いいね数: 27,138**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
-    - [![](https://img.youtube.com/vi/qemKsOkKAYM/hqdefault.jpg)](https://www.youtube.com/watch?v=qemKsOkKAYM)
+- [![](https://img.youtube.com/vi/qemKsOkKAYM/hqdefault.jpg)](https://www.youtube.com/watch?v=qemKsOkKAYM)

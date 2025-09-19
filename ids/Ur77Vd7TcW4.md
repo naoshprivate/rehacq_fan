@@ -3,4 +3,4 @@
 -   視聴数: 71,791
 -   **いいね数: 1,781**
 -   出演者: 石田多朗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Ur77Vd7TcW4/hqdefault.jpg)](https://www.youtube.com/watch?v=Ur77Vd7TcW4)
+- [![](https://img.youtube.com/vi/Ur77Vd7TcW4/hqdefault.jpg)](https://www.youtube.com/watch?v=Ur77Vd7TcW4)

@@ -3,4 +3,4 @@
 -   視聴数: 167,689
 -   **いいね数: 2,246**
 -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/EnKWdlsCKB0/hqdefault.jpg)](https://www.youtube.com/watch?v=EnKWdlsCKB0)
+- [![](https://img.youtube.com/vi/EnKWdlsCKB0/hqdefault.jpg)](https://www.youtube.com/watch?v=EnKWdlsCKB0)

@@ -3,4 +3,4 @@
 -   視聴数: 49,198
 -   **いいね数: 631**
 -   出演者: 和里田聰, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/wb_wSMAhsf8/hqdefault.jpg)](https://www.youtube.com/watch?v=wb_wSMAhsf8)
+- [![](https://img.youtube.com/vi/wb_wSMAhsf8/hqdefault.jpg)](https://www.youtube.com/watch?v=wb_wSMAhsf8)

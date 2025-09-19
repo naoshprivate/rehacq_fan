@@ -3,4 +3,4 @@
 -   視聴数: 28,963
 -   **いいね数: 256**
 -   出演者: セカニチ, [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
-    - [![](https://img.youtube.com/vi/SkpOBjRe6jc/hqdefault.jpg)](https://www.youtube.com/watch?v=SkpOBjRe6jc)
+- [![](https://img.youtube.com/vi/SkpOBjRe6jc/hqdefault.jpg)](https://www.youtube.com/watch?v=SkpOBjRe6jc)

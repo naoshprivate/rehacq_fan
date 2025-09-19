@@ -3,4 +3,4 @@
 -   視聴数: 63,286
 -   **いいね数: 760**
 -   出演者: [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink")
-    - [![](https://img.youtube.com/vi/AiDP1HilWGA/hqdefault.jpg)](https://www.youtube.com/watch?v=AiDP1HilWGA)
+- [![](https://img.youtube.com/vi/AiDP1HilWGA/hqdefault.jpg)](https://www.youtube.com/watch?v=AiDP1HilWGA)

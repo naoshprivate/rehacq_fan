@@ -3,4 +3,4 @@
 -   視聴数: 62,595
 -   **いいね数: 1,535**
 -   出演者: 川口典孝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/nzybgmwUxeU/hqdefault.jpg)](https://www.youtube.com/watch?v=nzybgmwUxeU)
+- [![](https://img.youtube.com/vi/nzybgmwUxeU/hqdefault.jpg)](https://www.youtube.com/watch?v=nzybgmwUxeU)

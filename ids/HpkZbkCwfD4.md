@@ -3,4 +3,4 @@
 -   視聴数: 167,891
 -   **いいね数: 2,503**
 -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/HpkZbkCwfD4/hqdefault.jpg)](https://www.youtube.com/watch?v=HpkZbkCwfD4)
+- [![](https://img.youtube.com/vi/HpkZbkCwfD4/hqdefault.jpg)](https://www.youtube.com/watch?v=HpkZbkCwfD4)

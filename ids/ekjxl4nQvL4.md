@@ -3,4 +3,4 @@
 -   視聴数: 572,228
 -   **いいね数: 7,341**
 -   出演者: 佐藤沙織里, 新藤伸夫, 浜森香織, 黒川敦彦
-    - [![](https://img.youtube.com/vi/ekjxl4nQvL4/hqdefault.jpg)](https://www.youtube.com/watch?v=ekjxl4nQvL4)
+- [![](https://img.youtube.com/vi/ekjxl4nQvL4/hqdefault.jpg)](https://www.youtube.com/watch?v=ekjxl4nQvL4)

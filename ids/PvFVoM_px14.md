@@ -3,4 +3,4 @@
 -   視聴数: 83,424
 -   **いいね数: 927**
 -   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/PvFVoM_px14/hqdefault.jpg)](https://www.youtube.com/watch?v=PvFVoM_px14)
+- [![](https://img.youtube.com/vi/PvFVoM_px14/hqdefault.jpg)](https://www.youtube.com/watch?v=PvFVoM_px14)

@@ -3,4 +3,4 @@
 -   視聴数: 45,217
 -   **いいね数: 645**
 -   出演者: 長尾一洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/BAE7mqXcRNI/hqdefault.jpg)](https://www.youtube.com/watch?v=BAE7mqXcRNI)
+- [![](https://img.youtube.com/vi/BAE7mqXcRNI/hqdefault.jpg)](https://www.youtube.com/watch?v=BAE7mqXcRNI)

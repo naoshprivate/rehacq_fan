@@ -3,4 +3,4 @@
 -   視聴数: 109,965
 -   **いいね数: 1,894**
 -   出演者: 筒井清輝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/yP2uTk3kdec/hqdefault.jpg)](https://www.youtube.com/watch?v=yP2uTk3kdec)
+- [![](https://img.youtube.com/vi/yP2uTk3kdec/hqdefault.jpg)](https://www.youtube.com/watch?v=yP2uTk3kdec)

@@ -3,4 +3,4 @@
 -   視聴数: 827,785
 -   **いいね数: 13,177**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/mAj8Oc-Mj_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=mAj8Oc-Mj_Y)
+- [![](https://img.youtube.com/vi/mAj8Oc-Mj_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=mAj8Oc-Mj_Y)

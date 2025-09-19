@@ -3,4 +3,4 @@
 -   視聴数: 374,729
 -   **いいね数: 3,557**
 -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/IN66uVdNe8Q/hqdefault.jpg)](https://www.youtube.com/watch?v=IN66uVdNe8Q)
+- [![](https://img.youtube.com/vi/IN66uVdNe8Q/hqdefault.jpg)](https://www.youtube.com/watch?v=IN66uVdNe8Q)

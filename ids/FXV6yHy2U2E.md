@@ -3,4 +3,4 @@
 -   視聴数: 70,332
 -   **いいね数: 904**
 -   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 藤田孝典, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/FXV6yHy2U2E/hqdefault.jpg)](https://www.youtube.com/watch?v=FXV6yHy2U2E)
+- [![](https://img.youtube.com/vi/FXV6yHy2U2E/hqdefault.jpg)](https://www.youtube.com/watch?v=FXV6yHy2U2E)

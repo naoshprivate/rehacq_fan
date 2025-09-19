@@ -3,4 +3,4 @@
 -   視聴数: 51,138
 -   **いいね数: 1,210**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 永井陽, 永井陽右
-    - [![](https://img.youtube.com/vi/IiBf9CdIuzY/hqdefault.jpg)](https://www.youtube.com/watch?v=IiBf9CdIuzY)
+- [![](https://img.youtube.com/vi/IiBf9CdIuzY/hqdefault.jpg)](https://www.youtube.com/watch?v=IiBf9CdIuzY)

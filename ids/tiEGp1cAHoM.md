@@ -3,4 +3,4 @@
 -   視聴数: 220,631
 -   **いいね数: 3,630**
 -   出演者: 長谷川眞理子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/tiEGp1cAHoM/hqdefault.jpg)](https://www.youtube.com/watch?v=tiEGp1cAHoM)
+- [![](https://img.youtube.com/vi/tiEGp1cAHoM/hqdefault.jpg)](https://www.youtube.com/watch?v=tiEGp1cAHoM)

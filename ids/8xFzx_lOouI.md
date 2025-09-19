@@ -3,4 +3,4 @@
 -   視聴数: 868,315
 -   **いいね数: 18,533**
 -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/8xFzx_lOouI/hqdefault.jpg)](https://www.youtube.com/watch?v=8xFzx_lOouI)
+- [![](https://img.youtube.com/vi/8xFzx_lOouI/hqdefault.jpg)](https://www.youtube.com/watch?v=8xFzx_lOouI)

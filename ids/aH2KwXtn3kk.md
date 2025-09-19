@@ -3,4 +3,4 @@
 -   視聴数: 405,988
 -   **いいね数: 3,280**
 -   出演者: [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
-    - [![](https://img.youtube.com/vi/aH2KwXtn3kk/hqdefault.jpg)](https://www.youtube.com/watch?v=aH2KwXtn3kk)
+- [![](https://img.youtube.com/vi/aH2KwXtn3kk/hqdefault.jpg)](https://www.youtube.com/watch?v=aH2KwXtn3kk)

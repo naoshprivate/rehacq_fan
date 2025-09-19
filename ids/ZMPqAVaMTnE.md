@@ -3,4 +3,4 @@
 -   視聴数: 29,085
 -   **いいね数: 649**
 -   出演者: 庭田杏珠
-    - [![](https://img.youtube.com/vi/ZMPqAVaMTnE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZMPqAVaMTnE)
+- [![](https://img.youtube.com/vi/ZMPqAVaMTnE/hqdefault.jpg)](https://www.youtube.com/watch?v=ZMPqAVaMTnE)

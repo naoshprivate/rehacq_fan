@@ -3,4 +3,4 @@
 -   視聴数: 71,386
 -   **いいね数: 1,513**
 -   出演者: 茅野しのぶ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/xCWiaPpaq9c/hqdefault.jpg)](https://www.youtube.com/watch?v=xCWiaPpaq9c)
+- [![](https://img.youtube.com/vi/xCWiaPpaq9c/hqdefault.jpg)](https://www.youtube.com/watch?v=xCWiaPpaq9c)

@@ -3,4 +3,4 @@
 -   視聴数: 71,612
 -   **いいね数: 1,294**
 -   出演者: アミール・オハナ, 大治朋子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/sfANUB9tMXo/hqdefault.jpg)](https://www.youtube.com/watch?v=sfANUB9tMXo)
+- [![](https://img.youtube.com/vi/sfANUB9tMXo/hqdefault.jpg)](https://www.youtube.com/watch?v=sfANUB9tMXo)

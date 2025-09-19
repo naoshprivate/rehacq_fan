@@ -3,4 +3,4 @@
 -   視聴数: 67,986
 -   **いいね数: 1,942**
 -   出演者: [オガトレ](/rehacq_fan/people/オガトレ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XlzY4Sm9kQc/hqdefault.jpg)](https://www.youtube.com/watch?v=XlzY4Sm9kQc)
+- [![](https://img.youtube.com/vi/XlzY4Sm9kQc/hqdefault.jpg)](https://www.youtube.com/watch?v=XlzY4Sm9kQc)

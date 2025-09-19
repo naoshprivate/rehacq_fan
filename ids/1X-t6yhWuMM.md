@@ -3,4 +3,4 @@
 -   視聴数: 55,678
 -   **いいね数: 722**
 -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/1X-t6yhWuMM/hqdefault.jpg)](https://www.youtube.com/watch?v=1X-t6yhWuMM)
+- [![](https://img.youtube.com/vi/1X-t6yhWuMM/hqdefault.jpg)](https://www.youtube.com/watch?v=1X-t6yhWuMM)

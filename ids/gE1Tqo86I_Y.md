@@ -3,4 +3,4 @@
 -   視聴数: 810,118
 -   **いいね数: 8,467**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
-    - [![](https://img.youtube.com/vi/gE1Tqo86I_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=gE1Tqo86I_Y)
+- [![](https://img.youtube.com/vi/gE1Tqo86I_Y/hqdefault.jpg)](https://www.youtube.com/watch?v=gE1Tqo86I_Y)

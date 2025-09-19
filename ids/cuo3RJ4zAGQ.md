@@ -3,4 +3,4 @@
 -   視聴数: 648,531
 -   **いいね数: 10,120**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 田中洋
-    - [![](https://img.youtube.com/vi/cuo3RJ4zAGQ/hqdefault.jpg)](https://www.youtube.com/watch?v=cuo3RJ4zAGQ)
+- [![](https://img.youtube.com/vi/cuo3RJ4zAGQ/hqdefault.jpg)](https://www.youtube.com/watch?v=cuo3RJ4zAGQ)

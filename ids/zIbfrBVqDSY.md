@@ -3,4 +3,4 @@
 -   視聴数: 295,854
 -   **いいね数: 6,552**
 -   出演者: [久保駿貴](/rehacq_fan/people/久保駿貴 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/zIbfrBVqDSY/hqdefault.jpg)](https://www.youtube.com/watch?v=zIbfrBVqDSY)
+- [![](https://img.youtube.com/vi/zIbfrBVqDSY/hqdefault.jpg)](https://www.youtube.com/watch?v=zIbfrBVqDSY)

@@ -3,4 +3,4 @@
 -   視聴数: 64,652
 -   **いいね数: 823**
 -   出演者: 嶋田俊平, 木下斉, [森本智子](/rehacq_fan/people/森本智子 "wikilink")
-    - [![](https://img.youtube.com/vi/aDEt2s874eA/hqdefault.jpg)](https://www.youtube.com/watch?v=aDEt2s874eA)
+- [![](https://img.youtube.com/vi/aDEt2s874eA/hqdefault.jpg)](https://www.youtube.com/watch?v=aDEt2s874eA)

@@ -3,4 +3,4 @@
 -   視聴数: 13,353
 -   **いいね数: 84**
 -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
-    - [![](https://img.youtube.com/vi/DhGkYJP_UIM/hqdefault.jpg)](https://www.youtube.com/watch?v=DhGkYJP_UIM)
+- [![](https://img.youtube.com/vi/DhGkYJP_UIM/hqdefault.jpg)](https://www.youtube.com/watch?v=DhGkYJP_UIM)

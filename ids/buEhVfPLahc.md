@@ -3,4 +3,4 @@
 -   視聴数: 45,694
 -   **いいね数: 347**
 -   出演者: 塩澤崇, 江口亮介
-    - [![](https://img.youtube.com/vi/buEhVfPLahc/hqdefault.jpg)](https://www.youtube.com/watch?v=buEhVfPLahc)
+- [![](https://img.youtube.com/vi/buEhVfPLahc/hqdefault.jpg)](https://www.youtube.com/watch?v=buEhVfPLahc)

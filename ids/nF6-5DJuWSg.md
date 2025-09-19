@@ -3,4 +3,4 @@
 -   視聴数: 95,526
 -   **いいね数: 1,114**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学
-    - [![](https://img.youtube.com/vi/nF6-5DJuWSg/hqdefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)
+- [![](https://img.youtube.com/vi/nF6-5DJuWSg/hqdefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)

@@ -3,4 +3,4 @@
 -   視聴数: 463,097
 -   **いいね数: 7,229**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 滝島一統, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/HdZfc0_wWwk/hqdefault.jpg)](https://www.youtube.com/watch?v=HdZfc0_wWwk)
+- [![](https://img.youtube.com/vi/HdZfc0_wWwk/hqdefault.jpg)](https://www.youtube.com/watch?v=HdZfc0_wWwk)

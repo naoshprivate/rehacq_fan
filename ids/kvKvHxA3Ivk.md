@@ -3,4 +3,4 @@
 -   視聴数: 153,347
 -   **いいね数: 1,506**
 -   出演者: 前田耕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/kvKvHxA3Ivk/hqdefault.jpg)](https://www.youtube.com/watch?v=kvKvHxA3Ivk)
+- [![](https://img.youtube.com/vi/kvKvHxA3Ivk/hqdefault.jpg)](https://www.youtube.com/watch?v=kvKvHxA3Ivk)

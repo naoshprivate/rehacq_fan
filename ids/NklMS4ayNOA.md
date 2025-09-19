@@ -3,4 +3,4 @@
 -   視聴数: 98,816
 -   **いいね数: 1,577**
 -   出演者: 吉田はるみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/NklMS4ayNOA/hqdefault.jpg)](https://www.youtube.com/watch?v=NklMS4ayNOA)
+- [![](https://img.youtube.com/vi/NklMS4ayNOA/hqdefault.jpg)](https://www.youtube.com/watch?v=NklMS4ayNOA)

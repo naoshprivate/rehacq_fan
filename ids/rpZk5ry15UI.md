@@ -3,4 +3,4 @@
 -   視聴数: 144,846
 -   **いいね数: 2,725**
 -   出演者: 井上大輔, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/rpZk5ry15UI/hqdefault.jpg)](https://www.youtube.com/watch?v=rpZk5ry15UI)
+- [![](https://img.youtube.com/vi/rpZk5ry15UI/hqdefault.jpg)](https://www.youtube.com/watch?v=rpZk5ry15UI)

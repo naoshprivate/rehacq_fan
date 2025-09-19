@@ -3,4 +3,4 @@
 -   視聴数: 550,751
 -   **いいね数: 11,359**
 -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
-    - [![](https://img.youtube.com/vi/ZLQ7blf0D0Q/hqdefault.jpg)](https://www.youtube.com/watch?v=ZLQ7blf0D0Q)
+- [![](https://img.youtube.com/vi/ZLQ7blf0D0Q/hqdefault.jpg)](https://www.youtube.com/watch?v=ZLQ7blf0D0Q)

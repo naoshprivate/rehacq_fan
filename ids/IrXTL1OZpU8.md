@@ -3,4 +3,4 @@
 -   視聴数: 76,114
 -   **いいね数: 988**
 -   出演者: 中村仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/IrXTL1OZpU8/hqdefault.jpg)](https://www.youtube.com/watch?v=IrXTL1OZpU8)
+- [![](https://img.youtube.com/vi/IrXTL1OZpU8/hqdefault.jpg)](https://www.youtube.com/watch?v=IrXTL1OZpU8)

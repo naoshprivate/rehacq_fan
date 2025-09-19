@@ -3,4 +3,4 @@
 -   視聴数: 67,881
 -   **いいね数: 1,074**
 -   出演者: 竹内倫徳, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/GX_6NHvFQAE/hqdefault.jpg)](https://www.youtube.com/watch?v=GX_6NHvFQAE)
+- [![](https://img.youtube.com/vi/GX_6NHvFQAE/hqdefault.jpg)](https://www.youtube.com/watch?v=GX_6NHvFQAE)

@@ -3,4 +3,4 @@
 -   視聴数: 632,429
 -   **いいね数: 6,249**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/9fb7xGatFGA/hqdefault.jpg)](https://www.youtube.com/watch?v=9fb7xGatFGA)
+- [![](https://img.youtube.com/vi/9fb7xGatFGA/hqdefault.jpg)](https://www.youtube.com/watch?v=9fb7xGatFGA)

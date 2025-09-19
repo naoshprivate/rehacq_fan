@@ -3,4 +3,4 @@
 -   視聴数: 383,898
 -   **いいね数: 8,481**
 -   出演者: 鈴木圭, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/uA83EVjn8HE/hqdefault.jpg)](https://www.youtube.com/watch?v=uA83EVjn8HE)
+- [![](https://img.youtube.com/vi/uA83EVjn8HE/hqdefault.jpg)](https://www.youtube.com/watch?v=uA83EVjn8HE)

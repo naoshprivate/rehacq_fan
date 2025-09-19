@@ -3,4 +3,4 @@
 -   視聴数: 100,389
 -   **いいね数: 1,378**
 -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 浜村弘一
-    - [![](https://img.youtube.com/vi/iRIeWYQyeOo/hqdefault.jpg)](https://www.youtube.com/watch?v=iRIeWYQyeOo)
+- [![](https://img.youtube.com/vi/iRIeWYQyeOo/hqdefault.jpg)](https://www.youtube.com/watch?v=iRIeWYQyeOo)

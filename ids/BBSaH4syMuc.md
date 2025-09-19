@@ -3,4 +3,4 @@
 -   視聴数: 133,248
 -   **いいね数: 1,795**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [末廣徹](/rehacq_fan/people/末廣徹 "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
-    - [![](https://img.youtube.com/vi/BBSaH4syMuc/hqdefault.jpg)](https://www.youtube.com/watch?v=BBSaH4syMuc)
+- [![](https://img.youtube.com/vi/BBSaH4syMuc/hqdefault.jpg)](https://www.youtube.com/watch?v=BBSaH4syMuc)

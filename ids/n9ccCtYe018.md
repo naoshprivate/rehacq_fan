@@ -3,4 +3,4 @@
 -   視聴数: 112,319
 -   **いいね数: 1,320**
 -   出演者: 西田真澄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/n9ccCtYe018/hqdefault.jpg)](https://www.youtube.com/watch?v=n9ccCtYe018)
+- [![](https://img.youtube.com/vi/n9ccCtYe018/hqdefault.jpg)](https://www.youtube.com/watch?v=n9ccCtYe018)

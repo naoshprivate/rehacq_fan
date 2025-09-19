@@ -3,4 +3,4 @@
 -   視聴数: 39,771
 -   **いいね数: 1,175**
 -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/wappac7MfkQ/hqdefault.jpg)](https://www.youtube.com/watch?v=wappac7MfkQ)
+- [![](https://img.youtube.com/vi/wappac7MfkQ/hqdefault.jpg)](https://www.youtube.com/watch?v=wappac7MfkQ)

@@ -3,4 +3,4 @@
 -   視聴数: 181,965
 -   **いいね数: 2,032**
 -   出演者: 前嶋和弘, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/pmCjJ3nJcKk/hqdefault.jpg)](https://www.youtube.com/watch?v=pmCjJ3nJcKk)
+- [![](https://img.youtube.com/vi/pmCjJ3nJcKk/hqdefault.jpg)](https://www.youtube.com/watch?v=pmCjJ3nJcKk)

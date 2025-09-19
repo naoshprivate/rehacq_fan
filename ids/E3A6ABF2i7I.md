@@ -3,4 +3,4 @@
 -   視聴数: 51,812
 -   **いいね数: 603**
 -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), 永石和恵, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/E3A6ABF2i7I/hqdefault.jpg)](https://www.youtube.com/watch?v=E3A6ABF2i7I)
+- [![](https://img.youtube.com/vi/E3A6ABF2i7I/hqdefault.jpg)](https://www.youtube.com/watch?v=E3A6ABF2i7I)

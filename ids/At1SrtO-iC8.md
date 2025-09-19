@@ -3,4 +3,4 @@
 -   視聴数: 42,765
 -   **いいね数: 966**
 -   出演者: くつざわ亮治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/At1SrtO-iC8/hqdefault.jpg)](https://www.youtube.com/watch?v=At1SrtO-iC8)
+- [![](https://img.youtube.com/vi/At1SrtO-iC8/hqdefault.jpg)](https://www.youtube.com/watch?v=At1SrtO-iC8)

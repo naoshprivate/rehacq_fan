@@ -3,4 +3,4 @@
 -   視聴数: 77,541
 -   **いいね数: 1,184**
 -   出演者: [林芳正](/rehacq_fan/people/林芳正 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/p5adHhslV98/hqdefault.jpg)](https://www.youtube.com/watch?v=p5adHhslV98)
+- [![](https://img.youtube.com/vi/p5adHhslV98/hqdefault.jpg)](https://www.youtube.com/watch?v=p5adHhslV98)

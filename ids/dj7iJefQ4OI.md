@@ -3,4 +3,4 @@
 -   視聴数: 50,146
 -   **いいね数: 988**
 -   出演者: 神谷俊一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/dj7iJefQ4OI/hqdefault.jpg)](https://www.youtube.com/watch?v=dj7iJefQ4OI)
+- [![](https://img.youtube.com/vi/dj7iJefQ4OI/hqdefault.jpg)](https://www.youtube.com/watch?v=dj7iJefQ4OI)

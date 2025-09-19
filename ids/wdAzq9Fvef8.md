@@ -3,4 +3,4 @@
 -   視聴数: 251,795
 -   **いいね数: 3,029**
 -   出演者: 小泉秀人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/wdAzq9Fvef8/hqdefault.jpg)](https://www.youtube.com/watch?v=wdAzq9Fvef8)
+- [![](https://img.youtube.com/vi/wdAzq9Fvef8/hqdefault.jpg)](https://www.youtube.com/watch?v=wdAzq9Fvef8)

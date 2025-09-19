@@ -3,4 +3,4 @@
 -   視聴数: 194,102
 -   **いいね数: 4,368**
 -   出演者: 藤井隆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jSDZp7qoW0Q/hqdefault.jpg)](https://www.youtube.com/watch?v=jSDZp7qoW0Q)
+- [![](https://img.youtube.com/vi/jSDZp7qoW0Q/hqdefault.jpg)](https://www.youtube.com/watch?v=jSDZp7qoW0Q)

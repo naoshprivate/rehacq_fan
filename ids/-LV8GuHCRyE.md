@@ -3,4 +3,4 @@
 -   視聴数: 124,748
 -   **いいね数: 1,462**
 -   出演者: 山田けんた, 藤田あきら, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/-LV8GuHCRyE/hqdefault.jpg)](https://www.youtube.com/watch?v=-LV8GuHCRyE)
+- [![](https://img.youtube.com/vi/-LV8GuHCRyE/hqdefault.jpg)](https://www.youtube.com/watch?v=-LV8GuHCRyE)

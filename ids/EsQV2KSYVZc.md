@@ -3,4 +3,4 @@
 -   視聴数: 222,164
 -   **いいね数: 6,529**
 -   出演者: 吉野敏明, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/EsQV2KSYVZc/hqdefault.jpg)](https://www.youtube.com/watch?v=EsQV2KSYVZc)
+- [![](https://img.youtube.com/vi/EsQV2KSYVZc/hqdefault.jpg)](https://www.youtube.com/watch?v=EsQV2KSYVZc)

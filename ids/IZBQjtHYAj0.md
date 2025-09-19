@@ -3,4 +3,4 @@
 -   視聴数: 18,904
 -   **いいね数: 254**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 髙橋優貴
-    - [![](https://img.youtube.com/vi/IZBQjtHYAj0/hqdefault.jpg)](https://www.youtube.com/watch?v=IZBQjtHYAj0)
+- [![](https://img.youtube.com/vi/IZBQjtHYAj0/hqdefault.jpg)](https://www.youtube.com/watch?v=IZBQjtHYAj0)

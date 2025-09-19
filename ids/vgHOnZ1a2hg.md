@@ -3,4 +3,4 @@
 -   視聴数: 93,487
 -   **いいね数: 947**
 -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 菱田雅生
-    - [![](https://img.youtube.com/vi/vgHOnZ1a2hg/hqdefault.jpg)](https://www.youtube.com/watch?v=vgHOnZ1a2hg)
+- [![](https://img.youtube.com/vi/vgHOnZ1a2hg/hqdefault.jpg)](https://www.youtube.com/watch?v=vgHOnZ1a2hg)

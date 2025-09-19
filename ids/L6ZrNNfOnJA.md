@@ -3,4 +3,4 @@
 -   視聴数: 502,437
 -   **いいね数: 9,768**
 -   出演者: 田中慎弥, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/L6ZrNNfOnJA/hqdefault.jpg)](https://www.youtube.com/watch?v=L6ZrNNfOnJA)
+- [![](https://img.youtube.com/vi/L6ZrNNfOnJA/hqdefault.jpg)](https://www.youtube.com/watch?v=L6ZrNNfOnJA)

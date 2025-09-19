@@ -3,4 +3,4 @@
 -   視聴数: 834,855
 -   **いいね数: 9,235**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/zhduUUDxw4Q/hqdefault.jpg)](https://www.youtube.com/watch?v=zhduUUDxw4Q)
+- [![](https://img.youtube.com/vi/zhduUUDxw4Q/hqdefault.jpg)](https://www.youtube.com/watch?v=zhduUUDxw4Q)

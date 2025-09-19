@@ -3,4 +3,4 @@
 -   視聴数: 30,627
 -   **いいね数: 278**
 -   出演者: ゆうちゃみ, 世耕石弘, 米田恵樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/hwTQDuHBTt8/hqdefault.jpg)](https://www.youtube.com/watch?v=hwTQDuHBTt8)
+- [![](https://img.youtube.com/vi/hwTQDuHBTt8/hqdefault.jpg)](https://www.youtube.com/watch?v=hwTQDuHBTt8)

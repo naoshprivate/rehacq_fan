@@ -3,4 +3,4 @@
 -   視聴数: 130,986
 -   **いいね数: 2,828**
 -   出演者: 山田悠史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/jsMrjyR5js8/hqdefault.jpg)](https://www.youtube.com/watch?v=jsMrjyR5js8)
+- [![](https://img.youtube.com/vi/jsMrjyR5js8/hqdefault.jpg)](https://www.youtube.com/watch?v=jsMrjyR5js8)

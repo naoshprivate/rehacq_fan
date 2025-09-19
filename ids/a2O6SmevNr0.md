@@ -3,4 +3,4 @@
 -   視聴数: 69,803
 -   **いいね数: 567**
 -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
-    - [![](https://img.youtube.com/vi/a2O6SmevNr0/hqdefault.jpg)](https://www.youtube.com/watch?v=a2O6SmevNr0)
+- [![](https://img.youtube.com/vi/a2O6SmevNr0/hqdefault.jpg)](https://www.youtube.com/watch?v=a2O6SmevNr0)

@@ -3,4 +3,4 @@
 -   視聴数: 184,525
 -   **いいね数: 3,196**
 -   出演者: 廣田祥平, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/aZx0QDp7Y1Q/hqdefault.jpg)](https://www.youtube.com/watch?v=aZx0QDp7Y1Q)
+- [![](https://img.youtube.com/vi/aZx0QDp7Y1Q/hqdefault.jpg)](https://www.youtube.com/watch?v=aZx0QDp7Y1Q)

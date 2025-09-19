@@ -3,4 +3,4 @@
 -   視聴数: 243,135
 -   **いいね数: 3,847**
 -   出演者: 奥山陽子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/8vuAaVgEAGA/hqdefault.jpg)](https://www.youtube.com/watch?v=8vuAaVgEAGA)
+- [![](https://img.youtube.com/vi/8vuAaVgEAGA/hqdefault.jpg)](https://www.youtube.com/watch?v=8vuAaVgEAGA)

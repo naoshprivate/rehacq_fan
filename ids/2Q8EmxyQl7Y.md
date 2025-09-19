@@ -3,4 +3,4 @@
 -   視聴数: 31,246
 -   **いいね数: 326**
 -   出演者: 濱渦伸次, 青柳直樹
-    - [![](https://img.youtube.com/vi/2Q8EmxyQl7Y/hqdefault.jpg)](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)
+- [![](https://img.youtube.com/vi/2Q8EmxyQl7Y/hqdefault.jpg)](https://www.youtube.com/watch?v=2Q8EmxyQl7Y)

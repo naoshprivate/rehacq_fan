@@ -3,4 +3,4 @@
 -   視聴数: 90,624
 -   **いいね数: 1,665**
 -   出演者: 国光あやの, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/9GWqjmXHk8M/hqdefault.jpg)](https://www.youtube.com/watch?v=9GWqjmXHk8M)
+- [![](https://img.youtube.com/vi/9GWqjmXHk8M/hqdefault.jpg)](https://www.youtube.com/watch?v=9GWqjmXHk8M)

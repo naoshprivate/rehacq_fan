@@ -3,4 +3,4 @@
 -   視聴数: 161,896
 -   **いいね数: 1,907**
 -   出演者: 大﨑洋, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
-    - [![](https://img.youtube.com/vi/gzdcRCm7la4/hqdefault.jpg)](https://www.youtube.com/watch?v=gzdcRCm7la4)
+- [![](https://img.youtube.com/vi/gzdcRCm7la4/hqdefault.jpg)](https://www.youtube.com/watch?v=gzdcRCm7la4)

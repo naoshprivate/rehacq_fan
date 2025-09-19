@@ -3,4 +3,4 @@
 -   視聴数: 114,670
 -   **いいね数: 1,527**
 -   出演者: 田中浩一郎, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)
+- [![](https://img.youtube.com/vi/IE6TloRJdt8/hqdefault.jpg)](https://www.youtube.com/watch?v=IE6TloRJdt8)

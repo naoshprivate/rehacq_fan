@@ -3,4 +3,4 @@
 -   視聴数: 451,202
 -   **いいね数: 4,828**
 -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), [テスタ](/rehacq_fan/people/テスタ "wikilink")
-    - [![](https://img.youtube.com/vi/kTNPEvtN-rw/hqdefault.jpg)](https://www.youtube.com/watch?v=kTNPEvtN-rw)
+- [![](https://img.youtube.com/vi/kTNPEvtN-rw/hqdefault.jpg)](https://www.youtube.com/watch?v=kTNPEvtN-rw)

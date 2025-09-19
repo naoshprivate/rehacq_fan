@@ -3,4 +3,4 @@
 -   視聴数: 118,387
 -   **いいね数: 2,311**
 -   出演者: 佐々木れな, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ijzP9OrXlRU/hqdefault.jpg)](https://www.youtube.com/watch?v=ijzP9OrXlRU)
+- [![](https://img.youtube.com/vi/ijzP9OrXlRU/hqdefault.jpg)](https://www.youtube.com/watch?v=ijzP9OrXlRU)

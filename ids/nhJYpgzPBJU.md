@@ -3,4 +3,4 @@
 -   視聴数: 1,262,014
 -   **いいね数: 31,064**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-    - [![](https://img.youtube.com/vi/nhJYpgzPBJU/hqdefault.jpg)](https://www.youtube.com/watch?v=nhJYpgzPBJU)
+- [![](https://img.youtube.com/vi/nhJYpgzPBJU/hqdefault.jpg)](https://www.youtube.com/watch?v=nhJYpgzPBJU)

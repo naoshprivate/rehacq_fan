@@ -3,4 +3,4 @@
 -   視聴数: 471,428
 -   **いいね数: 5,419**
 -   出演者: 吉山孝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Kw-4qwgWtTA/hqdefault.jpg)](https://www.youtube.com/watch?v=Kw-4qwgWtTA)
+- [![](https://img.youtube.com/vi/Kw-4qwgWtTA/hqdefault.jpg)](https://www.youtube.com/watch?v=Kw-4qwgWtTA)

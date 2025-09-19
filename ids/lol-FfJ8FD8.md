@@ -3,4 +3,4 @@
 -   視聴数: 48,736
 -   **いいね数: 560**
 -   出演者: 山本将裕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/lol-FfJ8FD8/hqdefault.jpg)](https://www.youtube.com/watch?v=lol-FfJ8FD8)
+- [![](https://img.youtube.com/vi/lol-FfJ8FD8/hqdefault.jpg)](https://www.youtube.com/watch?v=lol-FfJ8FD8)

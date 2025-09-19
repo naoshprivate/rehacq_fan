@@ -3,4 +3,4 @@
 -   視聴数: 113,905
 -   **いいね数: 1,247**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 徳力基彦, [田端信太郎](/rehacq_fan/people/田端信太郎 "wikilink")
-    - [![](https://img.youtube.com/vi/TrtCC4QtIFI/hqdefault.jpg)](https://www.youtube.com/watch?v=TrtCC4QtIFI)
+- [![](https://img.youtube.com/vi/TrtCC4QtIFI/hqdefault.jpg)](https://www.youtube.com/watch?v=TrtCC4QtIFI)

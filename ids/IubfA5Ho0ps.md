@@ -3,4 +3,4 @@
 -   視聴数: 63,581
 -   **いいね数: 961**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 岡田祥吾
-    - [![](https://img.youtube.com/vi/IubfA5Ho0ps/hqdefault.jpg)](https://www.youtube.com/watch?v=IubfA5Ho0ps)
+- [![](https://img.youtube.com/vi/IubfA5Ho0ps/hqdefault.jpg)](https://www.youtube.com/watch?v=IubfA5Ho0ps)

@@ -3,4 +3,4 @@
 -   視聴数: 780,091
 -   **いいね数: 12,149**
 -   出演者: [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
-    - [![](https://img.youtube.com/vi/s-53l29FfAQ/hqdefault.jpg)](https://www.youtube.com/watch?v=s-53l29FfAQ)
+- [![](https://img.youtube.com/vi/s-53l29FfAQ/hqdefault.jpg)](https://www.youtube.com/watch?v=s-53l29FfAQ)

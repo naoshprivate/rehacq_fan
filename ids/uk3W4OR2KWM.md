@@ -3,4 +3,4 @@
 -   視聴数: 59,214
 -   **いいね数: 768**
 -   出演者: くらま, 河合雅司, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
-    - [![](https://img.youtube.com/vi/uk3W4OR2KWM/hqdefault.jpg)](https://www.youtube.com/watch?v=uk3W4OR2KWM)
+- [![](https://img.youtube.com/vi/uk3W4OR2KWM/hqdefault.jpg)](https://www.youtube.com/watch?v=uk3W4OR2KWM)

@@ -3,4 +3,4 @@
 -   視聴数: 213,861
 -   **いいね数: 2,209**
 -   出演者: 西川廣人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/sG4mJLLLeBE/hqdefault.jpg)](https://www.youtube.com/watch?v=sG4mJLLLeBE)
+- [![](https://img.youtube.com/vi/sG4mJLLLeBE/hqdefault.jpg)](https://www.youtube.com/watch?v=sG4mJLLLeBE)

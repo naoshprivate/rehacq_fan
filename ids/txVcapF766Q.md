@@ -3,4 +3,4 @@
 -   視聴数: 143,777
 -   **いいね数: 2,427**
 -   出演者: ドズル, [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
-    - [![](https://img.youtube.com/vi/txVcapF766Q/hqdefault.jpg)](https://www.youtube.com/watch?v=txVcapF766Q)
+- [![](https://img.youtube.com/vi/txVcapF766Q/hqdefault.jpg)](https://www.youtube.com/watch?v=txVcapF766Q)

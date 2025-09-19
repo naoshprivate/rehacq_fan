@@ -3,4 +3,4 @@
 -   視聴数: 139,789
 -   **いいね数: 3,023**
 -   出演者: [ギラッド・コーヘン](/rehacq_fan/people/ギラッド・コーヘン "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Mxn4sDfjlDQ/hqdefault.jpg)](https://www.youtube.com/watch?v=Mxn4sDfjlDQ)
+- [![](https://img.youtube.com/vi/Mxn4sDfjlDQ/hqdefault.jpg)](https://www.youtube.com/watch?v=Mxn4sDfjlDQ)

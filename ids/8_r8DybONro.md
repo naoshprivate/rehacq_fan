@@ -3,4 +3,4 @@
 -   視聴数: 24,823
 -   **いいね数: 308**
 -   出演者: 木原麗花, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/8_r8DybONro/hqdefault.jpg)](https://www.youtube.com/watch?v=8_r8DybONro)
+- [![](https://img.youtube.com/vi/8_r8DybONro/hqdefault.jpg)](https://www.youtube.com/watch?v=8_r8DybONro)

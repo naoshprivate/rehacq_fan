@@ -3,4 +3,4 @@
 -   視聴数: 498,951
 -   **いいね数: 4,696**
 -   出演者: [三浦瑠麗](/rehacq_fan/people/三浦瑠麗 "wikilink"), [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/hkLF-GCuq-E/hqdefault.jpg)](https://www.youtube.com/watch?v=hkLF-GCuq-E)
+- [![](https://img.youtube.com/vi/hkLF-GCuq-E/hqdefault.jpg)](https://www.youtube.com/watch?v=hkLF-GCuq-E)

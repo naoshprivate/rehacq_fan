@@ -3,4 +3,4 @@
 -   視聴数: 253,938
 -   **いいね数: 3,762**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 竹中平蔵
-    - [![](https://img.youtube.com/vi/k77Zcn19Mpk/hqdefault.jpg)](https://www.youtube.com/watch?v=k77Zcn19Mpk)
+- [![](https://img.youtube.com/vi/k77Zcn19Mpk/hqdefault.jpg)](https://www.youtube.com/watch?v=k77Zcn19Mpk)

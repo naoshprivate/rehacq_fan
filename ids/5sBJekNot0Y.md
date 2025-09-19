@@ -3,4 +3,4 @@
 -   視聴数: 172,126
 -   **いいね数: 2,920**
 -   出演者: 石井啓一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/5sBJekNot0Y/hqdefault.jpg)](https://www.youtube.com/watch?v=5sBJekNot0Y)
+- [![](https://img.youtube.com/vi/5sBJekNot0Y/hqdefault.jpg)](https://www.youtube.com/watch?v=5sBJekNot0Y)

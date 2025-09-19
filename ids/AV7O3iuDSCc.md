@@ -3,4 +3,4 @@
 -   視聴数: 216,312
 -   **いいね数: 3,613**
 -   出演者: 石井公成, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/AV7O3iuDSCc/hqdefault.jpg)](https://www.youtube.com/watch?v=AV7O3iuDSCc)
+- [![](https://img.youtube.com/vi/AV7O3iuDSCc/hqdefault.jpg)](https://www.youtube.com/watch?v=AV7O3iuDSCc)

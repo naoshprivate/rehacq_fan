@@ -3,4 +3,4 @@
 -   視聴数: 161,362
 -   **いいね数: 2,658**
 -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/VPwCxb1BmbA/hqdefault.jpg)](https://www.youtube.com/watch?v=VPwCxb1BmbA)
+- [![](https://img.youtube.com/vi/VPwCxb1BmbA/hqdefault.jpg)](https://www.youtube.com/watch?v=VPwCxb1BmbA)

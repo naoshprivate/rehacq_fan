@@ -3,4 +3,4 @@
 -   視聴数: 40,385
 -   **いいね数: 4,822**
 -   出演者: 越川慎司, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/XORxTQ_VyFI/hqdefault.jpg)](https://www.youtube.com/watch?v=XORxTQ_VyFI)
+- [![](https://img.youtube.com/vi/XORxTQ_VyFI/hqdefault.jpg)](https://www.youtube.com/watch?v=XORxTQ_VyFI)

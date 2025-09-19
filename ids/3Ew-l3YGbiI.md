@@ -3,4 +3,4 @@
 -   視聴数: 217,621
 -   **いいね数: 2,627**
 -   出演者: 石井玄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/3Ew-l3YGbiI/hqdefault.jpg)](https://www.youtube.com/watch?v=3Ew-l3YGbiI)
+- [![](https://img.youtube.com/vi/3Ew-l3YGbiI/hqdefault.jpg)](https://www.youtube.com/watch?v=3Ew-l3YGbiI)

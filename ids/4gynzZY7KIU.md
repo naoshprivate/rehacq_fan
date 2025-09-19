@@ -3,4 +3,4 @@
 -   視聴数: 109,061
 -   **いいね数: 685**
 -   出演者: 
-    - [![](https://img.youtube.com/vi/4gynzZY7KIU/hqdefault.jpg)](https://www.youtube.com/watch?v=4gynzZY7KIU)
+- [![](https://img.youtube.com/vi/4gynzZY7KIU/hqdefault.jpg)](https://www.youtube.com/watch?v=4gynzZY7KIU)

@@ -3,4 +3,4 @@
 -   視聴数: 80,751
 -   **いいね数: 1,472**
 -   出演者: 今村翔吾, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/PrWnfMPtpeY/hqdefault.jpg)](https://www.youtube.com/watch?v=PrWnfMPtpeY)
+- [![](https://img.youtube.com/vi/PrWnfMPtpeY/hqdefault.jpg)](https://www.youtube.com/watch?v=PrWnfMPtpeY)

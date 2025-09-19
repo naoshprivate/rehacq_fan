@@ -3,4 +3,4 @@
 -   視聴数: 83,876
 -   **いいね数: 1,373**
 -   出演者: 木原誠二, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XasgM4vhU9I/hqdefault.jpg)](https://www.youtube.com/watch?v=XasgM4vhU9I)
+- [![](https://img.youtube.com/vi/XasgM4vhU9I/hqdefault.jpg)](https://www.youtube.com/watch?v=XasgM4vhU9I)

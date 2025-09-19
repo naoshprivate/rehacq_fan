@@ -3,4 +3,4 @@
 -   視聴数: 32,092
 -   **いいね数: 218**
 -   出演者: 宮島勇也, 田中一弘, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/DlwV6wXkfcw/hqdefault.jpg)](https://www.youtube.com/watch?v=DlwV6wXkfcw)
+- [![](https://img.youtube.com/vi/DlwV6wXkfcw/hqdefault.jpg)](https://www.youtube.com/watch?v=DlwV6wXkfcw)

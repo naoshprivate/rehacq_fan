@@ -3,4 +3,4 @@
 -   視聴数: 103,945
 -   **いいね数: 1,641**
 -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
-    - [![](https://img.youtube.com/vi/Dfh9LTFtNRs/hqdefault.jpg)](https://www.youtube.com/watch?v=Dfh9LTFtNRs)
+- [![](https://img.youtube.com/vi/Dfh9LTFtNRs/hqdefault.jpg)](https://www.youtube.com/watch?v=Dfh9LTFtNRs)

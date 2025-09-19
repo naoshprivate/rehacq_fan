@@ -3,4 +3,4 @@
 -   視聴数: 104,032
 -   **いいね数: 1,716**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齋藤健
-    - [![](https://img.youtube.com/vi/0t5Zw3UY7pY/hqdefault.jpg)](https://www.youtube.com/watch?v=0t5Zw3UY7pY)
+- [![](https://img.youtube.com/vi/0t5Zw3UY7pY/hqdefault.jpg)](https://www.youtube.com/watch?v=0t5Zw3UY7pY)

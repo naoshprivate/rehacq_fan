@@ -3,4 +3,4 @@
 -   視聴数: 80,725
 -   **いいね数: 1,282**
 -   出演者: 山口周, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
-    - [![](https://img.youtube.com/vi/Azupf3rHQ-Y/hqdefault.jpg)](https://www.youtube.com/watch?v=Azupf3rHQ-Y)
+- [![](https://img.youtube.com/vi/Azupf3rHQ-Y/hqdefault.jpg)](https://www.youtube.com/watch?v=Azupf3rHQ-Y)

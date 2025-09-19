@@ -3,4 +3,4 @@
 -   視聴数: 48,204
 -   **いいね数: 507**
 -   出演者: 中山淳雄, 松原亮, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/NNCRl8gZJHY/hqdefault.jpg)](https://www.youtube.com/watch?v=NNCRl8gZJHY)
+- [![](https://img.youtube.com/vi/NNCRl8gZJHY/hqdefault.jpg)](https://www.youtube.com/watch?v=NNCRl8gZJHY)

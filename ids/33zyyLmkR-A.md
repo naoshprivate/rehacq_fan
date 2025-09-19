@@ -3,4 +3,4 @@
 -   視聴数: 186,633
 -   **いいね数: 2,830**
 -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink")
-    - [![](https://img.youtube.com/vi/33zyyLmkR-A/hqdefault.jpg)](https://www.youtube.com/watch?v=33zyyLmkR-A)
+- [![](https://img.youtube.com/vi/33zyyLmkR-A/hqdefault.jpg)](https://www.youtube.com/watch?v=33zyyLmkR-A)

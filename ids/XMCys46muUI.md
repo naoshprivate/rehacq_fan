@@ -3,4 +3,4 @@
 -   視聴数: 145,558
 -   **いいね数: 2,508**
 -   出演者: 三宅香帆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XMCys46muUI/hqdefault.jpg)](https://www.youtube.com/watch?v=XMCys46muUI)
+- [![](https://img.youtube.com/vi/XMCys46muUI/hqdefault.jpg)](https://www.youtube.com/watch?v=XMCys46muUI)

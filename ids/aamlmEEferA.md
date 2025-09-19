@@ -3,4 +3,4 @@
 -   視聴数: 69,896
 -   **いいね数: 1,026**
 -   出演者: 渡部晋治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/aamlmEEferA/hqdefault.jpg)](https://www.youtube.com/watch?v=aamlmEEferA)
+- [![](https://img.youtube.com/vi/aamlmEEferA/hqdefault.jpg)](https://www.youtube.com/watch?v=aamlmEEferA)

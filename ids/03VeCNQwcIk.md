@@ -3,4 +3,4 @@
 -   視聴数: 58,232
 -   **いいね数: 934**
 -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 神保拓也
-    - [![](https://img.youtube.com/vi/03VeCNQwcIk/hqdefault.jpg)](https://www.youtube.com/watch?v=03VeCNQwcIk)
+- [![](https://img.youtube.com/vi/03VeCNQwcIk/hqdefault.jpg)](https://www.youtube.com/watch?v=03VeCNQwcIk)

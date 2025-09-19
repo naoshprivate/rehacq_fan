@@ -3,4 +3,4 @@
 -   視聴数: 333,578
 -   **いいね数: 2,781**
 -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/D3UF1RCvDeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=D3UF1RCvDeQ)
+- [![](https://img.youtube.com/vi/D3UF1RCvDeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=D3UF1RCvDeQ)

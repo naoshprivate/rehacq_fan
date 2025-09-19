@@ -3,4 +3,4 @@
 -   視聴数: 215,631
 -   **いいね数: 3,182**
 -   出演者: [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/WhAJQa1xNow/hqdefault.jpg)](https://www.youtube.com/watch?v=WhAJQa1xNow)
+- [![](https://img.youtube.com/vi/WhAJQa1xNow/hqdefault.jpg)](https://www.youtube.com/watch?v=WhAJQa1xNow)

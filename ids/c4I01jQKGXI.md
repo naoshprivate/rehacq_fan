@@ -3,4 +3,4 @@
 -   視聴数: 156,688
 -   **いいね数: 1,750**
 -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 柏倉美保子
-    - [![](https://img.youtube.com/vi/c4I01jQKGXI/hqdefault.jpg)](https://www.youtube.com/watch?v=c4I01jQKGXI)
+- [![](https://img.youtube.com/vi/c4I01jQKGXI/hqdefault.jpg)](https://www.youtube.com/watch?v=c4I01jQKGXI)

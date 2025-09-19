@@ -3,4 +3,4 @@
 -   視聴数: 37,618
 -   **いいね数: 593**
 -   出演者: [伊藤日加](/rehacq_fan/people/伊藤日加 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/bAhFgnlCNKk/hqdefault.jpg)](https://www.youtube.com/watch?v=bAhFgnlCNKk)
+- [![](https://img.youtube.com/vi/bAhFgnlCNKk/hqdefault.jpg)](https://www.youtube.com/watch?v=bAhFgnlCNKk)

@@ -3,4 +3,4 @@
 -   視聴数: 95,089
 -   **いいね数: 1,491**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 星野佳路
-    - [![](https://img.youtube.com/vi/LtlbsAHlYxQ/hqdefault.jpg)](https://www.youtube.com/watch?v=LtlbsAHlYxQ)
+- [![](https://img.youtube.com/vi/LtlbsAHlYxQ/hqdefault.jpg)](https://www.youtube.com/watch?v=LtlbsAHlYxQ)

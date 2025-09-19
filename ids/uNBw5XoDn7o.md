@@ -3,4 +3,4 @@
 -   視聴数: 56,772
 -   **いいね数: 896**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 亀岡孝行, 野中利明, 髙野悠
-    - [![](https://img.youtube.com/vi/uNBw5XoDn7o/hqdefault.jpg)](https://www.youtube.com/watch?v=uNBw5XoDn7o)
+- [![](https://img.youtube.com/vi/uNBw5XoDn7o/hqdefault.jpg)](https://www.youtube.com/watch?v=uNBw5XoDn7o)

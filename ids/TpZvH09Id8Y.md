@@ -3,4 +3,4 @@
 -   視聴数: 394,172
 -   **いいね数: 3,273**
 -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-    - [![](https://img.youtube.com/vi/TpZvH09Id8Y/hqdefault.jpg)](https://www.youtube.com/watch?v=TpZvH09Id8Y)
+- [![](https://img.youtube.com/vi/TpZvH09Id8Y/hqdefault.jpg)](https://www.youtube.com/watch?v=TpZvH09Id8Y)

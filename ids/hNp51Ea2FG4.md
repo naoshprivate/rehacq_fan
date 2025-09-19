@@ -3,4 +3,4 @@
 -   視聴数: 80,163
 -   **いいね数: 1,113**
 -   出演者: [上出遼平](/rehacq_fan/people/上出遼平 "wikilink"), [井上咲楽](/rehacq_fan/people/井上咲楽 "wikilink")
-    - [![](https://img.youtube.com/vi/hNp51Ea2FG4/hqdefault.jpg)](https://www.youtube.com/watch?v=hNp51Ea2FG4)
+- [![](https://img.youtube.com/vi/hNp51Ea2FG4/hqdefault.jpg)](https://www.youtube.com/watch?v=hNp51Ea2FG4)

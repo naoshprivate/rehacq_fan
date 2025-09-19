@@ -3,4 +3,4 @@
 -   視聴数: 75,363
 -   **いいね数: 1,124**
 -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), 小倉將信
-    - [![](https://img.youtube.com/vi/bsl1LASqwEs/hqdefault.jpg)](https://www.youtube.com/watch?v=bsl1LASqwEs)
+- [![](https://img.youtube.com/vi/bsl1LASqwEs/hqdefault.jpg)](https://www.youtube.com/watch?v=bsl1LASqwEs)

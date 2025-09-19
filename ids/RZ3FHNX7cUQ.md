@@ -3,4 +3,4 @@
 -   視聴数: 44,015
 -   **いいね数: 542**
 -   出演者: 木野内栄治, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/RZ3FHNX7cUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=RZ3FHNX7cUQ)
+- [![](https://img.youtube.com/vi/RZ3FHNX7cUQ/hqdefault.jpg)](https://www.youtube.com/watch?v=RZ3FHNX7cUQ)

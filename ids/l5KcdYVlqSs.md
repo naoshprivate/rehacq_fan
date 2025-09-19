@@ -3,4 +3,4 @@
 -   視聴数: 84,062
 -   **いいね数: 768**
 -   出演者: [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), [野沢春日](/rehacq_fan/people/野沢春日 "wikilink")
-    - [![](https://img.youtube.com/vi/l5KcdYVlqSs/hqdefault.jpg)](https://www.youtube.com/watch?v=l5KcdYVlqSs)
+- [![](https://img.youtube.com/vi/l5KcdYVlqSs/hqdefault.jpg)](https://www.youtube.com/watch?v=l5KcdYVlqSs)

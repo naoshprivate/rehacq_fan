@@ -3,4 +3,4 @@
 -   視聴数: 192,378
 -   **いいね数: 2,327**
 -   出演者: 三崎優太, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/X-4WxPi5Dq8/hqdefault.jpg)](https://www.youtube.com/watch?v=X-4WxPi5Dq8)
+- [![](https://img.youtube.com/vi/X-4WxPi5Dq8/hqdefault.jpg)](https://www.youtube.com/watch?v=X-4WxPi5Dq8)

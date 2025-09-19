@@ -3,4 +3,4 @@
 -   視聴数: 636,801
 -   **いいね数: 10,689**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
-    - [![](https://img.youtube.com/vi/HdeI6hcv7JA/hqdefault.jpg)](https://www.youtube.com/watch?v=HdeI6hcv7JA)
+- [![](https://img.youtube.com/vi/HdeI6hcv7JA/hqdefault.jpg)](https://www.youtube.com/watch?v=HdeI6hcv7JA)

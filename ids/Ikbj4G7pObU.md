@@ -3,4 +3,4 @@
 -   視聴数: 91,375
 -   **いいね数: 816**
 -   出演者: 塩澤崇, 小林大祐, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/Ikbj4G7pObU/hqdefault.jpg)](https://www.youtube.com/watch?v=Ikbj4G7pObU)
+- [![](https://img.youtube.com/vi/Ikbj4G7pObU/hqdefault.jpg)](https://www.youtube.com/watch?v=Ikbj4G7pObU)

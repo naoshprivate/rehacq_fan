@@ -3,4 +3,4 @@
 -   視聴数: 99,729
 -   **いいね数: 2,162**
 -   出演者: 大空幸星, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/gUyjAj6Z4_c/hqdefault.jpg)](https://www.youtube.com/watch?v=gUyjAj6Z4_c)
+- [![](https://img.youtube.com/vi/gUyjAj6Z4_c/hqdefault.jpg)](https://www.youtube.com/watch?v=gUyjAj6Z4_c)

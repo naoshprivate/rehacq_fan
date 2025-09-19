@@ -3,4 +3,4 @@
 -   視聴数: 162,453
 -   **いいね数: 1,968**
 -   出演者: [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/5p_aiSRM6sA/hqdefault.jpg)](https://www.youtube.com/watch?v=5p_aiSRM6sA)
+- [![](https://img.youtube.com/vi/5p_aiSRM6sA/hqdefault.jpg)](https://www.youtube.com/watch?v=5p_aiSRM6sA)

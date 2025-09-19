@@ -3,4 +3,4 @@
 -   視聴数: 96,831
 -   **いいね数: 345**
 -   出演者: 小林亮平, [横川楓](/rehacq_fan/people/横川楓 "wikilink")
-    - [![](https://img.youtube.com/vi/8cTJabLTw-4/hqdefault.jpg)](https://www.youtube.com/watch?v=8cTJabLTw-4)
+- [![](https://img.youtube.com/vi/8cTJabLTw-4/hqdefault.jpg)](https://www.youtube.com/watch?v=8cTJabLTw-4)

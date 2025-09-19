@@ -3,4 +3,4 @@
 -   視聴数: 184,637
 -   **いいね数: 2,435**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink"), 馬渕磨理子
-    - [![](https://img.youtube.com/vi/0Lb5CKEGSqI/hqdefault.jpg)](https://www.youtube.com/watch?v=0Lb5CKEGSqI)
+- [![](https://img.youtube.com/vi/0Lb5CKEGSqI/hqdefault.jpg)](https://www.youtube.com/watch?v=0Lb5CKEGSqI)

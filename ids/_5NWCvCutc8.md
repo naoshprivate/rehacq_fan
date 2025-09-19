@@ -3,4 +3,4 @@
 -   視聴数: 662,623
 -   **いいね数: 15,519**
 -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 関口健太郎
-    - [![](https://img.youtube.com/vi/_5NWCvCutc8/hqdefault.jpg)](https://www.youtube.com/watch?v=_5NWCvCutc8)
+- [![](https://img.youtube.com/vi/_5NWCvCutc8/hqdefault.jpg)](https://www.youtube.com/watch?v=_5NWCvCutc8)

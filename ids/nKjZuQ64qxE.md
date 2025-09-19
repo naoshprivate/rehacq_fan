@@ -3,4 +3,4 @@
 -   視聴数: 815,200
 -   **いいね数: 12,050**
 -   出演者: 河井あんり, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/nKjZuQ64qxE/hqdefault.jpg)](https://www.youtube.com/watch?v=nKjZuQ64qxE)
+- [![](https://img.youtube.com/vi/nKjZuQ64qxE/hqdefault.jpg)](https://www.youtube.com/watch?v=nKjZuQ64qxE)

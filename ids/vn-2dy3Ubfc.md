@@ -3,4 +3,4 @@
 -   視聴数: 323,425
 -   **いいね数: 10,289**
 -   出演者: ワリード・シアム
-    - [![](https://img.youtube.com/vi/vn-2dy3Ubfc/hqdefault.jpg)](https://www.youtube.com/watch?v=vn-2dy3Ubfc)
+- [![](https://img.youtube.com/vi/vn-2dy3Ubfc/hqdefault.jpg)](https://www.youtube.com/watch?v=vn-2dy3Ubfc)

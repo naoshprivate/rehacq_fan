@@ -3,4 +3,4 @@
 -   視聴数: 138,843
 -   **いいね数: 2,405**
 -   出演者: 小袋成彬, 山口節生, 沢田良, 西内聡雄
-    - [![](https://img.youtube.com/vi/JAL59MWRbcY/hqdefault.jpg)](https://www.youtube.com/watch?v=JAL59MWRbcY)
+- [![](https://img.youtube.com/vi/JAL59MWRbcY/hqdefault.jpg)](https://www.youtube.com/watch?v=JAL59MWRbcY)

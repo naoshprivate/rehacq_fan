@@ -3,4 +3,4 @@
 -   視聴数: 16,341
 -   **いいね数: 355**
 -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
-    - [![](https://img.youtube.com/vi/2sON50IafOM/hqdefault.jpg)](https://www.youtube.com/watch?v=2sON50IafOM)
+- [![](https://img.youtube.com/vi/2sON50IafOM/hqdefault.jpg)](https://www.youtube.com/watch?v=2sON50IafOM)

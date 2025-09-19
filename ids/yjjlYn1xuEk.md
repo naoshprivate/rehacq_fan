@@ -3,4 +3,4 @@
 -   視聴数: 26,954
 -   **いいね数: 238**
 -   出演者: [前原誠司](/rehacq_fan/people/前原誠司 "wikilink")
-    - [![](https://img.youtube.com/vi/yjjlYn1xuEk/hqdefault.jpg)](https://www.youtube.com/watch?v=yjjlYn1xuEk)
+- [![](https://img.youtube.com/vi/yjjlYn1xuEk/hqdefault.jpg)](https://www.youtube.com/watch?v=yjjlYn1xuEk)

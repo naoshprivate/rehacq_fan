@@ -3,4 +3,4 @@
 -   視聴数: 48,496
 -   **いいね数: 765**
 -   出演者: 谷口真由美, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Nkus0A5CNwk/hqdefault.jpg)](https://www.youtube.com/watch?v=Nkus0A5CNwk)
+- [![](https://img.youtube.com/vi/Nkus0A5CNwk/hqdefault.jpg)](https://www.youtube.com/watch?v=Nkus0A5CNwk)

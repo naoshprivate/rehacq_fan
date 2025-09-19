@@ -3,4 +3,4 @@
 -   視聴数: 160,235
 -   **いいね数: 2,048**
 -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
-    - [![](https://img.youtube.com/vi/v5IYoV-wkPY/hqdefault.jpg)](https://www.youtube.com/watch?v=v5IYoV-wkPY)
+- [![](https://img.youtube.com/vi/v5IYoV-wkPY/hqdefault.jpg)](https://www.youtube.com/watch?v=v5IYoV-wkPY)

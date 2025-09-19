@@ -3,4 +3,4 @@
 -   視聴数: 96,490
 -   **いいね数: 1,342**
 -   出演者: [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), [清水国明](/rehacq_fan/people/清水国明 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/f0AYRERgJYs/hqdefault.jpg)](https://www.youtube.com/watch?v=f0AYRERgJYs)
+- [![](https://img.youtube.com/vi/f0AYRERgJYs/hqdefault.jpg)](https://www.youtube.com/watch?v=f0AYRERgJYs)

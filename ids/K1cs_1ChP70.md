@@ -3,4 +3,4 @@
 -   視聴数: 482,316
 -   **いいね数: 7,930**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/K1cs_1ChP70/hqdefault.jpg)](https://www.youtube.com/watch?v=K1cs_1ChP70)
+- [![](https://img.youtube.com/vi/K1cs_1ChP70/hqdefault.jpg)](https://www.youtube.com/watch?v=K1cs_1ChP70)

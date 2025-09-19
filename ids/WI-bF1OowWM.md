@@ -3,4 +3,4 @@
 -   視聴数: 133,151
 -   **いいね数: 1,512**
 -   出演者: 前田栄治, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/WI-bF1OowWM/hqdefault.jpg)](https://www.youtube.com/watch?v=WI-bF1OowWM)
+- [![](https://img.youtube.com/vi/WI-bF1OowWM/hqdefault.jpg)](https://www.youtube.com/watch?v=WI-bF1OowWM)

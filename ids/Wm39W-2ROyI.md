@@ -3,4 +3,4 @@
 -   視聴数: 101,711
 -   **いいね数: 1,334**
 -   出演者: [クックジュリアン聖也](/rehacq_fan/people/クックジュリアン聖也 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [登坂淳一](/rehacq_fan/people/登坂淳一 "wikilink")
-    - [![](https://img.youtube.com/vi/Wm39W-2ROyI/hqdefault.jpg)](https://www.youtube.com/watch?v=Wm39W-2ROyI)
+- [![](https://img.youtube.com/vi/Wm39W-2ROyI/hqdefault.jpg)](https://www.youtube.com/watch?v=Wm39W-2ROyI)

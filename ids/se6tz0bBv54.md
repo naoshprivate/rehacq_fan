@@ -3,4 +3,4 @@
 -   視聴数: 97,181
 -   **いいね数: 1,519**
 -   出演者: [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [辻中仁士](/rehacq_fan/people/辻中仁士 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/se6tz0bBv54/hqdefault.jpg)](https://www.youtube.com/watch?v=se6tz0bBv54)
+- [![](https://img.youtube.com/vi/se6tz0bBv54/hqdefault.jpg)](https://www.youtube.com/watch?v=se6tz0bBv54)

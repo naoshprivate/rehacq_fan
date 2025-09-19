@@ -3,4 +3,4 @@
 -   視聴数: 119,002
 -   **いいね数: 1,136**
 -   出演者: kenmo, みくかぶ
-    - [![](https://img.youtube.com/vi/gcIr1IsHHVk/hqdefault.jpg)](https://www.youtube.com/watch?v=gcIr1IsHHVk)
+- [![](https://img.youtube.com/vi/gcIr1IsHHVk/hqdefault.jpg)](https://www.youtube.com/watch?v=gcIr1IsHHVk)

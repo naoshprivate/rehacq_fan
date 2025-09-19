@@ -3,4 +3,4 @@
 -   視聴数: 70,891
 -   **いいね数: 836**
 -   出演者: 松平成史, 澤田健人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/po0lO_YHy7s/hqdefault.jpg)](https://www.youtube.com/watch?v=po0lO_YHy7s)
+- [![](https://img.youtube.com/vi/po0lO_YHy7s/hqdefault.jpg)](https://www.youtube.com/watch?v=po0lO_YHy7s)
