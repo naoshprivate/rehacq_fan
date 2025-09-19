@@ -1,6 +1,6 @@
 ### [【TBSの左遷王子vs高橋弘樹】なぜ退社？最高の辞め方とは…国会王子・武田一顯【李白と小沢一郎】](https://www.youtube.com/watch?v=ZhMbqoCy-dw)
 -   公開日: 2024-03-27
--   視聴数: 320,271
--   **いいね数: 3,591**
+-   視聴数: 320,404
+-   **いいね数: 3,592**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ZhMbqoCy-dw/hqdefault.jpg)](https://www.youtube.com/watch?v=ZhMbqoCy-dw)

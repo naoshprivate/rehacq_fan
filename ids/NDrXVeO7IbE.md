@@ -1,6 +1,6 @@
 ### [【会社勤めで資産1億円！】5年で爆増した投資手法とは？【ReHacQ】](https://www.youtube.com/watch?v=NDrXVeO7IbE)
 -   公開日: 2025-08-19
--   視聴数: 76,493
+-   視聴数: 76,795
 -   **いいね数: 749**
 -   出演者: kenmo, みくかぶ
     - [![](https://img.youtube.com/vi/NDrXVeO7IbE/hqdefault.jpg)](https://www.youtube.com/watch?v=NDrXVeO7IbE)
