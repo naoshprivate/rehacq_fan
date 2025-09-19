@@ -1,8 +1,8 @@
 # プレイリスト (305): ReHacQ SP /  ReHacQTV
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](/rehacq_fan/ids/2DZQwsjuZJE "wikilink")
     -   公開日: 2025-09-17
-    -   視聴数: 119,979
-    -   **いいね数: 1,686**
+    -   視聴数: 120,900
+    -   **いいね数: 1,692**
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【優秀な人ほど失敗する】できるプレーヤーがなぜ？３万人の研修実績で磨かれた部下のマネジメント法とは？【肉乃小路ニクヨ】](/rehacq_fan/ids/RQx0Se_RJi4 "wikilink")
     -   公開日: 2025-08-29
@@ -51,12 +51,12 @@
     -   出演者: 本郷和人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ゆうちゃみvs近大マグロ】日本文化のブランド戦略最前線！世界の心を掴むには？【ReHacQvs高橋弘樹】](/rehacq_fan/ids/hwTQDuHBTt8 "wikilink")
     -   公開日: 2025-08-05
-    -   視聴数: 30,627
-    -   **いいね数: 278**
+    -   視聴数: 30,659
+    -   **いいね数: 279**
     -   出演者: ゆうちゃみ, 世耕石弘, 米田恵樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 8月5日（火）【ReHacQ】](/rehacq_fan/ids/IxzdLJASVBk "wikilink")
     -   公開日: 2025-08-05
-    -   視聴数: 30,329
+    -   視聴数: 30,335
     -   **いいね数: 405**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ReHacQSP】まるで“月面” 街が完全に破壊されたガザ北部...すべての建物にハマスがいたのか？【須賀川拓vs高橋和夫】](/rehacq_fan/ids/m4DOst3C5EQ "wikilink")
@@ -1883,8 +1883,8 @@
     -   出演者: 百田尚樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【小川淳也vs高橋弘樹】立憲民主党にNG無し質問！【ReHacQvs立憲民主党】](/rehacq_fan/ids/RK8MAVm9Bpo "wikilink")
     -   公開日: 2025-07-18
-    -   視聴数: 84,688
-    -   **いいね数: 525**
+    -   視聴数: 84,750
+    -   **いいね数: 527**
     -   出演者: [小川淳也](/rehacq_fan/people/小川淳也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】参院選大阪選挙区ネット討論会【高橋弘樹】](/rehacq_fan/ids/PW0NpDQzNOc "wikilink")
     -   公開日: 2025-07-16
@@ -4815,133 +4815,133 @@
     -   出演者: [いけちゃん](/rehacq_fan/people/いけちゃん "wikilink"), [宇内梨沙](/rehacq_fan/people/宇内梨沙 "wikilink")
 1.  [【石丸伸二vsジョージア大使】魅力度ランキングを覆す！北関東の歴史と進化【ReHacQ旅inひたちなか完結】](/rehacq_fan/ids/ZmUitnuWX8g "wikilink")
     -   公開日: 2025-04-19
-    -   視聴数: 89,269
-    -   **いいね数: 4,898**
+    -   視聴数: 89,344
+    -   **いいね数: 4,902**
     -   出演者: [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vsジョージア大使】絶品あんこう鍋つついて語る、衝撃外交術【ReHacQvsレジャバ閣下】](/rehacq_fan/ids/Uf7-VIemrvI "wikilink")
     -   公開日: 2025-04-12
-    -   視聴数: 133,727
-    -   **いいね数: 6,008**
+    -   視聴数: 133,838
+    -   **いいね数: 6,009**
     -   出演者: [ティムラズ・レジャバ](/rehacq_fan/people/ティムラズ・レジャバ "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】Barで衝撃提案！人口減少、後継者不足解決するには…【ReHacQ北関東旅】](/rehacq_fan/ids/zfUWk6zA77M "wikilink")
     -   公開日: 2025-04-02
-    -   視聴数: 282,277
-    -   **いいね数: 7,930**
+    -   視聴数: 282,483
+    -   **いいね数: 7,931**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs林尚弘②】北関東に希望あり！？高齢化進む地域を救うには【令和の虎vs ReHacQ高橋弘樹】](/rehacq_fan/ids/q6hUERB1bb0 "wikilink")
     -   公開日: 2025-03-29
-    -   視聴数: 198,549
-    -   **いいね数: 6,790**
+    -   視聴数: 198,640
+    -   **いいね数: 6,793**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs林尚弘】北関東で激論！石丸新党党議拘束なしの真実【ReHacQvs令和の虎】](/rehacq_fan/ids/VzUaY-b0PIQ "wikilink")
     -   公開日: 2025-03-23
-    -   視聴数: 329,309
-    -   **いいね数: 9,549**
+    -   視聴数: 329,414
+    -   **いいね数: 9,553**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsドバイ③】砂漠で何を思う…？衝撃のラスト【ReHacQ旅】](/rehacq_fan/ids/fk-rs7gdaxM "wikilink")
     -   公開日: 2025-03-17
-    -   視聴数: 169,950
-    -   **いいね数: 4,769**
+    -   視聴数: 170,085
+    -   **いいね数: 4,773**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs中東②】なぜ？ドバイで暮らす日本人【空からドバイを見てみよう】](/rehacq_fan/ids/kxEGF0AEeIg "wikilink")
     -   公開日: 2025-03-01
-    -   視聴数: 274,500
-    -   **いいね数: 9,662**
+    -   視聴数: 274,715
+    -   **いいね数: 9,664**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs中東】世界が注目!ドバイ急成長の秘密とは【ReHacQ旅】](/rehacq_fan/ids/2mwUVTAsmoU "wikilink")
     -   公開日: 2025-02-24
-    -   視聴数: 423,793
-    -   **いいね数: 11,839**
+    -   視聴数: 424,106
+    -   **いいね数: 11,842**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二&清春ReHacQ旅】未知の愛媛！鯛にみかん汁注入…高校生発・「みかん鯛」とは？【蛇口からジュース】](/rehacq_fan/ids/DVxWw5ukKvE "wikilink")
     -   公開日: 2025-02-16
-    -   視聴数: 214,946
-    -   **いいね数: 7,822**
+    -   視聴数: 215,132
+    -   **いいね数: 7,826**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs清春】石丸氏が告白「女性の〇〇は必ず褒める」。1個千円みかんの味とは？【ReHacQ旅in愛媛】](/rehacq_fan/ids/Uax7_fpto9E "wikilink")
     -   公開日: 2025-02-09
-    -   視聴数: 227,940
-    -   **いいね数: 8,289**
+    -   視聴数: 228,117
+    -   **いいね数: 8,291**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきvsアフリカ旅】棺桶工場で衝撃！コーラの棺桶？EXILEが絶句【ReHacQ旅】](/rehacq_fan/ids/WsXY3apN3BM "wikilink")
     -   公開日: 2025-02-08
-    -   視聴数: 72,077
-    -   **いいね数: 1,066**
+    -   視聴数: 72,331
+    -   **いいね数: 1,069**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs清春】10年後の自分とは…旅の夜の雑談【ReHacQ旅】](/rehacq_fan/ids/sT-2mKXHPm8 "wikilink")
     -   公開日: 2025-02-07
-    -   視聴数: 177,366
-    -   **いいね数: 6,855**
+    -   視聴数: 177,490
+    -   **いいね数: 6,860**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs音喜多駿】都知事選から険悪な二人、衝撃の方法で仲直りを試みる！【ReHacQ旅】](/rehacq_fan/ids/e7xrRcZUctg "wikilink")
     -   公開日: 2025-02-03
-    -   視聴数: 324,154
-    -   **いいね数: 10,264**
+    -   視聴数: 324,432
+    -   **いいね数: 10,267**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
 1.  [【ひろゆき×EXILE】アフリカガーナの医療最前線！ワクチンどう届ける【ドローン＆謎の車】](/rehacq_fan/ids/JQaEQQSnGT8 "wikilink")
     -   公開日: 2025-02-01
-    -   視聴数: 155,782
-    -   **いいね数: 1,125**
+    -   視聴数: 156,044
+    -   **いいね数: 1,126**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs清春】完全ガチ！清春の歌詞&石丸演説…裏側を徹底解説【ReHacQ旅】](/rehacq_fan/ids/3h6qFsuAaoY "wikilink")
     -   公開日: 2025-01-29
-    -   視聴数: 245,493
-    -   **いいね数: 7,742**
+    -   視聴数: 245,588
+    -   **いいね数: 7,748**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
 1.  [【ひろゆき&EXILE】落ちたら即死!断崖絶壁の道の先にあるものとは…【アフリカガーナ秘境旅④】](/rehacq_fan/ids/W3uF1e8-pw8 "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 83,463
+    -   視聴数: 83,859
     -   **いいね数: 1,226**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs清春vs音喜多駿】奇跡の3人！はしゃぐおじさん3人旅【ReHacQ旅！北陸の穴場を味わう旅】](/rehacq_fan/ids/AafCIqXw6R4 "wikilink")
     -   公開日: 2025-01-25
-    -   視聴数: 200,508
-    -   **いいね数: 6,707**
+    -   視聴数: 200,643
+    -   **いいね数: 6,711**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
 1.  [【ひろゆき&EXILE】秘境の地にワクチンを！最先端ドローンの実態【アフリカガーナ旅③】](/rehacq_fan/ids/Dfh9LTFtNRs "wikilink")
     -   公開日: 2025-01-18
-    -   視聴数: 103,945
-    -   **いいね数: 1,641**
+    -   視聴数: 104,416
+    -   **いいね数: 1,645**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs音喜多駿】政治の「友」と「敵」の落選２人旅【維新の秘密】](/rehacq_fan/ids/T2JHeuKMcVg "wikilink")
     -   公開日: 2025-01-11
-    -   視聴数: 252,458
-    -   **いいね数: 6,878**
+    -   視聴数: 252,585
+    -   **いいね数: 6,879**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
 1.  [【ひろゆき&EXILE】なぜ？世界最大級のゴミ山で生きるワケ【アフリカガーナ旅②】](/rehacq_fan/ids/nJDdh9Mi1M0 "wikilink")
     -   公開日: 2025-01-10
-    -   視聴数: 182,740
-    -   **いいね数: 2,421**
+    -   視聴数: 184,241
+    -   **いいね数: 2,433**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs清春】能登・氷見の旅！思い出の地！富山の被災と復興とは？【ReHacQ旅】](/rehacq_fan/ids/1aHitAam8qg "wikilink")
     -   公開日: 2025-01-04
-    -   視聴数: 205,511
-    -   **いいね数: 6,249**
+    -   視聴数: 205,622
+    -   **いいね数: 6,251**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆき&EXILE】毒ガスの町へ…なぜそこに住む？アフリカ・ガーナ編始動【ReHacQ旅】](/rehacq_fan/ids/8T3GTN11i-U "wikilink")
     -   公開日: 2025-01-03
-    -   視聴数: 356,143
-    -   **いいね数: 4,353**
+    -   視聴数: 359,097
+    -   **いいね数: 4,371**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【石丸伸二vs清春】能登の冬！楽しみと苦難【ReHacQ旅】](/rehacq_fan/ids/EwZ1ItLXhk8 "wikilink")
     -   公開日: 2024-12-29
-    -   視聴数: 213,411
-    -   **いいね数: 6,957**
+    -   視聴数: 213,496
+    -   **いいね数: 6,963**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs清春】能登半島の今…石丸が突然の涙…なぜ？](/rehacq_fan/ids/vcowaG5aaB0 "wikilink")
     -   公開日: 2024-12-21
-    -   視聴数: 450,873
-    -   **いいね数: 13,273**
+    -   視聴数: 451,102
+    -   **いいね数: 13,272**
     -   出演者: [清春](/rehacq_fan/people/清春 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs秘境の院長】千葉の未来は明るい？医院が目指す「断らない医療」とは【プリティ長嶋】](/rehacq_fan/ids/sSC7dELMZXY "wikilink")
     -   公開日: 2024-12-01
-    -   視聴数: 177,077
-    -   **いいね数: 5,637**
+    -   視聴数: 177,145
+    -   **いいね数: 5,636**
     -   出演者: プリティ長嶋, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vsプリティ長嶋】千葉の知られざる課題…県議会議員になったワケ【ReHacQ旅】](/rehacq_fan/ids/sbWfAdWdUjU "wikilink")
     -   公開日: 2024-11-24
-    -   視聴数: 200,891
-    -   **いいね数: 5,858**
+    -   視聴数: 200,946
+    -   **いいね数: 5,859**
     -   出演者: プリティ長嶋, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆきin能登】地元に誇りを!被災乗り越える希望の道筋【まったり雑談②with友人ひげおやじ】](/rehacq_fan/ids/DB9kTL2ZvsI "wikilink")
     -   公開日: 2024-11-23
@@ -6141,13 +6141,13 @@
 # プレイリスト (2): なんで結婚したんですか？
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,588,838
-    -   **いいね数: 14,729**
+    -   視聴数: 1,594,885
+    -   **いいね数: 14,778**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,708,259
-    -   **いいね数: 14,810**
+    -   視聴数: 1,711,627
+    -   **いいね数: 14,830**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 
 # プレイリスト (2): ReHacQジモトーク
