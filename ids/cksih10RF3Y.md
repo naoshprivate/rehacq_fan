@@ -1,5 +1,5 @@
 ### [【成田悠輔vsインドの高僧】なんで禁欲するんですか？【我々はなぜ生きるのか】](https://www.youtube.com/watch?v=cksih10RF3Y)
-[![](https://img.youtube.com/vi/cksih10RF3Y/hqdefault.jpg)](https://www.youtube.com/watch?v=cksih10RF3Y)
+[![](https://img.youtube.com/vi/cksih10RF3Y/sddefault.jpg)](https://www.youtube.com/watch?v=cksih10RF3Y)
 -   公開日: 2023-06-17
 -   視聴数: 344,998
 -   **いいね数: 4,390**

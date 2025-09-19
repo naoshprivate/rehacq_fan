@@ -1,5 +1,5 @@
 ### [【ジャニーズvs文春】メリーさん激怒のワケ【ジャニ問題で文春の新方針】](https://www.youtube.com/watch?v=nj1VjQBPuog)
-[![](https://img.youtube.com/vi/nj1VjQBPuog/hqdefault.jpg)](https://www.youtube.com/watch?v=nj1VjQBPuog)
+[![](https://img.youtube.com/vi/nj1VjQBPuog/sddefault.jpg)](https://www.youtube.com/watch?v=nj1VjQBPuog)
 -   公開日: 2023-09-28
 -   視聴数: 493,364
 -   **いいね数: 6,704**

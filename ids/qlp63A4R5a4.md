@@ -1,5 +1,5 @@
 ### [【ひろゆきvs日本維新】馬場代表、ガチ激論！万博は？政治と金は？【西田亮介】](https://www.youtube.com/watch?v=qlp63A4R5a4)
-[![](https://img.youtube.com/vi/qlp63A4R5a4/hqdefault.jpg)](https://www.youtube.com/watch?v=qlp63A4R5a4)
+[![](https://img.youtube.com/vi/qlp63A4R5a4/sddefault.jpg)](https://www.youtube.com/watch?v=qlp63A4R5a4)
 -   公開日: 2024-04-11
 -   視聴数: 258,054
 -   **いいね数: 2,215**

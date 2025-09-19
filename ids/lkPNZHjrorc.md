@@ -1,5 +1,5 @@
 ### [【川上量生vs脱成長】仙台で高級ホテル！マルクス主義者が激怒【南三陸グルメ旅】](https://www.youtube.com/watch?v=lkPNZHjrorc)
-[![](https://img.youtube.com/vi/lkPNZHjrorc/hqdefault.jpg)](https://www.youtube.com/watch?v=lkPNZHjrorc)
+[![](https://img.youtube.com/vi/lkPNZHjrorc/sddefault.jpg)](https://www.youtube.com/watch?v=lkPNZHjrorc)
 -   公開日: 2023-11-26
 -   視聴数: 106,311
 -   **いいね数: 1,775**

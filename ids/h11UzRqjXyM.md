@@ -1,5 +1,5 @@
 ### [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](https://www.youtube.com/watch?v=h11UzRqjXyM)
-[![](https://img.youtube.com/vi/h11UzRqjXyM/hqdefault.jpg)](https://www.youtube.com/watch?v=h11UzRqjXyM)
+[![](https://img.youtube.com/vi/h11UzRqjXyM/sddefault.jpg)](https://www.youtube.com/watch?v=h11UzRqjXyM)
 -   公開日: 2023-08-20
 -   視聴数: 1,093,357
 -   **いいね数: 6,761**

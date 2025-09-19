@@ -1,5 +1,5 @@
 ### [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](https://www.youtube.com/watch?v=nqXDm5gzm7g)
-[![](https://img.youtube.com/vi/nqXDm5gzm7g/hqdefault.jpg)](https://www.youtube.com/watch?v=nqXDm5gzm7g)
+[![](https://img.youtube.com/vi/nqXDm5gzm7g/sddefault.jpg)](https://www.youtube.com/watch?v=nqXDm5gzm7g)
 -   公開日: 2025-07-20
 -   視聴数: 1,097,371
 -   **いいね数: 8,150**

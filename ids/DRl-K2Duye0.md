@@ -1,5 +1,5 @@
 ### [【ReHacQ生配信】あつまれ！立憲の森【岸谷蘭丸vs立憲民主党】](https://www.youtube.com/watch?v=DRl-K2Duye0)
-[![](https://img.youtube.com/vi/DRl-K2Duye0/hqdefault.jpg)](https://www.youtube.com/watch?v=DRl-K2Duye0)
+[![](https://img.youtube.com/vi/DRl-K2Duye0/sddefault.jpg)](https://www.youtube.com/watch?v=DRl-K2Duye0)
 -   公開日: 2025-08-21
 -   視聴数: 297,579
 -   **いいね数: 3,436**

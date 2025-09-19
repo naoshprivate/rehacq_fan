@@ -1,5 +1,5 @@
 ### [【ひろゆきvs斎藤幸平②】共演NGの２人…リベラルの本質とは？【リハックマ感動】](https://www.youtube.com/watch?v=VTG4_sQ-QvM)
-[![](https://img.youtube.com/vi/VTG4_sQ-QvM/hqdefault.jpg)](https://www.youtube.com/watch?v=VTG4_sQ-QvM)
+[![](https://img.youtube.com/vi/VTG4_sQ-QvM/sddefault.jpg)](https://www.youtube.com/watch?v=VTG4_sQ-QvM)
 -   公開日: 2024-08-23
 -   視聴数: 472,042
 -   **いいね数: 8,217**

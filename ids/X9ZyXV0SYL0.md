@@ -1,5 +1,5 @@
 ### [【石丸伸二vs地域創生のプロ】東京の真似NG！地方ビジネス成功の最適解とは？【高橋弘樹&アルファドライブ&黒岩里奈】](https://www.youtube.com/watch?v=X9ZyXV0SYL0)
-[![](https://img.youtube.com/vi/X9ZyXV0SYL0/hqdefault.jpg)](https://www.youtube.com/watch?v=X9ZyXV0SYL0)
+[![](https://img.youtube.com/vi/X9ZyXV0SYL0/sddefault.jpg)](https://www.youtube.com/watch?v=X9ZyXV0SYL0)
 -   公開日: 2025-01-20
 -   視聴数: 251,860
 -   **いいね数: 5,158**

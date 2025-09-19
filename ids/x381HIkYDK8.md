@@ -1,5 +1,5 @@
 ### [【斎藤元彦前知事は…】メディアへの思いを激白…維新は政権を狙うのか？【日本維新の会・馬場伸幸vsReHacQ】](https://www.youtube.com/watch?v=x381HIkYDK8)
-[![](https://img.youtube.com/vi/x381HIkYDK8/hqdefault.jpg)](https://www.youtube.com/watch?v=x381HIkYDK8)
+[![](https://img.youtube.com/vi/x381HIkYDK8/sddefault.jpg)](https://www.youtube.com/watch?v=x381HIkYDK8)
 -   公開日: 2024-10-12
 -   視聴数: 121,707
 -   **いいね数: 1,137**

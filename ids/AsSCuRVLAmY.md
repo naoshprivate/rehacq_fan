@@ -1,5 +1,5 @@
 ### [【成田悠輔vsファンキーな老中】函館で行方不明！イケてる老中・小笠原長行【ビジネスパーソンのための辞世】](https://www.youtube.com/watch?v=AsSCuRVLAmY)
-[![](https://img.youtube.com/vi/AsSCuRVLAmY/hqdefault.jpg)](https://www.youtube.com/watch?v=AsSCuRVLAmY)
+[![](https://img.youtube.com/vi/AsSCuRVLAmY/sddefault.jpg)](https://www.youtube.com/watch?v=AsSCuRVLAmY)
 -   公開日: 2023-10-26
 -   視聴数: 79,724
 -   **いいね数: 1,070**

@@ -1,5 +1,5 @@
 ### [【成田悠輔vs17LIVEの元CEO】激論！脳内物質がもたらす数字地獄とは？【資本主義と幸福】](https://www.youtube.com/watch?v=fxJfGYo9DVw)
-[![](https://img.youtube.com/vi/fxJfGYo9DVw/hqdefault.jpg)](https://www.youtube.com/watch?v=fxJfGYo9DVw)
+[![](https://img.youtube.com/vi/fxJfGYo9DVw/sddefault.jpg)](https://www.youtube.com/watch?v=fxJfGYo9DVw)
 -   公開日: 2023-04-09
 -   視聴数: 547,455
 -   **いいね数: 10,298**

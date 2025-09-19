@@ -1,5 +1,5 @@
 ### [【ひろゆきvsMIT】どうする円安時代!?日本での働き方と幸せになるには【ボビーvs安野貴博】](https://www.youtube.com/watch?v=H5IVSMGIoyg)
-[![](https://img.youtube.com/vi/H5IVSMGIoyg/hqdefault.jpg)](https://www.youtube.com/watch?v=H5IVSMGIoyg)
+[![](https://img.youtube.com/vi/H5IVSMGIoyg/sddefault.jpg)](https://www.youtube.com/watch?v=H5IVSMGIoyg)
 -   公開日: 2024-08-30
 -   視聴数: 565,875
 -   **いいね数: 7,378**

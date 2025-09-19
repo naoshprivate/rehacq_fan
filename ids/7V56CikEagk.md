@@ -1,5 +1,5 @@
 ### [【石丸伸二 緊急生出演】石丸新党「再生の道」とは？会見参加できなかったメディア質問会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=7V56CikEagk)
-[![](https://img.youtube.com/vi/7V56CikEagk/hqdefault.jpg)](https://www.youtube.com/watch?v=7V56CikEagk)
+[![](https://img.youtube.com/vi/7V56CikEagk/sddefault.jpg)](https://www.youtube.com/watch?v=7V56CikEagk)
 -   公開日: 2025-01-15
 -   視聴数: 846,841
 -   **いいね数: 22,155**

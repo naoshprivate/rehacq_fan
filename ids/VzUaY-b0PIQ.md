@@ -1,5 +1,5 @@
 ### [【石丸伸二vs林尚弘】北関東で激論！石丸新党党議拘束なしの真実【ReHacQvs令和の虎】](https://www.youtube.com/watch?v=VzUaY-b0PIQ)
-[![](https://img.youtube.com/vi/VzUaY-b0PIQ/hqdefault.jpg)](https://www.youtube.com/watch?v=VzUaY-b0PIQ)
+[![](https://img.youtube.com/vi/VzUaY-b0PIQ/sddefault.jpg)](https://www.youtube.com/watch?v=VzUaY-b0PIQ)
 -   公開日: 2025-03-23
 -   視聴数: 329,309
 -   **いいね数: 9,549**

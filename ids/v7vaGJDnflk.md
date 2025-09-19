@@ -1,5 +1,5 @@
 ### [【馬場伸幸vs西田亮介】激震...日本維新の会に何が？徹底議論【高橋弘樹&宇佐美典也】](https://www.youtube.com/watch?v=v7vaGJDnflk)
-[![](https://img.youtube.com/vi/v7vaGJDnflk/hqdefault.jpg)](https://www.youtube.com/watch?v=v7vaGJDnflk)
+[![](https://img.youtube.com/vi/v7vaGJDnflk/sddefault.jpg)](https://www.youtube.com/watch?v=v7vaGJDnflk)
 -   公開日: 2024-10-09
 -   視聴数: 213,600
 -   **いいね数: 1,764**

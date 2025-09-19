@@ -1,5 +1,5 @@
 ### [【後藤達也のSNS戦略】「少人数の熱量」の時代へ](https://www.youtube.com/watch?v=4h8VNNJWhWU)
-[![](https://img.youtube.com/vi/4h8VNNJWhWU/hqdefault.jpg)](https://www.youtube.com/watch?v=4h8VNNJWhWU)
+[![](https://img.youtube.com/vi/4h8VNNJWhWU/sddefault.jpg)](https://www.youtube.com/watch?v=4h8VNNJWhWU)
 -   公開日: 2023-09-14
 -   視聴数: 69,766
 -   **いいね数: 1,000**

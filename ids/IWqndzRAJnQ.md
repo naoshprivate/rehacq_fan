@@ -1,5 +1,5 @@
 ### [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](https://www.youtube.com/watch?v=IWqndzRAJnQ)
-[![](https://img.youtube.com/vi/IWqndzRAJnQ/hqdefault.jpg)](https://www.youtube.com/watch?v=IWqndzRAJnQ)
+[![](https://img.youtube.com/vi/IWqndzRAJnQ/sddefault.jpg)](https://www.youtube.com/watch?v=IWqndzRAJnQ)
 -   公開日: 2023-11-07
 -   視聴数: 2,054,934
 -   **いいね数: 25,810**

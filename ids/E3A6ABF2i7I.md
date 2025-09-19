@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs斎藤祐馬】必見！成功する起業家のプレゼン術盗め！【トーマツのプレゼンの魔術師】](https://www.youtube.com/watch?v=E3A6ABF2i7I)
-[![](https://img.youtube.com/vi/E3A6ABF2i7I/hqdefault.jpg)](https://www.youtube.com/watch?v=E3A6ABF2i7I)
+[![](https://img.youtube.com/vi/E3A6ABF2i7I/sddefault.jpg)](https://www.youtube.com/watch?v=E3A6ABF2i7I)
 -   公開日: 2024-04-15
 -   視聴数: 51,812
 -   **いいね数: 603**

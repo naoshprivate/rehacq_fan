@@ -1,5 +1,5 @@
 ### [【テレビ東京を退社】非円満！暴走族取材の裏で…事件【高橋弘樹vs上出遼平】](https://www.youtube.com/watch?v=CzdJwd5AeJs)
-[![](https://img.youtube.com/vi/CzdJwd5AeJs/hqdefault.jpg)](https://www.youtube.com/watch?v=CzdJwd5AeJs)
+[![](https://img.youtube.com/vi/CzdJwd5AeJs/sddefault.jpg)](https://www.youtube.com/watch?v=CzdJwd5AeJs)
 -   公開日: 2024-04-08
 -   視聴数: 670,016
 -   **いいね数: 7,161**

@@ -1,5 +1,5 @@
 ### [【ひろゆきvsジョージア大使】暴徒襲撃…野党指導者続々逮捕…ジョージア緊迫が意味する重大な世界の危機【世界戦争党とは？】](https://www.youtube.com/watch?v=rORpa3bZbxw)
-[![](https://img.youtube.com/vi/rORpa3bZbxw/hqdefault.jpg)](https://www.youtube.com/watch?v=rORpa3bZbxw)
+[![](https://img.youtube.com/vi/rORpa3bZbxw/sddefault.jpg)](https://www.youtube.com/watch?v=rORpa3bZbxw)
 -   公開日: 2024-12-05
 -   視聴数: 207,871
 -   **いいね数: 4,482**

@@ -1,5 +1,5 @@
 ### [【西田亮介&高橋弘樹】まったり生配信！維新・音喜多駿&立憲・落合貴之&自由守る会・さんのへあや&自民・川松真一朗 飲み雑談【ReHacQ】](https://www.youtube.com/watch?v=cOmyZ36jEcg)
-[![](https://img.youtube.com/vi/cOmyZ36jEcg/hqdefault.jpg)](https://www.youtube.com/watch?v=cOmyZ36jEcg)
+[![](https://img.youtube.com/vi/cOmyZ36jEcg/sddefault.jpg)](https://www.youtube.com/watch?v=cOmyZ36jEcg)
 -   公開日: 2025-06-22
 -   視聴数: 403,157
 -   **いいね数: 3,639**

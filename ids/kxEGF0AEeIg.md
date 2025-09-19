@@ -1,5 +1,5 @@
 ### [【石丸伸二vs中東②】なぜ？ドバイで暮らす日本人【空からドバイを見てみよう】](https://www.youtube.com/watch?v=kxEGF0AEeIg)
-[![](https://img.youtube.com/vi/kxEGF0AEeIg/hqdefault.jpg)](https://www.youtube.com/watch?v=kxEGF0AEeIg)
+[![](https://img.youtube.com/vi/kxEGF0AEeIg/sddefault.jpg)](https://www.youtube.com/watch?v=kxEGF0AEeIg)
 -   公開日: 2025-03-01
 -   視聴数: 274,500
 -   **いいね数: 9,662**

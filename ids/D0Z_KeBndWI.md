@@ -1,5 +1,5 @@
 ### [【ReHacQキャリア塾】年功序列は悪？32歳で執行役員になるための「出世術」とは？【就活生必見！】](https://www.youtube.com/watch?v=D0Z_KeBndWI)
-[![](https://img.youtube.com/vi/D0Z_KeBndWI/hqdefault.jpg)](https://www.youtube.com/watch?v=D0Z_KeBndWI)
+[![](https://img.youtube.com/vi/D0Z_KeBndWI/sddefault.jpg)](https://www.youtube.com/watch?v=D0Z_KeBndWI)
 -   公開日: 2023-11-21
 -   視聴数: 46,616
 -   **いいね数: 535**

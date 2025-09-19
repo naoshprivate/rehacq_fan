@@ -1,5 +1,5 @@
 ### [【トランプ関税＆株価】激動の米国株日本株…激動マーケットの展望とは？【野沢春日vsReHacQ】](https://www.youtube.com/watch?v=Z1pei6JbgD8)
-[![](https://img.youtube.com/vi/Z1pei6JbgD8/hqdefault.jpg)](https://www.youtube.com/watch?v=Z1pei6JbgD8)
+[![](https://img.youtube.com/vi/Z1pei6JbgD8/sddefault.jpg)](https://www.youtube.com/watch?v=Z1pei6JbgD8)
 -   公開日: 2025-04-15
 -   視聴数: 47,223
 -   **いいね数: 420**

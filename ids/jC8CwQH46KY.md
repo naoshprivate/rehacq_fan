@@ -1,5 +1,5 @@
 ### [【ひろゆきvs須賀川拓】戦争に異変…なぜ街ごと破壊？ニュース報じぬ衝撃事件【ReHacQ高橋弘樹が事故…石丸伸二が緊急参戦】](https://www.youtube.com/watch?v=jC8CwQH46KY)
-[![](https://img.youtube.com/vi/jC8CwQH46KY/hqdefault.jpg)](https://www.youtube.com/watch?v=jC8CwQH46KY)
+[![](https://img.youtube.com/vi/jC8CwQH46KY/sddefault.jpg)](https://www.youtube.com/watch?v=jC8CwQH46KY)
 -   公開日: 2025-08-30
 -   視聴数: 210,029
 -   **いいね数: 5,934**

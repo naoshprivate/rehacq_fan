@@ -1,5 +1,5 @@
 ### [【ひろゆきvsビッグダディ】衝撃の過去！夜逃げ・タコ部屋・用心棒…ビッグダディが明かす壮絶人生【林下清志vsナレソメ勝倉】](https://www.youtube.com/watch?v=N0NY2rGkMZw)
-[![](https://img.youtube.com/vi/N0NY2rGkMZw/hqdefault.jpg)](https://www.youtube.com/watch?v=N0NY2rGkMZw)
+[![](https://img.youtube.com/vi/N0NY2rGkMZw/sddefault.jpg)](https://www.youtube.com/watch?v=N0NY2rGkMZw)
 -   公開日: 2025-07-27
 -   視聴数: 365,756
 -   **いいね数: 4,834**

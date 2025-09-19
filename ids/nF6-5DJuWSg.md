@@ -1,5 +1,5 @@
 ### [【S&P500・日本株】円安時代に備える資産形成術とは【ゴールドマンサックスvs三菱UFJ銀行】](https://www.youtube.com/watch?v=nF6-5DJuWSg)
-[![](https://img.youtube.com/vi/nF6-5DJuWSg/hqdefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)
+[![](https://img.youtube.com/vi/nF6-5DJuWSg/sddefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)
 -   公開日: 2024-05-22
 -   視聴数: 95,526
 -   **いいね数: 1,114**

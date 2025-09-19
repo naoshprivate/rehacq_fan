@@ -1,5 +1,5 @@
 ### [【テスタvs井村俊哉】後藤達也と銀座で買い物！【愛妻へのプレゼント】](https://www.youtube.com/watch?v=u52QZ4gjDvE)
-[![](https://img.youtube.com/vi/u52QZ4gjDvE/hqdefault.jpg)](https://www.youtube.com/watch?v=u52QZ4gjDvE)
+[![](https://img.youtube.com/vi/u52QZ4gjDvE/sddefault.jpg)](https://www.youtube.com/watch?v=u52QZ4gjDvE)
 -   公開日: 2024-01-12
 -   視聴数: 188,944
 -   **いいね数: 3,421**

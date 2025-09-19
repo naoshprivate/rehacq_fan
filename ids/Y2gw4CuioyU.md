@@ -1,5 +1,5 @@
 ### [【自民党「政治と金」】緊急配信！５億円出す業界…なぜ？銀座で衝撃…お会計53万円の夜【西田尚史vs土田しんvs西田亮介vsReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Y2gw4CuioyU)
-[![](https://img.youtube.com/vi/Y2gw4CuioyU/hqdefault.jpg)](https://www.youtube.com/watch?v=Y2gw4CuioyU)
+[![](https://img.youtube.com/vi/Y2gw4CuioyU/sddefault.jpg)](https://www.youtube.com/watch?v=Y2gw4CuioyU)
 -   公開日: 2025-08-28
 -   視聴数: 181,073
 -   **いいね数: 2,473**

@@ -1,5 +1,5 @@
 ### [【ReHacQ生配信】チームみらい幹事長とまったり雑談【チームみらい高山さとしvs西田亮介】](https://www.youtube.com/watch?v=4vBs3DL5S2w)
-[![](https://img.youtube.com/vi/4vBs3DL5S2w/hqdefault.jpg)](https://www.youtube.com/watch?v=4vBs3DL5S2w)
+[![](https://img.youtube.com/vi/4vBs3DL5S2w/sddefault.jpg)](https://www.youtube.com/watch?v=4vBs3DL5S2w)
 -   公開日: 2025-07-26
 -   視聴数: 242,524
 -   **いいね数: 3,403**

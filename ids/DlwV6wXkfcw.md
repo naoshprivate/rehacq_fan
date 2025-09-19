@@ -1,5 +1,5 @@
 ### [【高橋弘樹vsキラキラ企業戦士】起業失敗→三井不動産へ！パナソニック…新規事業でキャリア確変！シンキャリア論【ReHacQ】](https://www.youtube.com/watch?v=DlwV6wXkfcw)
-[![](https://img.youtube.com/vi/DlwV6wXkfcw/hqdefault.jpg)](https://www.youtube.com/watch?v=DlwV6wXkfcw)
+[![](https://img.youtube.com/vi/DlwV6wXkfcw/sddefault.jpg)](https://www.youtube.com/watch?v=DlwV6wXkfcw)
 -   公開日: 2025-08-01
 -   視聴数: 32,092
 -   **いいね数: 218**

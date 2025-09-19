@@ -1,5 +1,5 @@
 ### [【成田修造vs音声配信アプリCEO】 顔出し不要「雑談トーク配信」アプリ【世界７兆円のライブストリーミング市場】](https://www.youtube.com/watch?v=utzmmrVZIEQ)
-[![](https://img.youtube.com/vi/utzmmrVZIEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=utzmmrVZIEQ)
+[![](https://img.youtube.com/vi/utzmmrVZIEQ/sddefault.jpg)](https://www.youtube.com/watch?v=utzmmrVZIEQ)
 -   公開日: 2023-09-25
 -   視聴数: 39,302
 -   **いいね数: 624**

@@ -1,5 +1,5 @@
 ### [【マッカランvs高橋弘樹】大人の趣味！ウィスキーの知られざる世界【野村泰紀vs藤井サチ】](https://www.youtube.com/watch?v=bWH4OVtlyJM)
-[![](https://img.youtube.com/vi/bWH4OVtlyJM/hqdefault.jpg)](https://www.youtube.com/watch?v=bWH4OVtlyJM)
+[![](https://img.youtube.com/vi/bWH4OVtlyJM/sddefault.jpg)](https://www.youtube.com/watch?v=bWH4OVtlyJM)
 -   公開日: 2024-11-22
 -   視聴数: 74,706
 -   **いいね数: 1,250**

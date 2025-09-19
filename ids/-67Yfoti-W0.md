@@ -1,5 +1,5 @@
 ### [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](https://www.youtube.com/watch?v=-67Yfoti-W0)
-[![](https://img.youtube.com/vi/-67Yfoti-W0/hqdefault.jpg)](https://www.youtube.com/watch?v=-67Yfoti-W0)
+[![](https://img.youtube.com/vi/-67Yfoti-W0/sddefault.jpg)](https://www.youtube.com/watch?v=-67Yfoti-W0)
 -   公開日: 2024-08-07
 -   視聴数: 1,133,615
 -   **いいね数: 20,981**

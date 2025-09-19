@@ -1,5 +1,5 @@
 ### [【斉藤幸平vsイスラエル】200人が殺害…なぜ世界はパレスチナに沈黙するのか_パレスチナ問題の真実【ReHacQ】](https://www.youtube.com/watch?v=sDwgzxWvwwg)
-[![](https://img.youtube.com/vi/sDwgzxWvwwg/hqdefault.jpg)](https://www.youtube.com/watch?v=sDwgzxWvwwg)
+[![](https://img.youtube.com/vi/sDwgzxWvwwg/sddefault.jpg)](https://www.youtube.com/watch?v=sDwgzxWvwwg)
 -   公開日: 2025-08-25
 -   視聴数: 39,086
 -   **いいね数: 663**

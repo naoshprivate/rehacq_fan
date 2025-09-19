@@ -1,5 +1,5 @@
 ### [【ひろゆきvs立憲民主党】逆襲！小川淳也と激論【西田亮介】](https://www.youtube.com/watch?v=nAz2NbyEYy4)
-[![](https://img.youtube.com/vi/nAz2NbyEYy4/hqdefault.jpg)](https://www.youtube.com/watch?v=nAz2NbyEYy4)
+[![](https://img.youtube.com/vi/nAz2NbyEYy4/sddefault.jpg)](https://www.youtube.com/watch?v=nAz2NbyEYy4)
 -   公開日: 2023-12-03
 -   視聴数: 333,645
 -   **いいね数: 2,963**

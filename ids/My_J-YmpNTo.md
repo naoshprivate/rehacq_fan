@@ -1,5 +1,5 @@
 ### [【後藤達也vs井村俊哉】カリスマ投資家が初告白…40億集中投資する大注目株は](https://www.youtube.com/watch?v=My_J-YmpNTo)
-[![](https://img.youtube.com/vi/My_J-YmpNTo/hqdefault.jpg)](https://www.youtube.com/watch?v=My_J-YmpNTo)
+[![](https://img.youtube.com/vi/My_J-YmpNTo/sddefault.jpg)](https://www.youtube.com/watch?v=My_J-YmpNTo)
 -   公開日: 2024-06-20
 -   視聴数: 360,563
 -   **いいね数: 3,784**

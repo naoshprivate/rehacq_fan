@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs古代エジプト史】謎多き古代エジプト！庶民が考えていた意外なこととは…？【ReHacQ教養】](https://www.youtube.com/watch?v=JN4qvQM8ERI)
-[![](https://img.youtube.com/vi/JN4qvQM8ERI/hqdefault.jpg)](https://www.youtube.com/watch?v=JN4qvQM8ERI)
+[![](https://img.youtube.com/vi/JN4qvQM8ERI/sddefault.jpg)](https://www.youtube.com/watch?v=JN4qvQM8ERI)
 -   公開日: 2025-06-29
 -   視聴数: 122,843
 -   **いいね数: 1,402**

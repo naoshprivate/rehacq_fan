@@ -1,5 +1,5 @@
 ### [【ReHacQ非緊急生配信】お盆のまったり雑談のはずが…大惨事！ひろゆきvs斎藤幸平…真のリベラルとは何か？西田亮介が途中ウトウト…【高橋弘樹】](https://www.youtube.com/watch?v=EaTKb7Y3HRA)
-[![](https://img.youtube.com/vi/EaTKb7Y3HRA/hqdefault.jpg)](https://www.youtube.com/watch?v=EaTKb7Y3HRA)
+[![](https://img.youtube.com/vi/EaTKb7Y3HRA/sddefault.jpg)](https://www.youtube.com/watch?v=EaTKb7Y3HRA)
 -   公開日: 2025-08-12
 -   視聴数: 453,412
 -   **いいね数: 5,277**

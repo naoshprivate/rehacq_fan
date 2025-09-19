@@ -1,5 +1,5 @@
 ### [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=v6K85s-g9Oc)
-[![](https://img.youtube.com/vi/v6K85s-g9Oc/hqdefault.jpg)](https://www.youtube.com/watch?v=v6K85s-g9Oc)
+[![](https://img.youtube.com/vi/v6K85s-g9Oc/sddefault.jpg)](https://www.youtube.com/watch?v=v6K85s-g9Oc)
 -   公開日: 2025-02-05
 -   視聴数: 1,264,727
 -   **いいね数: 17,603**

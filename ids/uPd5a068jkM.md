@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs辞めキーエンス】明るい北朝鮮！営業最強集団の秘密を赤裸々告白【ReHacQ】](https://www.youtube.com/watch?v=uPd5a068jkM)
-[![](https://img.youtube.com/vi/uPd5a068jkM/hqdefault.jpg)](https://www.youtube.com/watch?v=uPd5a068jkM)
+[![](https://img.youtube.com/vi/uPd5a068jkM/sddefault.jpg)](https://www.youtube.com/watch?v=uPd5a068jkM)
 -   公開日: 2025-04-04
 -   視聴数: 397,102
 -   **いいね数: 3,572**

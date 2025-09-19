@@ -1,5 +1,5 @@
 ### [【ひろゆきvs国民民主党】どう変わる？代表選候補者ぶっちゃけ本音トーク](https://www.youtube.com/watch?v=ljAjC80089I)
-[![](https://img.youtube.com/vi/ljAjC80089I/hqdefault.jpg)](https://www.youtube.com/watch?v=ljAjC80089I)
+[![](https://img.youtube.com/vi/ljAjC80089I/sddefault.jpg)](https://www.youtube.com/watch?v=ljAjC80089I)
 -   公開日: 2023-09-01
 -   視聴数: 348,942
 -   **いいね数: 3,741**

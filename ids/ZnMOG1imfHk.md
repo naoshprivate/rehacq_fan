@@ -1,5 +1,5 @@
 ### [【トランプ再選後の経済】株高続く？読み解くカギは前トランプ政権にあり【安野貴博vs永濱利廣】](https://www.youtube.com/watch?v=ZnMOG1imfHk)
-[![](https://img.youtube.com/vi/ZnMOG1imfHk/hqdefault.jpg)](https://www.youtube.com/watch?v=ZnMOG1imfHk)
+[![](https://img.youtube.com/vi/ZnMOG1imfHk/sddefault.jpg)](https://www.youtube.com/watch?v=ZnMOG1imfHk)
 -   公開日: 2024-11-08
 -   視聴数: 126,743
 -   **いいね数: 1,879**

@@ -1,5 +1,5 @@
 ### [【猪瀬直樹と戦争】「昭和16年夏の敗戦」はなぜ起きた？最新作「戦争シミュレーション」とは？【ReHaccQ】](https://www.youtube.com/watch?v=uUoafyaAiw8)
-[![](https://img.youtube.com/vi/uUoafyaAiw8/hqdefault.jpg)](https://www.youtube.com/watch?v=uUoafyaAiw8)
+[![](https://img.youtube.com/vi/uUoafyaAiw8/sddefault.jpg)](https://www.youtube.com/watch?v=uUoafyaAiw8)
 -   公開日: 2025-08-15
 -   視聴数: 114,335
 -   **いいね数: 1,156**

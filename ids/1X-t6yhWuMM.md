@@ -1,5 +1,5 @@
 ### [【成田修造が衝撃】自分の才能の見つけ方【ReHacQキャリア】](https://www.youtube.com/watch?v=1X-t6yhWuMM)
-[![](https://img.youtube.com/vi/1X-t6yhWuMM/hqdefault.jpg)](https://www.youtube.com/watch?v=1X-t6yhWuMM)
+[![](https://img.youtube.com/vi/1X-t6yhWuMM/sddefault.jpg)](https://www.youtube.com/watch?v=1X-t6yhWuMM)
 -   公開日: 2024-04-29
 -   視聴数: 55,678
 -   **いいね数: 722**

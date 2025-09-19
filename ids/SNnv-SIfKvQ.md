@@ -1,5 +1,5 @@
 ### [【時価総額1000億円CEO】ビジネスパーソン必見！時間最短で成果を最大化の法則とは【木下勝寿】](https://www.youtube.com/watch?v=SNnv-SIfKvQ)
-[![](https://img.youtube.com/vi/SNnv-SIfKvQ/hqdefault.jpg)](https://www.youtube.com/watch?v=SNnv-SIfKvQ)
+[![](https://img.youtube.com/vi/SNnv-SIfKvQ/sddefault.jpg)](https://www.youtube.com/watch?v=SNnv-SIfKvQ)
 -   公開日: 2023-12-20
 -   視聴数: 46,969
 -   **いいね数: 662**

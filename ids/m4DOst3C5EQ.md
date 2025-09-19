@@ -1,5 +1,5 @@
 ### [【ReHacQSP】まるで“月面” 街が完全に破壊されたガザ北部...すべての建物にハマスがいたのか？【須賀川拓vs高橋和夫】](https://www.youtube.com/watch?v=m4DOst3C5EQ)
-[![](https://img.youtube.com/vi/m4DOst3C5EQ/hqdefault.jpg)](https://www.youtube.com/watch?v=m4DOst3C5EQ)
+[![](https://img.youtube.com/vi/m4DOst3C5EQ/sddefault.jpg)](https://www.youtube.com/watch?v=m4DOst3C5EQ)
 -   公開日: 2025-08-04
 -   視聴数: 169,402
 -   **いいね数: 3,722**

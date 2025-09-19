@@ -1,5 +1,5 @@
 ### [【ひろゆきvs松尾芭蕉ゆかりの地】なぜ？山中温泉で滝行のワケ【石丸伸二vs後藤達也】](https://www.youtube.com/watch?v=Cn6wweFG2bo)
-[![](https://img.youtube.com/vi/Cn6wweFG2bo/hqdefault.jpg)](https://www.youtube.com/watch?v=Cn6wweFG2bo)
+[![](https://img.youtube.com/vi/Cn6wweFG2bo/sddefault.jpg)](https://www.youtube.com/watch?v=Cn6wweFG2bo)
 -   公開日: 2025-09-15
 -   視聴数: 151,330
 -   **いいね数: 6,476**

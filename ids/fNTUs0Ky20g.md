@@ -1,5 +1,5 @@
 ### [【ひろゆきvs立憲民主党】「泉さん、じつは…」衝撃！赤裸々トーク【西田亮介、覚醒】](https://www.youtube.com/watch?v=fNTUs0Ky20g)
-[![](https://img.youtube.com/vi/fNTUs0Ky20g/hqdefault.jpg)](https://www.youtube.com/watch?v=fNTUs0Ky20g)
+[![](https://img.youtube.com/vi/fNTUs0Ky20g/sddefault.jpg)](https://www.youtube.com/watch?v=fNTUs0Ky20g)
 -   公開日: 2023-06-20
 -   視聴数: 272,217
 -   **いいね数: 2,794**

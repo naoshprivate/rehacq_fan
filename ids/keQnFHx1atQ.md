@@ -1,5 +1,5 @@
 ### [【橋下徹vs石丸伸二vsひろゆき】酔うまで生テレビ【ReHacQ&ABEMAコラボ】](https://www.youtube.com/watch?v=keQnFHx1atQ)
-[![](https://img.youtube.com/vi/keQnFHx1atQ/hqdefault.jpg)](https://www.youtube.com/watch?v=keQnFHx1atQ)
+[![](https://img.youtube.com/vi/keQnFHx1atQ/sddefault.jpg)](https://www.youtube.com/watch?v=keQnFHx1atQ)
 -   公開日: 2024-10-04
 -   視聴数: 1,362,921
 -   **いいね数: 13,222**

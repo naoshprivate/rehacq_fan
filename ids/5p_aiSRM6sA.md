@@ -1,5 +1,5 @@
 ### [【兵庫県知事選とメディアの構造】熱狂とアンチ生む「嫌われ者」の正体とは？【箕輪厚介vs石戸諭！ReHacQ生配信】](https://www.youtube.com/watch?v=5p_aiSRM6sA)
-[![](https://img.youtube.com/vi/5p_aiSRM6sA/hqdefault.jpg)](https://www.youtube.com/watch?v=5p_aiSRM6sA)
+[![](https://img.youtube.com/vi/5p_aiSRM6sA/sddefault.jpg)](https://www.youtube.com/watch?v=5p_aiSRM6sA)
 -   公開日: 2024-12-16
 -   視聴数: 162,453
 -   **いいね数: 1,968**

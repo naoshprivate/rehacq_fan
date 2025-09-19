@@ -1,5 +1,5 @@
 ### [【ひろゆきvs玉木雄一郎】５兆円！○○国債を！【野党の存在意義は？】](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
-[![](https://img.youtube.com/vi/vJ2MS0ZjLdA/hqdefault.jpg)](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
+[![](https://img.youtube.com/vi/vJ2MS0ZjLdA/sddefault.jpg)](https://www.youtube.com/watch?v=vJ2MS0ZjLdA)
 -   公開日: 2023-05-23
 -   視聴数: 1,122,292
 -   **いいね数: 16,562**

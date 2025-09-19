@@ -1,5 +1,5 @@
 ### [【成田悠輔がメールした男】カリフォルニア大学白熱教室！【まったり経済学】](https://www.youtube.com/watch?v=GAIle0JFsjc)
-[![](https://img.youtube.com/vi/GAIle0JFsjc/hqdefault.jpg)](https://www.youtube.com/watch?v=GAIle0JFsjc)
+[![](https://img.youtube.com/vi/GAIle0JFsjc/sddefault.jpg)](https://www.youtube.com/watch?v=GAIle0JFsjc)
 -   公開日: 2023-08-25
 -   視聴数: 141,495
 -   **いいね数: 1,438**

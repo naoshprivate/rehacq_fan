@@ -1,5 +1,5 @@
 ### [【斎藤祐馬vs高橋弘樹】2年目で倒産する人、しない人【大きな仕事するには？】](https://www.youtube.com/watch?v=io-4-MxNgz0)
-[![](https://img.youtube.com/vi/io-4-MxNgz0/hqdefault.jpg)](https://www.youtube.com/watch?v=io-4-MxNgz0)
+[![](https://img.youtube.com/vi/io-4-MxNgz0/sddefault.jpg)](https://www.youtube.com/watch?v=io-4-MxNgz0)
 -   公開日: 2024-04-02
 -   視聴数: 99,007
 -   **いいね数: 1,220**

@@ -1,5 +1,5 @@
 ### [【松井一郎vs太田房江】緊急対談！ノーカット配信【大阪府知事対決】](https://www.youtube.com/watch?v=xKcfehVUL9U)
-[![](https://img.youtube.com/vi/xKcfehVUL9U/hqdefault.jpg)](https://www.youtube.com/watch?v=xKcfehVUL9U)
+[![](https://img.youtube.com/vi/xKcfehVUL9U/sddefault.jpg)](https://www.youtube.com/watch?v=xKcfehVUL9U)
 -   公開日: 2023-06-16
 -   視聴数: 450,160
 -   **いいね数: 4,743**

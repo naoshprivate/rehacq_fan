@@ -1,5 +1,5 @@
 ### [【石丸市長vs議会】なぜ揉める？政治家の本音暴露【安芸高田市】](https://www.youtube.com/watch?v=f8rJNZFEE2g)
-[![](https://img.youtube.com/vi/f8rJNZFEE2g/hqdefault.jpg)](https://www.youtube.com/watch?v=f8rJNZFEE2g)
+[![](https://img.youtube.com/vi/f8rJNZFEE2g/sddefault.jpg)](https://www.youtube.com/watch?v=f8rJNZFEE2g)
 -   公開日: 2024-01-28
 -   視聴数: 805,918
 -   **いいね数: 11,656**

@@ -1,5 +1,5 @@
 ### [【東出昌大vs石丸伸二②】競争社会どう生きる？脱出と挑戦のキャリア論【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=deQmLFYExKA)
-[![](https://img.youtube.com/vi/deQmLFYExKA/hqdefault.jpg)](https://www.youtube.com/watch?v=deQmLFYExKA)
+[![](https://img.youtube.com/vi/deQmLFYExKA/sddefault.jpg)](https://www.youtube.com/watch?v=deQmLFYExKA)
 -   公開日: 2025-03-15
 -   視聴数: 402,789
 -   **いいね数: 10,533**

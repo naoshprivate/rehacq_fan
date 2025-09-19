@@ -1,5 +1,5 @@
 ### [【ウクライナ侵攻で退社】ロシアが戦争始めて会社辞めたワケ【斎藤工もびっくり】](https://www.youtube.com/watch?v=usUUjrr5-Hs)
-[![](https://img.youtube.com/vi/usUUjrr5-Hs/hqdefault.jpg)](https://www.youtube.com/watch?v=usUUjrr5-Hs)
+[![](https://img.youtube.com/vi/usUUjrr5-Hs/sddefault.jpg)](https://www.youtube.com/watch?v=usUUjrr5-Hs)
 -   公開日: 2024-02-15
 -   視聴数: 59,767
 -   **いいね数: 765**

@@ -1,5 +1,5 @@
 ### [【ひろゆきvs維新】衝撃ラスト！維新は何を目指す？【藤田文武が赤裸々激白】](https://www.youtube.com/watch?v=ngo72iwpyjQ)
-[![](https://img.youtube.com/vi/ngo72iwpyjQ/hqdefault.jpg)](https://www.youtube.com/watch?v=ngo72iwpyjQ)
+[![](https://img.youtube.com/vi/ngo72iwpyjQ/sddefault.jpg)](https://www.youtube.com/watch?v=ngo72iwpyjQ)
 -   公開日: 2023-10-29
 -   視聴数: 494,239
 -   **いいね数: 6,212**

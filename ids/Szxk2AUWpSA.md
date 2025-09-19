@@ -1,5 +1,5 @@
 ### [【成田悠輔vs女性首長】政治家に定年は必要か？【江東区vs北区】](https://www.youtube.com/watch?v=Szxk2AUWpSA)
-[![](https://img.youtube.com/vi/Szxk2AUWpSA/hqdefault.jpg)](https://www.youtube.com/watch?v=Szxk2AUWpSA)
+[![](https://img.youtube.com/vi/Szxk2AUWpSA/sddefault.jpg)](https://www.youtube.com/watch?v=Szxk2AUWpSA)
 -   公開日: 2023-07-29
 -   視聴数: 143,953
 -   **いいね数: 1,743**

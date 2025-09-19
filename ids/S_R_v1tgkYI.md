@@ -1,5 +1,5 @@
 ### [【ひろゆきvs奈良県知事 #3】兵庫県知事選に危機感…「メディアと地方行政」課題とは？【山下真vsReHacQ】](https://www.youtube.com/watch?v=S_R_v1tgkYI)
-[![](https://img.youtube.com/vi/S_R_v1tgkYI/hqdefault.jpg)](https://www.youtube.com/watch?v=S_R_v1tgkYI)
+[![](https://img.youtube.com/vi/S_R_v1tgkYI/sddefault.jpg)](https://www.youtube.com/watch?v=S_R_v1tgkYI)
 -   公開日: 2024-12-24
 -   視聴数: 129,133
 -   **いいね数: 1,973**

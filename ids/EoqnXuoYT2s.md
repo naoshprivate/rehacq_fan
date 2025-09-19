@@ -1,5 +1,5 @@
 ### [【後藤達也vsみずほ銀行エコノミスト】為替リスクに備えよ！【新時代の赤字とは？】](https://www.youtube.com/watch?v=EoqnXuoYT2s)
-[![](https://img.youtube.com/vi/EoqnXuoYT2s/hqdefault.jpg)](https://www.youtube.com/watch?v=EoqnXuoYT2s)
+[![](https://img.youtube.com/vi/EoqnXuoYT2s/sddefault.jpg)](https://www.youtube.com/watch?v=EoqnXuoYT2s)
 -   公開日: 2023-10-12
 -   視聴数: 409,865
 -   **いいね数: 4,707**

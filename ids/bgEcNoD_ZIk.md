@@ -1,5 +1,5 @@
 ### [【ひろゆきvsAI失業の危機】米国は大惨事！なぜ日本はAI利用９%？【ReHacQ】](https://www.youtube.com/watch?v=bgEcNoD_ZIk)
-[![](https://img.youtube.com/vi/bgEcNoD_ZIk/hqdefault.jpg)](https://www.youtube.com/watch?v=bgEcNoD_ZIk)
+[![](https://img.youtube.com/vi/bgEcNoD_ZIk/sddefault.jpg)](https://www.youtube.com/watch?v=bgEcNoD_ZIk)
 -   公開日: 2025-05-21
 -   視聴数: 358,868
 -   **いいね数: 3,974**

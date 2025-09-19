@@ -1,5 +1,5 @@
 ### [【マルクス主義者vs資本家】メディア&科学リテラシー講座【ReHacQ！高校出張授業】](https://www.youtube.com/watch?v=N-QvIzuwk8s)
-[![](https://img.youtube.com/vi/N-QvIzuwk8s/hqdefault.jpg)](https://www.youtube.com/watch?v=N-QvIzuwk8s)
+[![](https://img.youtube.com/vi/N-QvIzuwk8s/sddefault.jpg)](https://www.youtube.com/watch?v=N-QvIzuwk8s)
 -   公開日: 2023-08-04
 -   視聴数: 302,634
 -   **いいね数: 4,197**

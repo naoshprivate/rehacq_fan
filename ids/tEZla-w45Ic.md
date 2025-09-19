@@ -1,5 +1,5 @@
 ### [【木下慶彦の起業塾】AI/ChatGPT/NFT...次のトレンドは◯◯？【起業＆新規事業の進め方】](https://www.youtube.com/watch?v=tEZla-w45Ic)
-[![](https://img.youtube.com/vi/tEZla-w45Ic/hqdefault.jpg)](https://www.youtube.com/watch?v=tEZla-w45Ic)
+[![](https://img.youtube.com/vi/tEZla-w45Ic/sddefault.jpg)](https://www.youtube.com/watch?v=tEZla-w45Ic)
 -   公開日: 2023-07-24
 -   視聴数: 45,966
 -   **いいね数: 542**

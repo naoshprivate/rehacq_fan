@@ -1,5 +1,5 @@
 ### [【安倍晋三の新事実】激怒！絶交3回されたNHK記者…なぜ？【後藤達也vs岩田明子】](https://www.youtube.com/watch?v=jtEu5kCN6_E)
-[![](https://img.youtube.com/vi/jtEu5kCN6_E/hqdefault.jpg)](https://www.youtube.com/watch?v=jtEu5kCN6_E)
+[![](https://img.youtube.com/vi/jtEu5kCN6_E/sddefault.jpg)](https://www.youtube.com/watch?v=jtEu5kCN6_E)
 -   公開日: 2024-11-27
 -   視聴数: 314,659
 -   **いいね数: 4,446**

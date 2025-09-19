@@ -1,5 +1,5 @@
 ### [【ReHacQvsひろゆき】総裁選どうだった？まったりトーク【西田亮介vs宇佐美典也】](https://www.youtube.com/watch?v=82XUzkBuTAo)
-[![](https://img.youtube.com/vi/82XUzkBuTAo/hqdefault.jpg)](https://www.youtube.com/watch?v=82XUzkBuTAo)
+[![](https://img.youtube.com/vi/82XUzkBuTAo/sddefault.jpg)](https://www.youtube.com/watch?v=82XUzkBuTAo)
 -   公開日: 2024-09-27
 -   視聴数: 451,763
 -   **いいね数: 4,850**

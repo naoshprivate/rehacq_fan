@@ -1,5 +1,5 @@
 ### [【トランプ関税】中国に計104%も…今後の中国リスクとは？【ReHacQ経済】](https://www.youtube.com/watch?v=U4ArlC5drBE)
-[![](https://img.youtube.com/vi/U4ArlC5drBE/hqdefault.jpg)](https://www.youtube.com/watch?v=U4ArlC5drBE)
+[![](https://img.youtube.com/vi/U4ArlC5drBE/sddefault.jpg)](https://www.youtube.com/watch?v=U4ArlC5drBE)
 -   公開日: 2025-04-09
 -   視聴数: 287,341
 -   **いいね数: 1,931**

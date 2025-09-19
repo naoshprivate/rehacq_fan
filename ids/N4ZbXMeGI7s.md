@@ -1,5 +1,5 @@
 ### [【上出遼平&井上咲楽】アメリカの実態！安倍晋三からの贈り物…日本政治の功罪とは？【アメリカ大統領選挙】](https://www.youtube.com/watch?v=N4ZbXMeGI7s)
-[![](https://img.youtube.com/vi/N4ZbXMeGI7s/hqdefault.jpg)](https://www.youtube.com/watch?v=N4ZbXMeGI7s)
+[![](https://img.youtube.com/vi/N4ZbXMeGI7s/sddefault.jpg)](https://www.youtube.com/watch?v=N4ZbXMeGI7s)
 -   公開日: 2024-12-27
 -   視聴数: 46,703
 -   **いいね数: 707**

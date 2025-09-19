@@ -1,5 +1,5 @@
 ### [【馬場伸幸が語る斎藤元彦】維新の兵庫県知事選に対する見解の真相…激白【ReHacQSP】](https://www.youtube.com/watch?v=yATdP5KbhYE)
-[![](https://img.youtube.com/vi/yATdP5KbhYE/hqdefault.jpg)](https://www.youtube.com/watch?v=yATdP5KbhYE)
+[![](https://img.youtube.com/vi/yATdP5KbhYE/sddefault.jpg)](https://www.youtube.com/watch?v=yATdP5KbhYE)
 -   公開日: 2024-11-15
 -   視聴数: 396,244
 -   **いいね数: 6,241**

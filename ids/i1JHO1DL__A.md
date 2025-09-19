@@ -1,5 +1,5 @@
 ### [【ひろゆきvs田原総一朗】権力の闇？田原が伝えたい事【川上さん、いつ帰れるのか？】](https://www.youtube.com/watch?v=i1JHO1DL__A)
-[![](https://img.youtube.com/vi/i1JHO1DL__A/hqdefault.jpg)](https://www.youtube.com/watch?v=i1JHO1DL__A)
+[![](https://img.youtube.com/vi/i1JHO1DL__A/sddefault.jpg)](https://www.youtube.com/watch?v=i1JHO1DL__A)
 -   公開日: 2023-04-30
 -   視聴数: 295,157
 -   **いいね数: 4,081**

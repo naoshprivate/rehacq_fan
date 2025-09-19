@@ -1,5 +1,5 @@
 ### [【ひろゆきvsゴーンの部下】暗闇にマッチョ高校生！連れて行かれたのは…【若新雄純】](https://www.youtube.com/watch?v=9BUv8M8SNE8)
-[![](https://img.youtube.com/vi/9BUv8M8SNE8/hqdefault.jpg)](https://www.youtube.com/watch?v=9BUv8M8SNE8)
+[![](https://img.youtube.com/vi/9BUv8M8SNE8/sddefault.jpg)](https://www.youtube.com/watch?v=9BUv8M8SNE8)
 -   公開日: 2023-06-11
 -   視聴数: 223,604
 -   **いいね数: 3,789**

@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs斎藤祐馬】起業3年目で崩壊の危機？生き残りをかけて高橋がついに動きだす](https://www.youtube.com/watch?v=L8aOfMiWyvE)
-[![](https://img.youtube.com/vi/L8aOfMiWyvE/hqdefault.jpg)](https://www.youtube.com/watch?v=L8aOfMiWyvE)
+[![](https://img.youtube.com/vi/L8aOfMiWyvE/sddefault.jpg)](https://www.youtube.com/watch?v=L8aOfMiWyvE)
 -   公開日: 2025-07-28
 -   視聴数: 137,235
 -   **いいね数: 1,714**

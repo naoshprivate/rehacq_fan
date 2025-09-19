@@ -1,5 +1,5 @@
 ### [【ひろゆきvs石丸伸二】深夜のまったり雑談！参院選終え日本は変わる？【後藤達也vs高橋弘樹】](https://www.youtube.com/watch?v=GUbqO00-Cv4)
-[![](https://img.youtube.com/vi/GUbqO00-Cv4/hqdefault.jpg)](https://www.youtube.com/watch?v=GUbqO00-Cv4)
+[![](https://img.youtube.com/vi/GUbqO00-Cv4/sddefault.jpg)](https://www.youtube.com/watch?v=GUbqO00-Cv4)
 -   公開日: 2025-09-07
 -   視聴数: 425,171
 -   **いいね数: 10,941**

@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs出所した元法務大臣】安倍・トランプ外交のキーマンが激白！トランプの狙いと石破政権【河井克行vsReHacQ】](https://www.youtube.com/watch?v=C0VtKwyPX0w)
-[![](https://img.youtube.com/vi/C0VtKwyPX0w/hqdefault.jpg)](https://www.youtube.com/watch?v=C0VtKwyPX0w)
+[![](https://img.youtube.com/vi/C0VtKwyPX0w/sddefault.jpg)](https://www.youtube.com/watch?v=C0VtKwyPX0w)
 -   公開日: 2024-12-15
 -   視聴数: 281,994
 -   **いいね数: 4,115**

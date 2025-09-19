@@ -1,5 +1,5 @@
 ### [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](https://www.youtube.com/watch?v=b-bNBgMhpNM)
-[![](https://img.youtube.com/vi/b-bNBgMhpNM/hqdefault.jpg)](https://www.youtube.com/watch?v=b-bNBgMhpNM)
+[![](https://img.youtube.com/vi/b-bNBgMhpNM/sddefault.jpg)](https://www.youtube.com/watch?v=b-bNBgMhpNM)
 -   公開日: 2024-11-01
 -   視聴数: 1,539,592
 -   **いいね数: 32,479**

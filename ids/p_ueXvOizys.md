@@ -1,5 +1,5 @@
 ### [【ひろゆきvs川上量生】なぜ？離婚が増える原因【生活保護】](https://www.youtube.com/watch?v=p_ueXvOizys)
-[![](https://img.youtube.com/vi/p_ueXvOizys/hqdefault.jpg)](https://www.youtube.com/watch?v=p_ueXvOizys)
+[![](https://img.youtube.com/vi/p_ueXvOizys/sddefault.jpg)](https://www.youtube.com/watch?v=p_ueXvOizys)
 -   公開日: 2024-03-04
 -   視聴数: 159,573
 -   **いいね数: 2,041**

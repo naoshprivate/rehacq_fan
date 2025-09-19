@@ -1,5 +1,5 @@
 ### [【日本人とAI】ドラえもんとAIの未来【まったりFUKABORIN】](https://www.youtube.com/watch?v=Mwqc23T5qgY)
-[![](https://img.youtube.com/vi/Mwqc23T5qgY/hqdefault.jpg)](https://www.youtube.com/watch?v=Mwqc23T5qgY)
+[![](https://img.youtube.com/vi/Mwqc23T5qgY/sddefault.jpg)](https://www.youtube.com/watch?v=Mwqc23T5qgY)
 -   公開日: 2023-09-19
 -   視聴数: 62,960
 -   **いいね数: 1,047**

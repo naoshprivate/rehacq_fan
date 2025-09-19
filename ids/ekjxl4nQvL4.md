@@ -1,5 +1,5 @@
 ### [【ReHacQ生配信】東京都・千代田区長選討論会【高橋弘樹】](https://www.youtube.com/watch?v=ekjxl4nQvL4)
-[![](https://img.youtube.com/vi/ekjxl4nQvL4/hqdefault.jpg)](https://www.youtube.com/watch?v=ekjxl4nQvL4)
+[![](https://img.youtube.com/vi/ekjxl4nQvL4/sddefault.jpg)](https://www.youtube.com/watch?v=ekjxl4nQvL4)
 -   公開日: 2025-01-28
 -   視聴数: 572,228
 -   **いいね数: 7,341**

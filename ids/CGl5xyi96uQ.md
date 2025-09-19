@@ -1,5 +1,5 @@
 ### [【石丸市長vs高橋弘樹】衝撃事実！裏側をぶっちゃけトーク【旅の思い出】](https://www.youtube.com/watch?v=CGl5xyi96uQ)
-[![](https://img.youtube.com/vi/CGl5xyi96uQ/hqdefault.jpg)](https://www.youtube.com/watch?v=CGl5xyi96uQ)
+[![](https://img.youtube.com/vi/CGl5xyi96uQ/sddefault.jpg)](https://www.youtube.com/watch?v=CGl5xyi96uQ)
 -   公開日: 2024-03-03
 -   視聴数: 294,175
 -   **いいね数: 4,921**

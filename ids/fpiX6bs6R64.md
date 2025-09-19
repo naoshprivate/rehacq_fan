@@ -1,5 +1,5 @@
 ### [【イラン大使の怒り】核兵器開発？ウラン保有する矛盾？戦争から1か月...単独取材【須賀川拓】](https://www.youtube.com/watch?v=fpiX6bs6R64)
-[![](https://img.youtube.com/vi/fpiX6bs6R64/hqdefault.jpg)](https://www.youtube.com/watch?v=fpiX6bs6R64)
+[![](https://img.youtube.com/vi/fpiX6bs6R64/sddefault.jpg)](https://www.youtube.com/watch?v=fpiX6bs6R64)
 -   公開日: 2025-07-19
 -   視聴数: 128,293
 -   **いいね数: 3,407**

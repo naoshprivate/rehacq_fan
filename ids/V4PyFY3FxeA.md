@@ -1,5 +1,5 @@
 ### [【後藤達也vs井村俊哉】損失7.5億円で投資スタイル激変？井村ファンド創設の真意は【テスタと…】](https://www.youtube.com/watch?v=V4PyFY3FxeA)
-[![](https://img.youtube.com/vi/V4PyFY3FxeA/hqdefault.jpg)](https://www.youtube.com/watch?v=V4PyFY3FxeA)
+[![](https://img.youtube.com/vi/V4PyFY3FxeA/sddefault.jpg)](https://www.youtube.com/watch?v=V4PyFY3FxeA)
 -   公開日: 2024-06-27
 -   視聴数: 201,286
 -   **いいね数: 2,315**

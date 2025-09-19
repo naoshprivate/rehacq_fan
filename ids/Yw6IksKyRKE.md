@@ -1,5 +1,5 @@
 ### [【石丸伸二vs文藝春秋のエース】元NewsPicsのCEOと激論！地方反撃の狼煙【高橋弘樹&黒岩里奈&坂本大典】](https://www.youtube.com/watch?v=Yw6IksKyRKE)
-[![](https://img.youtube.com/vi/Yw6IksKyRKE/hqdefault.jpg)](https://www.youtube.com/watch?v=Yw6IksKyRKE)
+[![](https://img.youtube.com/vi/Yw6IksKyRKE/sddefault.jpg)](https://www.youtube.com/watch?v=Yw6IksKyRKE)
 -   公開日: 2024-10-04
 -   視聴数: 263,195
 -   **いいね数: 6,687**

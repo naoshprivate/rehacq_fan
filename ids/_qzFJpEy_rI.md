@@ -1,5 +1,5 @@
 ### [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](https://www.youtube.com/watch?v=_qzFJpEy_rI)
-[![](https://img.youtube.com/vi/_qzFJpEy_rI/hqdefault.jpg)](https://www.youtube.com/watch?v=_qzFJpEy_rI)
+[![](https://img.youtube.com/vi/_qzFJpEy_rI/sddefault.jpg)](https://www.youtube.com/watch?v=_qzFJpEy_rI)
 -   公開日: 2025-07-14
 -   視聴数: 764,280
 -   **いいね数: 16,461**

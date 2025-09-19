@@ -1,5 +1,5 @@
 ### [【石丸伸二vs須藤元気】居酒屋でベロベロ！「玉木、がんばれ！！」須藤元気が酔って本音激白【ReHacQ】](https://www.youtube.com/watch?v=8oYI9Gztrxs)
-[![](https://img.youtube.com/vi/8oYI9Gztrxs/hqdefault.jpg)](https://www.youtube.com/watch?v=8oYI9Gztrxs)
+[![](https://img.youtube.com/vi/8oYI9Gztrxs/sddefault.jpg)](https://www.youtube.com/watch?v=8oYI9Gztrxs)
 -   公開日: 2024-12-27
 -   視聴数: 509,577
 -   **いいね数: 11,928**

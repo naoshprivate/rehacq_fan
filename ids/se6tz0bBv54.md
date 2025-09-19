@@ -1,5 +1,5 @@
 ### [【国山ハセンの深層へ】マイノリティー感じた過去…「今」思い描くキャリア【ハセンのB面とは？】](https://www.youtube.com/watch?v=se6tz0bBv54)
-[![](https://img.youtube.com/vi/se6tz0bBv54/hqdefault.jpg)](https://www.youtube.com/watch?v=se6tz0bBv54)
+[![](https://img.youtube.com/vi/se6tz0bBv54/sddefault.jpg)](https://www.youtube.com/watch?v=se6tz0bBv54)
 -   公開日: 2023-04-15
 -   視聴数: 97,181
 -   **いいね数: 1,519**

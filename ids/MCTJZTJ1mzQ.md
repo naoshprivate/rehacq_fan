@@ -1,5 +1,5 @@
 ### [【PIVOT vs ReHacQ】大激論！新時代のメディアへ_PIVOT成功の秘訣とは？【後藤達也vs佐々木紀彦vs高橋弘樹】](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
-[![](https://img.youtube.com/vi/MCTJZTJ1mzQ/hqdefault.jpg)](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
+[![](https://img.youtube.com/vi/MCTJZTJ1mzQ/sddefault.jpg)](https://www.youtube.com/watch?v=MCTJZTJ1mzQ)
 -   公開日: 2025-09-13
 -   視聴数: 258,927
 -   **いいね数: 4,203**

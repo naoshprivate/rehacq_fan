@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs元エリート監査法人】丸の内から岐阜山奥へ！年収３倍に！なぜ？【ReHacQ高橋弘樹vs古里圭史】](https://www.youtube.com/watch?v=9UhSnaoMw_E)
-[![](https://img.youtube.com/vi/9UhSnaoMw_E/hqdefault.jpg)](https://www.youtube.com/watch?v=9UhSnaoMw_E)
+[![](https://img.youtube.com/vi/9UhSnaoMw_E/sddefault.jpg)](https://www.youtube.com/watch?v=9UhSnaoMw_E)
 -   公開日: 2025-03-12
 -   視聴数: 90,777
 -   **いいね数: 1,085**

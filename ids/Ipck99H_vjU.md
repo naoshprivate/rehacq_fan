@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](https://www.youtube.com/watch?v=Ipck99H_vjU)
-[![](https://img.youtube.com/vi/Ipck99H_vjU/hqdefault.jpg)](https://www.youtube.com/watch?v=Ipck99H_vjU)
+[![](https://img.youtube.com/vi/Ipck99H_vjU/sddefault.jpg)](https://www.youtube.com/watch?v=Ipck99H_vjU)
 -   公開日: 2025-01-13
 -   視聴数: 961,485
 -   **いいね数: 13,427**

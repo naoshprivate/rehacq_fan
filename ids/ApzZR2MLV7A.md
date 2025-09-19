@@ -1,5 +1,5 @@
 ### [【石丸伸二vs元リクルート新規事業トップ】ビジネスで地方創生！銀行員が涙...新規事業に必要なマインドとは？【高橋弘樹&黒岩里奈&麻生要一】](https://www.youtube.com/watch?v=ApzZR2MLV7A)
-[![](https://img.youtube.com/vi/ApzZR2MLV7A/hqdefault.jpg)](https://www.youtube.com/watch?v=ApzZR2MLV7A)
+[![](https://img.youtube.com/vi/ApzZR2MLV7A/sddefault.jpg)](https://www.youtube.com/watch?v=ApzZR2MLV7A)
 -   公開日: 2025-01-08
 -   視聴数: 284,490
 -   **いいね数: 5,775**

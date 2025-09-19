@@ -1,5 +1,5 @@
 ### [【石丸伸二vs高橋弘樹】面接官としての極意…就活生の課題解消【AI面接とは？】](https://www.youtube.com/watch?v=6_uAZJ6b8B4)
-[![](https://img.youtube.com/vi/6_uAZJ6b8B4/hqdefault.jpg)](https://www.youtube.com/watch?v=6_uAZJ6b8B4)
+[![](https://img.youtube.com/vi/6_uAZJ6b8B4/sddefault.jpg)](https://www.youtube.com/watch?v=6_uAZJ6b8B4)
 -   公開日: 2024-12-07
 -   視聴数: 180,113
 -   **いいね数: 4,142**

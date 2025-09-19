@@ -1,5 +1,5 @@
 ### [【成田悠輔の目に注目】ずっと成長する「真の学び」とは？【幸福のスザンヌ学】](https://www.youtube.com/watch?v=AyJF8-WlWz0)
-[![](https://img.youtube.com/vi/AyJF8-WlWz0/hqdefault.jpg)](https://www.youtube.com/watch?v=AyJF8-WlWz0)
+[![](https://img.youtube.com/vi/AyJF8-WlWz0/sddefault.jpg)](https://www.youtube.com/watch?v=AyJF8-WlWz0)
 -   公開日: 2023-03-19
 -   視聴数: 232,082
 -   **いいね数: 5,496**

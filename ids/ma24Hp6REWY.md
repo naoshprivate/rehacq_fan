@@ -1,5 +1,5 @@
 ### [【ReHacQ生配信】企業のガバナンスとは？【黒岩里奈vs西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=ma24Hp6REWY)
-[![](https://img.youtube.com/vi/ma24Hp6REWY/hqdefault.jpg)](https://www.youtube.com/watch?v=ma24Hp6REWY)
+[![](https://img.youtube.com/vi/ma24Hp6REWY/sddefault.jpg)](https://www.youtube.com/watch?v=ma24Hp6REWY)
 -   公開日: 2025-02-05
 -   視聴数: 214,393
 -   **いいね数: 3,348**

@@ -1,5 +1,5 @@
 ### [【石丸市長vs清志会の裏側】「あきたかた焼き」巡る…衝撃攻防戦【絶品の馬刺し】](https://www.youtube.com/watch?v=y_40eyauBAk)
-[![](https://img.youtube.com/vi/y_40eyauBAk/hqdefault.jpg)](https://www.youtube.com/watch?v=y_40eyauBAk)
+[![](https://img.youtube.com/vi/y_40eyauBAk/sddefault.jpg)](https://www.youtube.com/watch?v=y_40eyauBAk)
 -   公開日: 2024-02-04
 -   視聴数: 597,734
 -   **いいね数: 9,458**

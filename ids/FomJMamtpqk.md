@@ -1,5 +1,5 @@
 ### [【ドラクエ開発エースvs高橋弘樹】衝撃のラスト！スクエニ辞め年収1億円のオファー...のはずが？まさかのどんでん返し【辞めスクウェア・エニックス市村龍太郎】](https://www.youtube.com/watch?v=FomJMamtpqk)
-[![](https://img.youtube.com/vi/FomJMamtpqk/hqdefault.jpg)](https://www.youtube.com/watch?v=FomJMamtpqk)
+[![](https://img.youtube.com/vi/FomJMamtpqk/sddefault.jpg)](https://www.youtube.com/watch?v=FomJMamtpqk)
 -   公開日: 2025-08-15
 -   視聴数: 269,077
 -   **いいね数: 5,011**

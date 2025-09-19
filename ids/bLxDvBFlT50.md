@@ -1,5 +1,5 @@
 ### [【後藤達也vs三浦瑠麗】炎上はなぜ起きる？SNS時代で明らかになるマスメディアの問題【上川陽子が…】](https://www.youtube.com/watch?v=bLxDvBFlT50)
-[![](https://img.youtube.com/vi/bLxDvBFlT50/hqdefault.jpg)](https://www.youtube.com/watch?v=bLxDvBFlT50)
+[![](https://img.youtube.com/vi/bLxDvBFlT50/sddefault.jpg)](https://www.youtube.com/watch?v=bLxDvBFlT50)
 -   公開日: 2024-05-23
 -   視聴数: 125,538
 -   **いいね数: 1,476**

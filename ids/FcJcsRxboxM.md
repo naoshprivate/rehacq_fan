@@ -1,5 +1,5 @@
 ### [【石丸伸二vs衆院選2024】激論！迷った時の投票の仕方【藤井サチvs安野貴博vs高橋弘樹】](https://www.youtube.com/watch?v=FcJcsRxboxM)
-[![](https://img.youtube.com/vi/FcJcsRxboxM/hqdefault.jpg)](https://www.youtube.com/watch?v=FcJcsRxboxM)
+[![](https://img.youtube.com/vi/FcJcsRxboxM/sddefault.jpg)](https://www.youtube.com/watch?v=FcJcsRxboxM)
 -   公開日: 2024-10-26
 -   視聴数: 566,718
 -   **いいね数: 13,314**

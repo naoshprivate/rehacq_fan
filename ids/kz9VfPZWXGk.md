@@ -1,5 +1,5 @@
 ### [【東出昌大vs高橋弘樹】ウソと真実…東出昌大が魂の告白【世界の果てにひろゆき置いてきた】](https://www.youtube.com/watch?v=kz9VfPZWXGk)
-[![](https://img.youtube.com/vi/kz9VfPZWXGk/hqdefault.jpg)](https://www.youtube.com/watch?v=kz9VfPZWXGk)
+[![](https://img.youtube.com/vi/kz9VfPZWXGk/sddefault.jpg)](https://www.youtube.com/watch?v=kz9VfPZWXGk)
 -   公開日: 2024-02-13
 -   視聴数: 628,454
 -   **いいね数: 7,997**

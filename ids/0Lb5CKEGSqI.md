@@ -1,5 +1,5 @@
 ### [【トランプvsエコノミストJAPAN】世界が注目「大統領令」日本経済への影響は？【須黒清華vs ReHacQエコノミー】](https://www.youtube.com/watch?v=0Lb5CKEGSqI)
-[![](https://img.youtube.com/vi/0Lb5CKEGSqI/hqdefault.jpg)](https://www.youtube.com/watch?v=0Lb5CKEGSqI)
+[![](https://img.youtube.com/vi/0Lb5CKEGSqI/sddefault.jpg)](https://www.youtube.com/watch?v=0Lb5CKEGSqI)
 -   公開日: 2025-01-21
 -   視聴数: 184,637
 -   **いいね数: 2,435**

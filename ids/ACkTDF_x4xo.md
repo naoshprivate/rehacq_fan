@@ -1,5 +1,5 @@
 ### [【ReHacQ２周年！まったり生配信】倒産回避！今後は？…ひろゆき・後藤達也・石丸伸二vs高橋弘樹【意識の低すぎるビジネス系生配信】](https://www.youtube.com/watch?v=ACkTDF_x4xo)
-[![](https://img.youtube.com/vi/ACkTDF_x4xo/hqdefault.jpg)](https://www.youtube.com/watch?v=ACkTDF_x4xo)
+[![](https://img.youtube.com/vi/ACkTDF_x4xo/sddefault.jpg)](https://www.youtube.com/watch?v=ACkTDF_x4xo)
 -   公開日: 2025-03-10
 -   視聴数: 544,321
 -   **いいね数: 13,743**

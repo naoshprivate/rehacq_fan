@@ -1,5 +1,5 @@
 ### [【高橋弘樹vsホテル経営】海一列目の土地の仕入れ方とは？剛腕ホテル経営者に迫る【スザンヌ】](https://www.youtube.com/watch?v=cArxlcmmv54)
-[![](https://img.youtube.com/vi/cArxlcmmv54/hqdefault.jpg)](https://www.youtube.com/watch?v=cArxlcmmv54)
+[![](https://img.youtube.com/vi/cArxlcmmv54/sddefault.jpg)](https://www.youtube.com/watch?v=cArxlcmmv54)
 -   公開日: 2024-12-23
 -   視聴数: 47,357
 -   **いいね数: 483**

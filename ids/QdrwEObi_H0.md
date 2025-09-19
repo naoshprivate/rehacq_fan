@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs元外務省のエース】地方のコンテンツで儲ける！価値を高める方法とは？【ReHacQ】](https://www.youtube.com/watch?v=QdrwEObi_H0)
-[![](https://img.youtube.com/vi/QdrwEObi_H0/hqdefault.jpg)](https://www.youtube.com/watch?v=QdrwEObi_H0)
+[![](https://img.youtube.com/vi/QdrwEObi_H0/sddefault.jpg)](https://www.youtube.com/watch?v=QdrwEObi_H0)
 -   公開日: 2025-05-07
 -   視聴数: 52,087
 -   **いいね数: 639**

@@ -1,5 +1,5 @@
 ### [【福井の高校生vs東大准教授】社会のルールを変えるには？【進路・恋愛】](https://www.youtube.com/watch?v=zqTiv9LqzsM)
-[![](https://img.youtube.com/vi/zqTiv9LqzsM/hqdefault.jpg)](https://www.youtube.com/watch?v=zqTiv9LqzsM)
+[![](https://img.youtube.com/vi/zqTiv9LqzsM/sddefault.jpg)](https://www.youtube.com/watch?v=zqTiv9LqzsM)
 -   公開日: 2023-12-25
 -   視聴数: 43,244
 -   **いいね数: 651**

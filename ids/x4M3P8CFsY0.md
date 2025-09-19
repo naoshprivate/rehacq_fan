@@ -1,5 +1,5 @@
 ### [【成田修造vs黒岩里奈】少子化対策に新提案！生配信反省会【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=x4M3P8CFsY0)
-[![](https://img.youtube.com/vi/x4M3P8CFsY0/hqdefault.jpg)](https://www.youtube.com/watch?v=x4M3P8CFsY0)
+[![](https://img.youtube.com/vi/x4M3P8CFsY0/sddefault.jpg)](https://www.youtube.com/watch?v=x4M3P8CFsY0)
 -   公開日: 2025-03-25
 -   視聴数: 100,818
 -   **いいね数: 1,409**

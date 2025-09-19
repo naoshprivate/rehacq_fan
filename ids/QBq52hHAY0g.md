@@ -1,5 +1,5 @@
 ### [【ひろゆきvs自民党】日本は挑戦者をなぜ粛清？【西田亮介vs片山さつき】](https://www.youtube.com/watch?v=QBq52hHAY0g)
-[![](https://img.youtube.com/vi/QBq52hHAY0g/hqdefault.jpg)](https://www.youtube.com/watch?v=QBq52hHAY0g)
+[![](https://img.youtube.com/vi/QBq52hHAY0g/sddefault.jpg)](https://www.youtube.com/watch?v=QBq52hHAY0g)
 -   公開日: 2023-07-16
 -   視聴数: 806,256
 -   **いいね数: 8,029**

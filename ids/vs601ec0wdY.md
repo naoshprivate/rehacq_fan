@@ -1,5 +1,5 @@
 ### [【後藤達也vs三浦瑠麗】何が原因？メディアの相次ぐ誤報【ReHacQ生配信】](https://www.youtube.com/watch?v=vs601ec0wdY)
-[![](https://img.youtube.com/vi/vs601ec0wdY/hqdefault.jpg)](https://www.youtube.com/watch?v=vs601ec0wdY)
+[![](https://img.youtube.com/vi/vs601ec0wdY/sddefault.jpg)](https://www.youtube.com/watch?v=vs601ec0wdY)
 -   公開日: 2025-09-03
 -   視聴数: 211,782
 -   **いいね数: 2,413**

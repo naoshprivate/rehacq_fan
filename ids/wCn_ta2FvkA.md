@@ -1,5 +1,5 @@
 ### [【高橋弘樹vs社民党】福島瑞穂が激白！日米安保はダメ…と叫ぶわけ【ReHacQでどすこい】](https://www.youtube.com/watch?v=wCn_ta2FvkA)
-[![](https://img.youtube.com/vi/wCn_ta2FvkA/hqdefault.jpg)](https://www.youtube.com/watch?v=wCn_ta2FvkA)
+[![](https://img.youtube.com/vi/wCn_ta2FvkA/sddefault.jpg)](https://www.youtube.com/watch?v=wCn_ta2FvkA)
 -   公開日: 2024-10-22
 -   視聴数: 90,763
 -   **いいね数: 986**

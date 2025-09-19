@@ -1,5 +1,5 @@
 ### [【ひろゆきvsデジタル大臣】激白！外国勢力のSNSによる選挙介入!?サイバーセキュリティ最前線【平将明vs西田亮介】](https://www.youtube.com/watch?v=QMR96_ZTFQc)
-[![](https://img.youtube.com/vi/QMR96_ZTFQc/hqdefault.jpg)](https://www.youtube.com/watch?v=QMR96_ZTFQc)
+[![](https://img.youtube.com/vi/QMR96_ZTFQc/sddefault.jpg)](https://www.youtube.com/watch?v=QMR96_ZTFQc)
 -   公開日: 2025-09-06
 -   視聴数: 235,651
 -   **いいね数: 3,655**

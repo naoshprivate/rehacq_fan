@@ -1,5 +1,5 @@
 ### [【ひろゆき&田原総一朗】必見…ここまで本音の「会社論」は存在するのか？【川上量生】](https://www.youtube.com/watch?v=riRhaBHfrZI)
-[![](https://img.youtube.com/vi/riRhaBHfrZI/hqdefault.jpg)](https://www.youtube.com/watch?v=riRhaBHfrZI)
+[![](https://img.youtube.com/vi/riRhaBHfrZI/sddefault.jpg)](https://www.youtube.com/watch?v=riRhaBHfrZI)
 -   公開日: 2023-04-24
 -   視聴数: 422,496
 -   **いいね数: 5,425**

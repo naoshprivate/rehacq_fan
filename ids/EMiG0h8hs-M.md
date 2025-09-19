@@ -1,5 +1,5 @@
 ### [【ReHacQ生配信】“進学”で考える…人生にとって大学とは？【シン・教育論】](https://www.youtube.com/watch?v=EMiG0h8hs-M)
-[![](https://img.youtube.com/vi/EMiG0h8hs-M/hqdefault.jpg)](https://www.youtube.com/watch?v=EMiG0h8hs-M)
+[![](https://img.youtube.com/vi/EMiG0h8hs-M/sddefault.jpg)](https://www.youtube.com/watch?v=EMiG0h8hs-M)
 -   公開日: 2024-09-18
 -   視聴数: 55,726
 -   **いいね数: 736**

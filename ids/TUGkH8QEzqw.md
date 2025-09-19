@@ -1,5 +1,5 @@
 ### [【ひろゆき緊急配信】トランプ関税でアメリカ終焉...？お金どう守る？【西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=TUGkH8QEzqw)
-[![](https://img.youtube.com/vi/TUGkH8QEzqw/hqdefault.jpg)](https://www.youtube.com/watch?v=TUGkH8QEzqw)
+[![](https://img.youtube.com/vi/TUGkH8QEzqw/sddefault.jpg)](https://www.youtube.com/watch?v=TUGkH8QEzqw)
 -   公開日: 2025-04-08
 -   視聴数: 536,698
 -   **いいね数: 5,192**

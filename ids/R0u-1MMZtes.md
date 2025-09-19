@@ -1,5 +1,5 @@
 ### [【なぜ東電辞めた？】元東電マンと行く…福島原発20km圏内の旅【斎藤幸平vs野村泰紀】](https://www.youtube.com/watch?v=R0u-1MMZtes)
-[![](https://img.youtube.com/vi/R0u-1MMZtes/hqdefault.jpg)](https://www.youtube.com/watch?v=R0u-1MMZtes)
+[![](https://img.youtube.com/vi/R0u-1MMZtes/sddefault.jpg)](https://www.youtube.com/watch?v=R0u-1MMZtes)
 -   公開日: 2023-11-19
 -   視聴数: 110,760
 -   **いいね数: 2,494**

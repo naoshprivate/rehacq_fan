@@ -1,5 +1,5 @@
 ### [【若手起業家vs鬼才人類学者】人類学の逆転思考法！考えを差別化せよ【ReHacQインド支局長】](https://www.youtube.com/watch?v=pEPuR7OV6dc)
-[![](https://img.youtube.com/vi/pEPuR7OV6dc/hqdefault.jpg)](https://www.youtube.com/watch?v=pEPuR7OV6dc)
+[![](https://img.youtube.com/vi/pEPuR7OV6dc/sddefault.jpg)](https://www.youtube.com/watch?v=pEPuR7OV6dc)
 -   公開日: 2025-04-04
 -   視聴数: 27,513
 -   **いいね数: 558**

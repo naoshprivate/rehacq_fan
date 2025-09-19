@@ -1,5 +1,5 @@
 ### [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](https://www.youtube.com/watch?v=kJ2-KHagA8s)
-[![](https://img.youtube.com/vi/kJ2-KHagA8s/hqdefault.jpg)](https://www.youtube.com/watch?v=kJ2-KHagA8s)
+[![](https://img.youtube.com/vi/kJ2-KHagA8s/sddefault.jpg)](https://www.youtube.com/watch?v=kJ2-KHagA8s)
 -   公開日: 2024-12-31
 -   視聴数: 918,122
 -   **いいね数: 15,215**

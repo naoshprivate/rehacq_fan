@@ -1,5 +1,5 @@
 ### [【ReHacQvsゲーム史】日本ゲーム界の危機!?任天堂のゲーム革命【プレステvsSwitch】](https://www.youtube.com/watch?v=iRIeWYQyeOo)
-[![](https://img.youtube.com/vi/iRIeWYQyeOo/hqdefault.jpg)](https://www.youtube.com/watch?v=iRIeWYQyeOo)
+[![](https://img.youtube.com/vi/iRIeWYQyeOo/sddefault.jpg)](https://www.youtube.com/watch?v=iRIeWYQyeOo)
 -   公開日: 2025-01-28
 -   視聴数: 100,389
 -   **いいね数: 1,378**

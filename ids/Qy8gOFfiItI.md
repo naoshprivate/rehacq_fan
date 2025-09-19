@@ -1,5 +1,5 @@
 ### [【ReHacQ×ABEMA】お酒を片手に橋下徹と酔っ払いクセ者たちが国会をブッタ斬る！【酔うまで生テレビ】](https://www.youtube.com/watch?v=Qy8gOFfiItI)
-[![](https://img.youtube.com/vi/Qy8gOFfiItI/hqdefault.jpg)](https://www.youtube.com/watch?v=Qy8gOFfiItI)
+[![](https://img.youtube.com/vi/Qy8gOFfiItI/sddefault.jpg)](https://www.youtube.com/watch?v=Qy8gOFfiItI)
 -   公開日: 2024-10-04
 -   視聴数: 363,416
 -   **いいね数: 5,022**

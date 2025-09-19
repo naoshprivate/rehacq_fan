@@ -1,5 +1,5 @@
 ### [【茂木敏充…兵庫県知事選を語る】SNS規制どうする？総裁選の裏話…茂木敏充の本気【ReHacQ】](https://www.youtube.com/watch?v=QCiCNEJOShg)
-[![](https://img.youtube.com/vi/QCiCNEJOShg/hqdefault.jpg)](https://www.youtube.com/watch?v=QCiCNEJOShg)
+[![](https://img.youtube.com/vi/QCiCNEJOShg/sddefault.jpg)](https://www.youtube.com/watch?v=QCiCNEJOShg)
 -   公開日: 2024-12-08
 -   視聴数: 203,856
 -   **いいね数: 2,926**

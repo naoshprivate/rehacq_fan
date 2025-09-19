@@ -1,5 +1,5 @@
 ### [【経済界が注視】FRB パウエル議長講演で利下げの可能性は語られるか？@ジャクソンホール【鈴⽊敏之＆永濱利廣】](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)
-[![](https://img.youtube.com/vi/qAJcS4ZR_Lg/hqdefault.jpg)](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)
+[![](https://img.youtube.com/vi/qAJcS4ZR_Lg/sddefault.jpg)](https://www.youtube.com/watch?v=qAJcS4ZR_Lg)
 -   公開日: 2025-08-22
 -   視聴数: 61,901
 -   **いいね数: 546**

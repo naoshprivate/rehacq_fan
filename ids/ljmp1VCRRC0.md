@@ -1,5 +1,5 @@
 ### [【ひろゆきvs河野太郎】激論！自民党は税・年金の改革できる？マイナ保険証への想い【西田亮介vsReHacQ】](https://www.youtube.com/watch?v=ljmp1VCRRC0)
-[![](https://img.youtube.com/vi/ljmp1VCRRC0/hqdefault.jpg)](https://www.youtube.com/watch?v=ljmp1VCRRC0)
+[![](https://img.youtube.com/vi/ljmp1VCRRC0/sddefault.jpg)](https://www.youtube.com/watch?v=ljmp1VCRRC0)
 -   公開日: 2025-05-04
 -   視聴数: 713,661
 -   **いいね数: 7,620**

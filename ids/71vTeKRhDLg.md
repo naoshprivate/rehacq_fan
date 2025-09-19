@@ -1,5 +1,5 @@
 ### [【成田悠輔の推薦】働くママの苦悩！アメリカ天才学者の苦悩【公衆衛生学者】](https://www.youtube.com/watch?v=71vTeKRhDLg)
-[![](https://img.youtube.com/vi/71vTeKRhDLg/hqdefault.jpg)](https://www.youtube.com/watch?v=71vTeKRhDLg)
+[![](https://img.youtube.com/vi/71vTeKRhDLg/sddefault.jpg)](https://www.youtube.com/watch?v=71vTeKRhDLg)
 -   公開日: 2023-09-06
 -   視聴数: 72,148
 -   **いいね数: 1,453**
