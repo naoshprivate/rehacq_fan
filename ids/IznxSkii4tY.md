@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs正直不動産】不動産の闇、全部言う！絶対損する罠とは【夏原武】](https://www.youtube.com/watch?v=IznxSkii4tY)
 [![](https://img.youtube.com/vi/IznxSkii4tY/sddefault.jpg)](https://www.youtube.com/watch?v=IznxSkii4tY)
 -   公開日: 2025-09-20
--   視聴数: 43,879
--   **いいね数: 933**
+-   視聴数: 54,192
+-   **いいね数: 1,054**
 -   出演者: 
