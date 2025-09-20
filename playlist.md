@@ -1,8 +1,8 @@
 # プレイリスト (305): ReHacQ SP /  ReHacQTV
 1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 26,018
-    -   **いいね数: 919**
+    -   視聴数: 27,088
+    -   **いいね数: 943**
     -   出演者: 高市早苗
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](/rehacq_fan/ids/2DZQwsjuZJE "wikilink")
     -   公開日: 2025-09-17
@@ -301,7 +301,7 @@
     -   出演者: 石田しんご, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日銀VS金利】金融政策決定会合を読み解く方法は...レトリック！？日銀担当20年のベテラン記者が徹底解説【木原麗花】](/rehacq_fan/ids/8_r8DybONro "wikilink")
     -   公開日: 2025-06-21
-    -   視聴数: 24,823
+    -   視聴数: 24,836
     -   **いいね数: 308**
     -   出演者: 木原麗花, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【ReHacQ討論会】板橋区ネット討論会【藤井サチ】](/rehacq_fan/ids/DmiKtOIqqQU "wikilink")
@@ -316,13 +316,13 @@
     -   出演者: 
 1.  [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](/rehacq_fan/ids/zU6zLhzkdVI "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 376,976
-    -   **いいね数: 17,354**
+    -   視聴数: 377,114
+    -   **いいね数: 17,353**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【高橋弘樹vs参政党】東京都議選2025！代表者インタビュー【神谷宗幣】](/rehacq_fan/ids/u1vR6NcU6ys "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 481,898
-    -   **いいね数: 14,665**
+    -   視聴数: 481,933
+    -   **いいね数: 14,663**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs自由民主党】東京都議選2025！代表者インタビュー【井上信治】](/rehacq_fan/ids/_a4Y_Y3bGHE "wikilink")
     -   公開日: 2025-06-20
@@ -5137,113 +5137,113 @@
 # プレイリスト (29): mudai
 1.  [【成田悠輔が絶句…】長渕剛なぜ歌う？衝撃のラスト【乾杯&クリスマス】](/rehacq_fan/ids/kS6TGRb9udg "wikilink")
     -   公開日: 2024-02-10
-    -   視聴数: 313,606
-    -   **いいね数: 6,426**
+    -   視聴数: 313,708
+    -   **いいね数: 6,425**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs長渕剛➁】敵はマスコミ…常に死を意識した訳【壮絶過去を告白】](/rehacq_fan/ids/GsqiHF6qiT4 "wikilink")
     -   公開日: 2024-02-03
-    -   視聴数: 396,139
-    -   **いいね数: 6,037**
+    -   視聴数: 396,210
+    -   **いいね数: 6,036**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,096,280
-    -   **いいね数: 14,419**
+    -   視聴数: 1,096,452
+    -   **いいね数: 14,420**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【成田悠輔vs新規事業】オープンイノベーションで日本を変えるには【日本の勝ち筋】](/rehacq_fan/ids/nxh_IbdxQjU "wikilink")
     -   公開日: 2024-01-13
-    -   視聴数: 56,982
+    -   視聴数: 56,992
     -   **いいね数: 721**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vsビジネス革命家】奇跡の起業！自ら事業買収のワケ【中村亜由子】](/rehacq_fan/ids/DiIkg6X3mX0 "wikilink")
     -   公開日: 2024-01-06
-    -   視聴数: 95,497
+    -   視聴数: 95,498
     -   **いいね数: 935**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs長渕剛】僕だけのメリークリスマス【mudai】](/rehacq_fan/ids/-INiV_lp6Gs "wikilink")
     -   公開日: 2023-12-25
-    -   視聴数: 134,240
+    -   視聴数: 134,246
     -   **いいね数: 2,489**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vsビルゲイツが認めた日本人】日本で感じる生きづらさのワケ【ふるさと納税の未来】](/rehacq_fan/ids/nYyvlo80DSM "wikilink")
     -   公開日: 2023-12-23
-    -   視聴数: 151,640
-    -   **いいね数: 1,475**
+    -   視聴数: 151,654
+    -   **いいね数: 1,474**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 柏倉美保子
 1.  [【成田悠輔vsビルゲイツメリンダ財団】年間1兆円の使い道とは？【知られざる世界】](/rehacq_fan/ids/c4I01jQKGXI "wikilink")
     -   公開日: 2023-12-16
-    -   視聴数: 156,688
-    -   **いいね数: 1,750**
+    -   視聴数: 156,716
+    -   **いいね数: 1,752**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 柏倉美保子
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
     -   公開日: 2023-10-07
-    -   視聴数: 901,424
-    -   **いいね数: 10,012**
+    -   視聴数: 902,171
+    -   **いいね数: 10,015**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 979,370
-    -   **いいね数: 10,173**
+    -   視聴数: 980,779
+    -   **いいね数: 10,188**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【成田悠輔と絵を買う。】三越で革命家の絵、見てみる【どれを買う？】](/rehacq_fan/ids/8IA9B5MK13w "wikilink")
     -   公開日: 2023-09-23
-    -   視聴数: 83,536
+    -   視聴数: 83,556
     -   **いいね数: 1,176**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
 1.  [【成田悠輔と資本主義】日本橋三越…アフリカ救う画展とは？【スラムアート】](/rehacq_fan/ids/pQ1-GYlJOGE "wikilink")
     -   公開日: 2023-09-16
-    -   視聴数: 106,753
+    -   視聴数: 106,769
     -   **いいね数: 2,228**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
 1.  [【成田悠輔vsアフリカ革命家】金持ちから「アートで」金を巻き上げろ！【新進気鋭の39歳・画家】](/rehacq_fan/ids/cnNZFww6XQg "wikilink")
     -   公開日: 2023-09-09
-    -   視聴数: 243,153
-    -   **いいね数: 4,438**
+    -   視聴数: 243,182
+    -   **いいね数: 4,440**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [長坂真護](/rehacq_fan/people/長坂真護 "wikilink")
 1.  [【成田悠輔vs菅義偉】滅びる自治体とは？地方創生のかぎ【mudai】](/rehacq_fan/ids/mJ08a0kUOZ4 "wikilink")
     -   公開日: 2023-09-02
-    -   視聴数: 262,092
+    -   視聴数: 262,125
     -   **いいね数: 3,714**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 菅義偉
 1.  [【成田悠輔vs女性政治家】なぜ？政治家になった？【江東区長vs北区長】](/rehacq_fan/ids/1QfKqjkGWKc "wikilink")
     -   公開日: 2023-08-06
-    -   視聴数: 94,653
+    -   視聴数: 94,663
     -   **いいね数: 1,160**
     -   出演者: [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 木村弥生
 1.  [【成田悠輔vs女性首長】政治家に定年は必要か？【江東区vs北区】](/rehacq_fan/ids/Szxk2AUWpSA "wikilink")
     -   公開日: 2023-07-29
-    -   視聴数: 143,953
+    -   視聴数: 143,963
     -   **いいね数: 1,743**
     -   出演者: [やまだ加奈子](/rehacq_fan/people/やまだ加奈子 "wikilink"), [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 木村弥生
 1.  [【成田悠輔vs東大教授】「既得権益」の抵抗とは？衝撃の「正体」【ウェルビーイングな世界とは？】](/rehacq_fan/ids/n8lGgpxa4Gg "wikilink")
     -   公開日: 2023-07-22
-    -   視聴数: 522,483
+    -   視聴数: 522,748
     -   **いいね数: 7,026**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 星加良司
 1.  [【成田悠輔vs伝説の東大教授】必見！社会人のための真の教養講座【合理性とは何か】](/rehacq_fan/ids/FkgD4qSDd1Q "wikilink")
     -   公開日: 2023-07-15
-    -   視聴数: 822,863
+    -   視聴数: 823,280
     -   **いいね数: 10,201**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 星加良司
 1.  [【成田悠輔vs吉本興業 前会長】なぜ吉本辞めた？幼少期の思い【激白】](/rehacq_fan/ids/gzdcRCm7la4 "wikilink")
     -   公開日: 2023-07-11
-    -   視聴数: 161,896
+    -   視聴数: 161,909
     -   **いいね数: 1,907**
     -   出演者: 大﨑洋, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs大﨑洋】社会課題のエンタメ化とは？【大阪万博、成功の鍵を探る】](/rehacq_fan/ids/YL17SfXfZ5Y "wikilink")
     -   公開日: 2023-07-01
-    -   視聴数: 344,334
+    -   視聴数: 344,353
     -   **いいね数: 3,906**
     -   出演者: 大﨑洋, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vsインドの高僧】なんで禁欲するんですか？【我々はなぜ生きるのか】](/rehacq_fan/ids/cksih10RF3Y "wikilink")
     -   公開日: 2023-06-17
-    -   視聴数: 344,998
-    -   **いいね数: 4,390**
+    -   視聴数: 345,270
+    -   **いいね数: 4,392**
     -   出演者: 佐々井秀嶺, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs佐々井秀嶺】インドの高僧…衝撃告白！何のために生きるのか？【小野龍光の師匠】 #ReHacQ](/rehacq_fan/ids/TauL_MZtAHw "wikilink")
     -   公開日: 2023-06-10
-    -   視聴数: 380,873
-    -   **いいね数: 5,253**
+    -   視聴数: 381,183
+    -   **いいね数: 5,255**
     -   出演者: 佐々井秀嶺, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【成田悠輔vs泉房穂】市政で国の政治動かす！今、政治家に必要なものは？【mudai】](/rehacq_fan/ids/mQSzJZUVAio "wikilink")
     -   公開日: 2023-05-13
@@ -5537,37 +5537,37 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs英会話スクール】ズタズタ英語を克服できるのか？【ビジネス英語の攻略法とは】](/rehacq_fan/ids/bAhFgnlCNKk "wikilink")
     -   公開日: 2024-01-16
-    -   視聴数: 37,618
+    -   視聴数: 37,627
     -   **いいね数: 593**
     -   出演者: [伊藤日加](/rehacq_fan/people/伊藤日加 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハーバード大学vsイェール大学】女性のキャリア排除と子育ての苦悩とは【内田舞vs塩田佳代子】](/rehacq_fan/ids/h7RxDMEWBKk "wikilink")
     -   公開日: 2024-01-05
-    -   視聴数: 70,074
+    -   視聴数: 70,096
     -   **いいね数: 1,373**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink")
 1.  [【ReHacQビジネス英語】英語上達の3箇条【TOEIC惨敗！高橋弘樹】](/rehacq_fan/ids/TAdkp0uIpyA "wikilink")
     -   公開日: 2024-01-04
-    -   視聴数: 53,229
+    -   視聴数: 53,239
     -   **いいね数: 924**
     -   出演者: [伊藤日加](/rehacq_fan/people/伊藤日加 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハーバード大学の精神科医】日米キャリア形成の違いとは？【内田舞vs塩田佳代子】](/rehacq_fan/ids/L3o3-eRRq5Q "wikilink")
     -   公開日: 2023-12-27
-    -   視聴数: 52,223
+    -   視聴数: 52,240
     -   **いいね数: 978**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink")
 1.  [【成田悠輔の推薦】働くママの苦悩！アメリカ天才学者の苦悩【公衆衛生学者】](/rehacq_fan/ids/71vTeKRhDLg "wikilink")
     -   公開日: 2023-09-06
-    -   視聴数: 72,148
+    -   視聴数: 72,150
     -   **いいね数: 1,453**
     -   出演者: [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【吉本興業退社…なぜ？】筋肉だけじゃダメ…米国留学で学んだ成功極意【なかやまきんに君】](/rehacq_fan/ids/STROqkOzMIw "wikilink")
     -   公開日: 2023-07-26
-    -   視聴数: 271,695
+    -   視聴数: 271,710
     -   **いいね数: 5,731**
     -   出演者: なかやまきんに君
 1.  [【成田悠輔の弟】シン・逆張りの思考術【成田修造】](/rehacq_fan/ids/4hTzweSBQdM "wikilink")
     -   公開日: 2023-07-20
-    -   視聴数: 240,389
+    -   視聴数: 240,417
     -   **いいね数: 2,937**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
@@ -6086,12 +6086,12 @@
 # プレイリスト (2): なんで立候補したんですか？〜千葉市長選挙2025〜
 1.  [【ReHacQ】千葉市長・神谷俊一…市政への思い激白【なんで立候補したんですか？】](/rehacq_fan/ids/dj7iJefQ4OI "wikilink")
     -   公開日: 2025-03-12
-    -   視聴数: 50,146
+    -   視聴数: 50,148
     -   **いいね数: 988**
     -   出演者: 神谷俊一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ】千葉市長選 新人候補…政治と宗教【なんで立候補したんですか？】](/rehacq_fan/ids/-Nk5twnxbWo "wikilink")
     -   公開日: 2025-03-12
-    -   視聴数: 45,612
+    -   視聴数: 45,611
     -   **いいね数: 595**
     -   出演者: 杉田勇人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
