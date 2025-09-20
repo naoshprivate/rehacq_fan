@@ -1,31 +1,31 @@
 1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 22,137
-    -   **いいね数: 803**
+    -   視聴数: 23,068
+    -   **いいね数: 830**
     -   出演者: 高市早苗
     - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
+1.  [【高橋弘樹vs天才読書家】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【三宅香帆vs芥川龍之介vs坂口安吾】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
+    -   公開日: 2025-09-20
+    -   視聴数: 3,628
+    -   **いいね数: 136**
+    -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
 1.  [【PIVOT vs ReHacQ②】PIVOTが上場目指すワケ…どうなるメディアの未来【後藤達也vs佐々木紀彦vs高橋弘樹】](/rehacq_fan/ids/68ubJe2wyRM "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 6,887
-    -   **いいね数: 341**
-    -   出演者: 
+    -   視聴数: 12,245
+    -   **いいね数: 610**
+    -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/68ubJe2wyRM/hqdefault.jpg)](https://www.youtube.com/watch?v=68ubJe2wyRM)
 1.  [【高橋弘樹vs正直不動産】不動産の闇、全部言う！絶対損する罠とは【夏原武】](/rehacq_fan/ids/IznxSkii4tY "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 54,192
-    -   **いいね数: 1,054**
-    -   出演者: 
+    -   視聴数: 63,294
+    -   **いいね数: 1,147**
+    -   出演者: 夏原武, 弥田有三, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/IznxSkii4tY/hqdefault.jpg)](https://www.youtube.com/watch?v=IznxSkii4tY)
 1.  [【生配信】自民党総裁選・小泉進次郎出馬会見 9月20日（土）【ReHacQ】](/rehacq_fan/ids/f0BDJpL8NNU "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 46,712
-    -   **いいね数: 407**
+    -   視聴数: 47,765
+    -   **いいね数: 414**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink")
     - [![](https://img.youtube.com/vi/f0BDJpL8NNU/hqdefault.jpg)](https://www.youtube.com/watch?v=f0BDJpL8NNU)
-1.  [【スーツvs北海道の絶景】山奥で発見！秘境の激熱露天とは…ReHacQ旅北海道④【羽田圭介】](/rehacq_fan/ids/NBzmoxG8ytY "wikilink")
-    -   公開日: 2025-09-19
-    -   視聴数: 19,128
-    -   **いいね数: 425**
-    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
-    - [![](https://img.youtube.com/vi/NBzmoxG8ytY/hqdefault.jpg)](https://www.youtube.com/watch?v=NBzmoxG8ytY)
 

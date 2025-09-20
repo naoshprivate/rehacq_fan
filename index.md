@@ -1,41 +1,41 @@
 # 最近の動画
 1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 22,137
-    -   **いいね数: 803**
+    -   視聴数: 23,068
+    -   **いいね数: 830**
     -   出演者: 高市早苗
     - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
+1.  [【高橋弘樹vs天才読書家】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【三宅香帆vs芥川龍之介vs坂口安吾】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
+    -   公開日: 2025-09-20
+    -   視聴数: 3,628
+    -   **いいね数: 136**
+    -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
 1.  [【PIVOT vs ReHacQ②】PIVOTが上場目指すワケ…どうなるメディアの未来【後藤達也vs佐々木紀彦vs高橋弘樹】](/rehacq_fan/ids/68ubJe2wyRM "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 6,887
-    -   **いいね数: 341**
-    -   出演者: 
+    -   視聴数: 12,245
+    -   **いいね数: 610**
+    -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/68ubJe2wyRM/hqdefault.jpg)](https://www.youtube.com/watch?v=68ubJe2wyRM)
 1.  [【高橋弘樹vs正直不動産】不動産の闇、全部言う！絶対損する罠とは【夏原武】](/rehacq_fan/ids/IznxSkii4tY "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 54,192
-    -   **いいね数: 1,054**
-    -   出演者: 
+    -   視聴数: 63,294
+    -   **いいね数: 1,147**
+    -   出演者: 夏原武, 弥田有三, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/IznxSkii4tY/hqdefault.jpg)](https://www.youtube.com/watch?v=IznxSkii4tY)
 1.  [【生配信】自民党総裁選・小泉進次郎出馬会見 9月20日（土）【ReHacQ】](/rehacq_fan/ids/f0BDJpL8NNU "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 46,712
-    -   **いいね数: 407**
+    -   視聴数: 47,765
+    -   **いいね数: 414**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink")
     - [![](https://img.youtube.com/vi/f0BDJpL8NNU/hqdefault.jpg)](https://www.youtube.com/watch?v=f0BDJpL8NNU)
-1.  [【スーツvs北海道の絶景】山奥で発見！秘境の激熱露天とは…ReHacQ旅北海道④【羽田圭介】](/rehacq_fan/ids/NBzmoxG8ytY "wikilink")
-    -   公開日: 2025-09-19
-    -   視聴数: 19,128
-    -   **いいね数: 425**
-    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
-    - [![](https://img.youtube.com/vi/NBzmoxG8ytY/hqdefault.jpg)](https://www.youtube.com/watch?v=NBzmoxG8ytY)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
-    -   視聴数: 3,530,753
-    -   **いいね数: 53,899**
+    -   視聴数: 3,540,004
+    -   **いいね数: 53,961**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
@@ -72,8 +72,8 @@
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
-    -   視聴数: 3,530,753
-    -   **いいね数: 53,899**
+    -   視聴数: 3,540,004
+    -   **いいね数: 53,961**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/6Vww3vD7jHg "wikilink")
     -   公開日: 2024-11-19
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 57, 視聴数: 6,398,740, いいね数: 129,194
+-   動画数: 58, 視聴数: 6,420,921, いいね数: 129,764
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,237,808, いいね数: 246,056
+-   動画数: 64, 視聴数: 13,238,120, いいね数: 246,061
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 19,995,390, いいね数: 354,832
+-   動画数: 76, 視聴数: 19,995,724, いいね数: 354,839
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -110,43 +110,43 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,365,087, いいね数: 341,683
+-   動画数: 58, 視聴数: 21,366,451, いいね数: 341,693
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,881,378, いいね数: 248,242
+-   動画数: 61, 視聴数: 13,882,297, いいね数: 248,248
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 15,987,919, いいね数: 296,989
+-   動画数: 47, 視聴数: 15,990,698, いいね数: 296,992
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,163,052, いいね数: 288,989
+-   動画数: 48, 視聴数: 17,164,635, いいね数: 288,991
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,205,703, いいね数: 307,876
+-   動画数: 60, 視聴数: 18,206,022, いいね数: 307,877
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,490,280, いいね数: 374,154
+-   動画数: 37, 視聴数: 21,507,245, いいね数: 374,255
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,080,552, いいね数: 339,582
+-   動画数: 72, 視聴数: 22,089,823, いいね数: 339,616
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,337,950, いいね数: 218,782
+-   動画数: 50, 視聴数: 14,338,268, いいね数: 218,783
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,281,053, いいね数: 318,685
+-   動画数: 43, 視聴数: 19,293,840, いいね数: 318,820
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,557,948, いいね数: 290,278
+-   動画数: 44, 視聴数: 15,557,964, いいね数: 290,278
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,810,049, いいね数: 141,046
 
 ---
-2025-09-20 21:00
+2025-09-20 22:00

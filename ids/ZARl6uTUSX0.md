@@ -3,4 +3,4 @@
 -   公開日: 2025-04-05
 -   視聴数: 263,841
 -   **いいね数: 4,006**
--   出演者: 三宅香帆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
