@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
-    -   公開日: 2025-09-21
-    -   視聴数: 42,992
-    -   **いいね数: 1,385**
-    -   出演者: 高市早苗
-    - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
 1.  [【ひろゆきvs YouTuber議員】自治体の闇暴露…なぜ？YouTuberから議員へ！【ReHacQvs青ヶ島vs西東京vs平塚】](/rehacq_fan/ids/tcT9_UdxNQs "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 8,417
-    -   **いいね数: 246**
-    -   出演者: 
+    -   視聴数: 19,745
+    -   **いいね数: 350**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/tcT9_UdxNQs/hqdefault.jpg)](https://www.youtube.com/watch?v=tcT9_UdxNQs)
 1.  [【高橋弘樹vs日本国憲法】日本の戦後体制に物申す！憲法は改正すべき!?【ReHacQvs西田昌司】](/rehacq_fan/ids/7T_p6_ZghtY "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 17,386
-    -   **いいね数: 444**
+    -   視聴数: 22,545
+    -   **いいね数: 500**
     -   出演者: 西田昌司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7T_p6_ZghtY/hqdefault.jpg)](https://www.youtube.com/watch?v=7T_p6_ZghtY)
 1.  [【高橋弘樹vs天才読書家】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【三宅香帆inReHacQ】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 70,949
-    -   **いいね数: 1,281**
+    -   視聴数: 74,679
+    -   **いいね数: 1,327**
     -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
 1.  [【PIVOT vs ReHacQ②】PIVOTが上場目指すワケ…どうなるメディアの未来【後藤達也vs佐々木紀彦vs高橋弘樹】](/rehacq_fan/ids/68ubJe2wyRM "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 124,941
-    -   **いいね数: 2,331**
+    -   視聴数: 129,913
+    -   **いいね数: 2,383**
     -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/68ubJe2wyRM/hqdefault.jpg)](https://www.youtube.com/watch?v=68ubJe2wyRM)
+1.  [【高橋弘樹vs正直不動産】不動産の闇、全部言う！絶対損する罠とは【夏原武】](/rehacq_fan/ids/IznxSkii4tY "wikilink")
+    -   公開日: 2025-09-20
+    -   視聴数: 154,490
+    -   **いいね数: 2,082**
+    -   出演者: 夏原武, 弥田有三, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/IznxSkii4tY/hqdefault.jpg)](https://www.youtube.com/watch?v=IznxSkii4tY)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 60, 視聴数: 6,822,626, いいね数: 136,076
+-   動画数: 60, 視聴数: 6,855,040, いいね数: 136,404
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,249,828, いいね数: 246,187
+-   動画数: 64, 視聴数: 13,251,743, いいね数: 246,214
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,011,353, いいね数: 354,964
+-   動画数: 76, 視聴数: 20,014,710, いいね数: 355,041
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,700,959, いいね数: 192,840
+-   動画数: 63, 視聴数: 14,706,460, いいね数: 192,889
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -162,19 +162,19 @@
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,024,169, いいね数: 109,237
+-   動画数: 44, 視聴数: 9,024,182, いいね数: 109,237
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,970,142, いいね数: 185,878
+-   動画数: 34, 視聴数: 14,970,259, いいね数: 185,879
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,287,229, いいね数: 118,118
+-   動画数: 30, 視聴数: 9,287,277, いいね数: 118,119
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,242,325, いいね数: 119,504
+-   動画数: 30, 視聴数: 9,242,383, いいね数: 119,504
 
 #### [2023年11月](videos/202311 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,810,309, いいね数: 141,051
 
 ---
-2025-09-21 23:00
+2025-09-22 01:00
