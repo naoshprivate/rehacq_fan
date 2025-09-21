@@ -1,34 +1,34 @@
 # 最近の動画
 1.  [【ひろゆきvs YouTuber議員】自治体の闇暴露…なぜ？YouTuberから議員へ！【ReHacQvs青ヶ島vs西東京vs平塚】](/rehacq_fan/ids/tcT9_UdxNQs "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 19,745
-    -   **いいね数: 350**
+    -   視聴数: 25,686
+    -   **いいね数: 374**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/tcT9_UdxNQs/hqdefault.jpg)](https://www.youtube.com/watch?v=tcT9_UdxNQs)
 1.  [【高橋弘樹vs日本国憲法】日本の戦後体制に物申す！憲法は改正すべき!?【ReHacQvs西田昌司】](/rehacq_fan/ids/7T_p6_ZghtY "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 22,545
-    -   **いいね数: 500**
+    -   視聴数: 25,344
+    -   **いいね数: 515**
     -   出演者: 西田昌司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7T_p6_ZghtY/hqdefault.jpg)](https://www.youtube.com/watch?v=7T_p6_ZghtY)
 1.  [【高橋弘樹vs天才読書家】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【三宅香帆inReHacQ】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 74,679
-    -   **いいね数: 1,327**
+    -   視聴数: 76,369
+    -   **いいね数: 1,339**
     -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
 1.  [【PIVOT vs ReHacQ②】PIVOTが上場目指すワケ…どうなるメディアの未来【後藤達也vs佐々木紀彦vs高橋弘樹】](/rehacq_fan/ids/68ubJe2wyRM "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 129,913
-    -   **いいね数: 2,383**
+    -   視聴数: 132,430
+    -   **いいね数: 2,394**
     -   出演者: 佐々木紀彦, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/68ubJe2wyRM/hqdefault.jpg)](https://www.youtube.com/watch?v=68ubJe2wyRM)
-1.  [【高橋弘樹vs正直不動産】不動産の闇、全部言う！絶対損する罠とは【夏原武】](/rehacq_fan/ids/IznxSkii4tY "wikilink")
+1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 154,490
-    -   **いいね数: 2,082**
-    -   出演者: 夏原武, 弥田有三, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/IznxSkii4tY/hqdefault.jpg)](https://www.youtube.com/watch?v=IznxSkii4tY)
+    -   視聴数: 44,990
+    -   **いいね数: 1,426**
+    -   出演者: 高市早苗
+    - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 60, 視聴数: 6,855,040, いいね数: 136,404
+-   動画数: 60, 視聴数: 6,872,049, いいね数: 136,498
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,15 +98,15 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,014,710, いいね数: 355,041
+-   動画数: 76, 視聴数: 20,017,606, いいね数: 355,078
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,450,433, いいね数: 285,568
+-   動画数: 77, 視聴数: 15,452,384, いいね数: 285,580
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,706,460, いいね数: 192,889
+-   動画数: 63, 視聴数: 14,711,341, いいね数: 192,937
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -174,31 +174,31 @@
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,242,383, いいね数: 119,504
+-   動画数: 30, 視聴数: 9,242,395, いいね数: 119,504
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,062,195, いいね数: 141,452
+-   動画数: 25, 視聴数: 13,062,234, いいね数: 141,453
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,094,090, いいね数: 169,872
+-   動画数: 33, 視聴数: 12,094,101, いいね数: 169,872
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,382,806, いいね数: 86,143
+-   動画数: 27, 視聴数: 6,382,836, いいね数: 86,143
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,404,777, いいね数: 127,439
+-   動画数: 33, 視聴数: 11,404,782, いいね数: 127,439
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,353,148, いいね数: 139,755
+-   動画数: 30, 視聴数: 11,353,188, いいね数: 139,752
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,749,791, いいね数: 94,916
+-   動画数: 27, 視聴数: 7,749,792, いいね数: 94,916
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,810,309, いいね数: 141,051
 
 ---
-2025-09-22 01:00
+2025-09-22 02:00
