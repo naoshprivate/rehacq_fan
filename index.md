@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
-    -   公開日: 2025-09-22
-    -   視聴数: 53,398
-    -   **いいね数: 1,669**
-    -   出演者: 高市早苗
-    - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
 1.  [【須賀川拓vsネクストユニコーンCEO】核融合は2030年代に実現する？国内初の核融合スタートアップCEOが語る「夢のエネルギー」の未来【スザンヌ】](/rehacq_fan/ids/9P83M8pLgEQ "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 7,135
-    -   **いいね数: 176**
+    -   視聴数: 9,146
+    -   **いいね数: 195**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9P83M8pLgEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=9P83M8pLgEQ)
 1.  [【ひろゆきvs須賀川拓】レバノン“大麻渓谷”と禁断の武器庫に潜入 ドラッグディーラーに寿司喰わせて危険な賭けに？【ReHacQ高橋弘樹】](/rehacq_fan/ids/fippR3SUdgE "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 41,119
-    -   **いいね数: 1,534**
+    -   視聴数: 44,870
+    -   **いいね数: 1,589**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/fippR3SUdgE/hqdefault.jpg)](https://www.youtube.com/watch?v=fippR3SUdgE)
 1.  [【ひろゆきvs YouTuber議員】自治体の闇暴露…なぜ？YouTuberから議員へ！【ReHacQvs青ヶ島vs西東京vs平塚】](/rehacq_fan/ids/tcT9_UdxNQs "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 84,888
-    -   **いいね数: 981**
+    -   視聴数: 86,186
+    -   **いいね数: 986**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/tcT9_UdxNQs/hqdefault.jpg)](https://www.youtube.com/watch?v=tcT9_UdxNQs)
 1.  [【高橋弘樹vs日本国憲法】日本の戦後体制に物申す！憲法は改正すべき!?【ReHacQvs西田昌司】](/rehacq_fan/ids/7T_p6_ZghtY "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 54,383
-    -   **いいね数: 914**
+    -   視聴数: 55,148
+    -   **いいね数: 926**
     -   出演者: 西田昌司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7T_p6_ZghtY/hqdefault.jpg)](https://www.youtube.com/watch?v=7T_p6_ZghtY)
+1.  [【高橋弘樹vs天才読書家】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【三宅香帆inReHacQ】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
+    -   公開日: 2025-09-20
+    -   視聴数: 98,493
+    -   **いいね数: 3,131**
+    -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 62, 視聴数: 7,171,295, いいね数: 142,726
+-   動画数: 62, 視聴数: 7,199,472, いいね数: 143,007
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,278,934, いいね数: 246,494
+-   動画数: 64, 視聴数: 13,283,491, いいね数: 246,537
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,027,931, いいね数: 355,185
+-   動画数: 76, 視聴数: 20,028,565, いいね数: 355,194
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,456,816, いいね数: 285,682
+-   動画数: 77, 視聴数: 15,461,080, いいね数: 285,710
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -138,11 +138,11 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,340,595, いいね数: 218,805
+-   動画数: 50, 視聴数: 14,345,045, いいね数: 218,827
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,295,764, いいね数: 318,839
+-   動画数: 43, 視聴数: 19,300,036, いいね数: 318,881
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -194,11 +194,11 @@
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,353,235, いいね数: 139,753
+-   動画数: 30, 視聴数: 11,353,252, いいね数: 139,753
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,749,792, いいね数: 94,916
+-   動画数: 27, 視聴数: 7,749,869, いいね数: 94,916
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,812,012, いいね数: 141,053
 
 ---
-2025-09-23 01:00
+2025-09-23 02:00
