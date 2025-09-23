@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
     -   公開日: 2025-09-23
-    -   視聴数: 90,827
-    -   **いいね数: 4,093**
+    -   視聴数: 152,575
+    -   **いいね数: 4,539**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/keDkHXJbZEY/hqdefault.jpg)](https://www.youtube.com/watch?v=keDkHXJbZEY)
 1.  [【問題だらけの住宅相続】空き家になる前の早めの対策が吉！売れない・貸せない親の家はどうすべき？【須黒清華】](/rehacq_fan/ids/FIZ77U8UHfs "wikilink")
     -   公開日: 2025-09-23
-    -   視聴数: 13,200
-    -   **いいね数: 297**
+    -   視聴数: 15,478
+    -   **いいね数: 314**
     -   出演者: 牧野知弘, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
     - [![](https://img.youtube.com/vi/FIZ77U8UHfs/hqdefault.jpg)](https://www.youtube.com/watch?v=FIZ77U8UHfs)
 1.  [【須賀川拓vsネクストユニコーンCEO】核融合は2030年代に実現する？国内初の核融合スタートアップCEOが語る「夢のエネルギー」の未来【スザンヌ】](/rehacq_fan/ids/9P83M8pLgEQ "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 37,085
-    -   **いいね数: 527**
+    -   視聴数: 37,671
+    -   **いいね数: 529**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9P83M8pLgEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=9P83M8pLgEQ)
 1.  [【ひろゆきvs須賀川拓】レバノン“大麻渓谷”と禁断の武器庫に潜入 ドラッグディーラーに寿司喰わせて危険な賭けに？【ReHacQ高橋弘樹】](/rehacq_fan/ids/fippR3SUdgE "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 81,594
-    -   **いいね数: 2,479**
+    -   視聴数: 82,411
+    -   **いいね数: 2,487**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/fippR3SUdgE/hqdefault.jpg)](https://www.youtube.com/watch?v=fippR3SUdgE)
 1.  [【ひろゆきvs YouTuber議員】自治体の闇暴露…なぜ？YouTuberから議員へ！【ReHacQvs青ヶ島vs西東京vs平塚】](/rehacq_fan/ids/tcT9_UdxNQs "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 106,271
-    -   **いいね数: 1,165**
+    -   視聴数: 106,665
+    -   **いいね数: 1,167**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/tcT9_UdxNQs/hqdefault.jpg)](https://www.youtube.com/watch?v=tcT9_UdxNQs)
 
@@ -67,8 +67,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
-    -   視聴数: 2,069,477
-    -   **いいね数: 58,448**
+    -   視聴数: 2,075,639
+    -   **いいね数: 58,466**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs河村たかし②】財務省に大反論！減税で増収できる？名古屋市を見よ【西田亮介vsリハックマ】](/rehacq_fan/ids/MxSVlnm0qc4 "wikilink")
     -   公開日: 2024-11-17
@@ -77,8 +77,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】再びの生対談！石丸新党立ち上げ…国民民主躍進.兵庫県知事選…本音激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/6Vww3vD7jHg "wikilink")
     -   公開日: 2024-11-19
-    -   視聴数: 2,134,137
-    -   **いいね数: 43,536**
+    -   視聴数: 2,135,026
+    -   **いいね数: 43,530**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 64, 視聴数: 7,527,552, いいね数: 150,403
+-   動画数: 64, 視聴数: 7,612,561, いいね数: 151,047
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,034,315, いいね数: 355,243
+-   動画数: 76, 視聴数: 20,035,153, いいね数: 355,253
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -126,15 +126,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,216,232, いいね数: 307,932
+-   動画数: 60, 視聴数: 18,216,462, いいね数: 307,929
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,515,235, いいね数: 374,287
+-   動画数: 37, 視聴数: 21,522,534, いいね数: 374,295
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,095,033, いいね数: 339,651
+-   動画数: 72, 視聴数: 22,095,414, いいね数: 339,648
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,816,679, いいね数: 141,064
 
 ---
-2025-09-24 01:00
+2025-09-24 02:00
