@@ -246,8 +246,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…参院選の公約発表【ReHacQ】](/rehacq_fan/ids/wLflSz9GRuM "wikilink")
     -   公開日: 2025-07-01
-    -   視聴数: 227,598
-    -   **いいね数: 9,956**
+    -   視聴数: 227,611
+    -   **いいね数: 9,955**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs古代エジプト史】謎多き古代エジプト！庶民が考えていた意外なこととは…？【ReHacQ教養】](/rehacq_fan/ids/JN4qvQM8ERI "wikilink")
     -   公開日: 2025-06-29
@@ -2118,12 +2118,12 @@
     -   出演者: 
 1.  [【参政党vsReHacQ】神谷宗幣代表が激白！倒れても訴えたい事【高橋弘樹】](/rehacq_fan/ids/TtdObaDvpQ8 "wikilink")
     -   公開日: 2024-10-23
-    -   視聴数: 255,014
-    -   **いいね数: 9,912**
+    -   視聴数: 255,045
+    -   **いいね数: 9,910**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
 1.  [【衆院選2024in練馬区】【ReHacQvs東京28区】](/rehacq_fan/ids/n3kmpirmo-w "wikilink")
     -   公開日: 2024-10-23
-    -   視聴数: 28,573
+    -   視聴数: 28,574
     -   **いいね数: 332**
     -   出演者: 
 1.  [【衆院選2024in目黒区・大田区】【ReHacQvs東京26区】](/rehacq_fan/ids/XqfdzpXdqIE "wikilink")
@@ -2133,7 +2133,7 @@
     -   出演者: 
 1.  [【衆院選2024in江戸川区】【ReHacQvs東京16区】](/rehacq_fan/ids/yoDfd5E_WgE "wikilink")
     -   公開日: 2024-10-23
-    -   視聴数: 16,292
+    -   視聴数: 16,293
     -   **いいね数: 104**
     -   出演者: 
 1.  [江戸川区 test](/rehacq_fan/ids/-dCYiUBKOwg "wikilink")
@@ -2163,12 +2163,12 @@
     -   出演者: 
 1.  [【衆院選2024in中野区・杉並区】混沌！新たな区割りで初選挙…自民vs立憲vs参政vsウルトラマンになりたかった男【ReHacQvs東京27区】](/rehacq_fan/ids/9pjkazH95Js "wikilink")
     -   公開日: 2024-10-22
-    -   視聴数: 19,439
+    -   視聴数: 19,440
     -   **いいね数: 170**
     -   出演者: 
 1.  [【足立康史vs宇佐美典也】維新をめぐり大論争！なぜ激怒？徹底議論【ReHacQ】](/rehacq_fan/ids/ITi-1ul-Xnw "wikilink")
     -   公開日: 2024-10-21
-    -   視聴数: 240,985
+    -   視聴数: 241,141
     -   **いいね数: 2,117**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【衆院選2024in港区・渋谷区】比例重複はなし！丸川珠代vs坂道ダッシュの松尾あきひろvs熊本県の元副知事・小野たいすけvs美容師免許持ってます！石川ゆりか【ReHacQ東京７区】](/rehacq_fan/ids/-mqgWtXrzeY "wikilink")
@@ -2203,13 +2203,13 @@
     -   出演者: 
 1.  [【衆院選2024in波乱の東京15区】石丸伸二と大バトル候補vs資本主義の次を目指す男vsひろゆきとバトルするZ世代vs光る自転車で爆走vs看護師・助産師の資格もつ国会議員](/rehacq_fan/ids/JkCcUDMhcJk "wikilink")
     -   公開日: 2024-10-19
-    -   視聴数: 238,640
+    -   視聴数: 238,642
     -   **いいね数: 2,147**
     -   出演者: 
 1.  [【衆院選2024in足立区】航空自衛官から投資銀行の維新vs唐揚げ好き元環境省キャリアの国民民主vs赤旗囲碁・将棋大会2勝2敗の共産党vs元自民の最年少代議士の自民党【ReHacQ討論in東京13区】](/rehacq_fan/ids/bl9qnaRiX40 "wikilink")
     -   公開日: 2024-10-18
-    -   視聴数: 22,310
-    -   **いいね数: 318**
+    -   視聴数: 22,312
+    -   **いいね数: 319**
     -   出演者: 
 1.  [【衆院選2024in世田谷区】趣味筋トレ！卵かけご飯好きな維新vsヘルスケアのセラピストの参政【ReHacQ討論in東京5区】](/rehacq_fan/ids/Yk-qKB13vcg "wikilink")
     -   公開日: 2024-10-18
@@ -2233,98 +2233,98 @@
     -   出演者: 
 1.  [【衆院選2024】「石丸伸二はヤバイ」という元市長vs自民党非公認…元安倍派幹部vs石原慎太郎の秘書歴10年vs「板橋よい映画をみる会」立上げ人【ReHacQvs東京11区（板橋区）】](/rehacq_fan/ids/i9FjMlLIn7c "wikilink")
     -   公開日: 2024-10-13
-    -   視聴数: 84,737
+    -   視聴数: 84,739
     -   **いいね数: 462**
     -   出演者: 
 1.  [【ひろゆき賠償金払う旅】なぜ今？ひろゆきから説明【ReHacQ】](/rehacq_fan/ids/G7R2VNy5GU4 "wikilink")
     -   公開日: 2024-10-11
-    -   視聴数: 359,766
-    -   **いいね数: 4,164**
+    -   視聴数: 359,803
+    -   **いいね数: 4,165**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs足立康史】維新が刺客！裏切り者？クーデター？あるいは…緊急生配信【ReHacQSP】](/rehacq_fan/ids/VKcPq7WgiTk "wikilink")
     -   公開日: 2024-10-10
-    -   視聴数: 415,080
-    -   **いいね数: 4,821**
+    -   視聴数: 415,338
+    -   **いいね数: 4,824**
     -   出演者: [足立康史](/rehacq_fan/people/足立康史 "wikilink")
 1.  [【石丸伸二vs玉木雄一郎】緊急生対談！国民民主党…これからの存在意義は？【高橋弘樹】](/rehacq_fan/ids/9_b3vH1wBP4 "wikilink")
     -   公開日: 2024-10-08
-    -   視聴数: 2,080,529
-    -   **いいね数: 37,433**
+    -   視聴数: 2,082,732
+    -   **いいね数: 37,429**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ひろゆき&石丸伸二&後藤達也】祝！100万人突破…生配信【ReHacQ高橋弘樹】](/rehacq_fan/ids/mAj8Oc-Mj_Y "wikilink")
     -   公開日: 2024-10-07
-    -   視聴数: 827,940
+    -   視聴数: 828,181
     -   **いいね数: 13,180**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】前兵庫県知事が緊急生出演...「パワハラ」「告発文書」「PC文書」の真相は？【ReHacQ】](/rehacq_fan/ids/jNGjngpf05U "wikilink")
     -   公開日: 2024-10-03
-    -   視聴数: 1,374,717
-    -   **いいね数: 29,184**
+    -   視聴数: 1,375,160
+    -   **いいね数: 29,183**
     -   出演者: [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink")
 1.  [【ReHacQvsひろゆき】総裁選どうだった？まったりトーク【西田亮介vs宇佐美典也】](/rehacq_fan/ids/82XUzkBuTAo "wikilink")
     -   公開日: 2024-09-27
-    -   視聴数: 451,816
-    -   **いいね数: 4,849**
+    -   視聴数: 451,903
+    -   **いいね数: 4,847**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西田亮介】自民党総裁選&立憲代表選どうなる？三連休何してますか？【高橋弘樹】](/rehacq_fan/ids/uKb_KooETag "wikilink")
     -   公開日: 2024-09-22
-    -   視聴数: 255,171
+    -   視聴数: 255,312
     -   **いいね数: 2,798**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【立憲民主党vsReHacQ】代表選ガチ討論会！ひろゆき&後藤達也&安野貴博からも質問状【高橋弘樹&西田亮介&藤井サチ】](/rehacq_fan/ids/FA8oGrknHL4 "wikilink")
     -   公開日: 2024-09-22
-    -   視聴数: 92,402
+    -   視聴数: 92,410
     -   **いいね数: 1,180**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
-    -   視聴数: 947,817
+    -   視聴数: 947,903
     -   **いいね数: 15,136**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【石丸伸二vs金澤ゆい】激白！なぜ維新辞めた？【東京15区支部長】](/rehacq_fan/ids/znrmkzhyJg4 "wikilink")
     -   公開日: 2024-09-19
-    -   視聴数: 300,786
+    -   視聴数: 300,824
     -   **いいね数: 4,634**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 金澤ゆい
 1.  [【ReHacQ生配信】“進学”で考える…人生にとって大学とは？【シン・教育論】](/rehacq_fan/ids/EMiG0h8hs-M "wikilink")
     -   公開日: 2024-09-18
-    -   視聴数: 55,733
-    -   **いいね数: 736**
+    -   視聴数: 55,739
+    -   **いいね数: 737**
     -   出演者: 中山友希, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 福島巨之, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文対談に待った！】都構想の真相違う！立憲府議から109行のDM…緊急生配信【立憲民主党vs大阪維新の会】](/rehacq_fan/ids/-LV8GuHCRyE "wikilink")
     -   公開日: 2024-09-12
-    -   視聴数: 124,750
+    -   視聴数: 124,754
     -   **いいね数: 1,462**
     -   出演者: 山田けんた, 藤田あきら, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二より若い】政治の高齢化ぶっ壊せ！国会vs大館市…日本変える戦いとは？【石田健佑vs土田しんvs高橋弘樹】](/rehacq_fan/ids/lF6ZfjHm55k "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 62,900
+    -   視聴数: 62,909
     -   **いいね数: 1,079**
     -   出演者: [土田しん](/rehacq_fan/people/土田しん "wikilink"), 石田健佑, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs朝日新聞】なぜ激怒？エモい記事は必要？新聞に毎月5000円払う訳とは？【新聞の未来】](/rehacq_fan/ids/wCvFYaZrbMs "wikilink")
     -   公開日: 2024-09-03
-    -   視聴数: 276,712
+    -   視聴数: 277,075
     -   **いいね数: 2,476**
     -   出演者: 古田大輔, [石戸諭](/rehacq_fan/people/石戸諭 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs高橋弘樹】まったり生配信！【世界の果てに東出・ひろゆき置いてきた】](/rehacq_fan/ids/kxMpTh9flkM "wikilink")
     -   公開日: 2024-08-25
-    -   視聴数: 177,524
-    -   **いいね数: 2,375**
+    -   視聴数: 177,660
+    -   **いいね数: 2,376**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】株価乱高下後の日経平均どうなる？日銀利上げと新NISA【専門家が徹底解説】](/rehacq_fan/ids/3NWsNtr2a8E "wikilink")
     -   公開日: 2024-08-21
-    -   視聴数: 39,264
+    -   視聴数: 39,265
     -   **いいね数: 343**
     -   出演者: [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink")
 1.  [【匂い発言炎上！川口ゆり】メディア初登場！ビジネスパーソンのための匂いケア講座【夏場の匂いケアとは？】](/rehacq_fan/ids/rXzNT77irOQ "wikilink")
     -   公開日: 2024-08-17
-    -   視聴数: 311,412
+    -   視聴数: 311,447
     -   **いいね数: 2,689**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【野村泰紀 vs 視聴者】夏休み特別生配信！親子で物理学！【なんでも生質問】](/rehacq_fan/ids/9DFK7heXx8o "wikilink")
     -   公開日: 2024-08-09
-    -   視聴数: 393,352
-    -   **いいね数: 3,905**
+    -   視聴数: 393,980
+    -   **いいね数: 3,908**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日経平均乱高下】大暴落から急反発・・・日本経済、新NISA大丈夫？【エコノミスト緊急解説】](/rehacq_fan/ids/JtwSwpJHGEU "wikilink")
     -   公開日: 2024-08-06
