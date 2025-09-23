@@ -1,34 +1,34 @@
 # 最近の動画
 1.  [【須賀川拓vsネクストユニコーンCEO】核融合は2030年代に実現する？国内初の核融合スタートアップCEOが語る「夢のエネルギー」の未来【スザンヌ】](/rehacq_fan/ids/9P83M8pLgEQ "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 21,563
-    -   **いいね数: 363**
+    -   視聴数: 22,923
+    -   **いいね数: 380**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9P83M8pLgEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=9P83M8pLgEQ)
 1.  [【ひろゆきvs須賀川拓】レバノン“大麻渓谷”と禁断の武器庫に潜入 ドラッグディーラーに寿司喰わせて危険な賭けに？【ReHacQ高橋弘樹】](/rehacq_fan/ids/fippR3SUdgE "wikilink")
     -   公開日: 2025-09-22
-    -   視聴数: 60,853
-    -   **いいね数: 2,009**
+    -   視聴数: 62,694
+    -   **いいね数: 2,052**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/fippR3SUdgE/hqdefault.jpg)](https://www.youtube.com/watch?v=fippR3SUdgE)
 1.  [【ひろゆきvs YouTuber議員】自治体の闇暴露…なぜ？YouTuberから議員へ！【ReHacQvs青ヶ島vs西東京vs平塚】](/rehacq_fan/ids/tcT9_UdxNQs "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 93,831
-    -   **いいね数: 1,077**
+    -   視聴数: 94,977
+    -   **いいね数: 1,090**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/tcT9_UdxNQs/hqdefault.jpg)](https://www.youtube.com/watch?v=tcT9_UdxNQs)
 1.  [【高橋弘樹vs日本国憲法】日本の戦後体制に物申す！憲法は改正すべき!?【ReHacQvs西田昌司】](/rehacq_fan/ids/7T_p6_ZghtY "wikilink")
     -   公開日: 2025-09-21
-    -   視聴数: 60,208
-    -   **いいね数: 984**
+    -   視聴数: 60,778
+    -   **いいね数: 994**
     -   出演者: 西田昌司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7T_p6_ZghtY/hqdefault.jpg)](https://www.youtube.com/watch?v=7T_p6_ZghtY)
-1.  [【高橋弘樹vs三宅香帆】人間は堕ちるべき!?仕事で悩んだ時に読みたい名文とは!?【ReHacQ】](/rehacq_fan/ids/5ycTUoHZtNc "wikilink")
+1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-20
-    -   視聴数: 104,418
-    -   **いいね数: 3,214**
-    -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/5ycTUoHZtNc/hqdefault.jpg)](https://www.youtube.com/watch?v=5ycTUoHZtNc)
+    -   視聴数: 54,740
+    -   **いいね数: 1,699**
+    -   出演者: 高市早苗
+    - [![](https://img.youtube.com/vi/QoRyscjXMV8/hqdefault.jpg)](https://www.youtube.com/watch?v=QoRyscjXMV8)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 62, 視聴数: 7,305,926, いいね数: 144,508
+-   動画数: 62, 視聴数: 7,314,067, いいね数: 144,630
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,286,517, いいね数: 246,558
+-   動画数: 64, 視聴数: 13,289,276, いいね数: 246,589
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,030,438, いいね数: 355,210
+-   動画数: 76, 視聴数: 20,030,841, いいね数: 355,211
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,461,229, いいね数: 285,709
+-   動画数: 77, 視聴数: 15,464,360, いいね数: 285,741
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -166,23 +166,23 @@
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,970,472, いいね数: 185,884
+-   動画数: 34, 視聴数: 14,974,539, いいね数: 185,936
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,287,750, いいね数: 118,123
+-   動画数: 30, 視聴数: 9,287,829, いいね数: 118,124
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,242,625, いいね数: 119,507
+-   動画数: 30, 視聴数: 9,242,751, いいね数: 119,508
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,062,272, いいね数: 141,452
+-   動画数: 25, 視聴数: 13,062,508, いいね数: 141,456
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,094,197, いいね数: 169,872
+-   動画数: 33, 視聴数: 12,095,237, いいね数: 169,880
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -190,7 +190,7 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,404,868, いいね数: 127,442
+-   動画数: 33, 視聴数: 11,405,448, いいね数: 127,448
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,812,159, いいね数: 141,056
 
 ---
-2025-09-23 12:00
+2025-09-23 13:00
