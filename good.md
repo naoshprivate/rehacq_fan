@@ -302,8 +302,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](/rehacq_fan/ids/zU6zLhzkdVI "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 377,114
-    -   **いいね数: 17,353**
+    -   視聴数: 377,312
+    -   **いいね数: 17,348**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
@@ -472,8 +472,8 @@
     -   出演者: みうらじゅん, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs参政党】東京都議選2025！代表者インタビュー【神谷宗幣】](/rehacq_fan/ids/u1vR6NcU6ys "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 481,933
-    -   **いいね数: 14,663**
+    -   視聴数: 482,053
+    -   **いいね数: 14,660**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】「再生の道」会見…2次選考、藤川氏について【ReHacQ】](/rehacq_fan/ids/-X-oDmsc8G0 "wikilink")
     -   公開日: 2025-03-14
@@ -487,8 +487,8 @@
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,096,452
-    -   **いいね数: 14,420**
+    -   視聴数: 1,096,688
+    -   **いいね数: 14,417**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
