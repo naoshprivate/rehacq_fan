@@ -152,8 +152,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
-    -   視聴数: 2,177,231
-    -   **いいね数: 22,736**
+    -   視聴数: 2,183,125
+    -   **いいね数: 22,771**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二 緊急生出演】石丸新党「再生の道」とは？会見参加できなかったメディア質問会【ReHacQ高橋弘樹】](/rehacq_fan/ids/7V56CikEagk "wikilink")
     -   公開日: 2025-01-15
@@ -272,8 +272,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
-    -   視聴数: 1,050,148
-    -   **いいね数: 18,442**
+    -   視聴数: 1,050,785
+    -   **いいね数: 18,445**
     -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【百田尚樹vs高橋弘樹】日本保守党にNG無し質問！【ReHacQvs日本保守党】](/rehacq_fan/ids/66XALKEKYqA "wikilink")
     -   公開日: 2025-07-19
@@ -377,8 +377,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
-    -   視聴数: 1,379,201
-    -   **いいね数: 15,728**
+    -   視聴数: 1,383,531
+    -   **いいね数: 15,763**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs自民党都議】裏金で大荒れ！赤裸々トーク…東京都議会で何が？【ReHacQSP】](/rehacq_fan/ids/V9X86suY1Xs "wikilink")
     -   公開日: 2024-12-17
