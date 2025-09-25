@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ReHacQ生配信】激論！林芳正の野望とは【高橋弘樹】](/rehacq_fan/ids/WZ9a45-QMiU "wikilink")
+    -   公開日: 2025-09-25
+    -   視聴数: 11,996
+    -   **いいね数: 304**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/WZ9a45-QMiU/hqdefault.jpg)](https://www.youtube.com/watch?v=WZ9a45-QMiU)
 1.  [【ひろゆきvs石丸伸二】参院選後…なぜ川へ？人生の夏休み【ReHacQ高橋弘樹】](/rehacq_fan/ids/L-rm307xc58 "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 100,180
-    -   **いいね数: 5,509**
+    -   視聴数: 124,759
+    -   **いいね数: 6,234**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/L-rm307xc58/hqdefault.jpg)](https://www.youtube.com/watch?v=L-rm307xc58)
 1.  [【国民民主党】玉木雄一郎代表定例会見 9月24日（水）【ReHacQ】](/rehacq_fan/ids/Q88k7h_BiZE "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 6,924
-    -   **いいね数: 121**
+    -   視聴数: 7,551
+    -   **いいね数: 127**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/Q88k7h_BiZE/hqdefault.jpg)](https://www.youtube.com/watch?v=Q88k7h_BiZE)
 1.  [【高橋弘樹vs入山章栄】なぜイノベーションが必要なのか？大企業から学ぶ企業戦略【ReHacQ】](/rehacq_fan/ids/3vghXjLchas "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 16,656
-    -   **いいね数: 279**
+    -   視聴数: 20,793
+    -   **いいね数: 349**
     -   出演者: 入山章栄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/3vghXjLchas/hqdefault.jpg)](https://www.youtube.com/watch?v=3vghXjLchas)
 1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
     -   公開日: 2025-09-23
-    -   視聴数: 636,379
-    -   **いいね数: 11,317**
+    -   視聴数: 671,474
+    -   **いいね数: 11,688**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/keDkHXJbZEY/hqdefault.jpg)](https://www.youtube.com/watch?v=keDkHXJbZEY)
-1.  [【問題だらけの住宅相続】空き家になる前の早めの対策が吉！売れない・貸せない親の家はどうすべき？【須黒清華】](/rehacq_fan/ids/FIZ77U8UHfs "wikilink")
-    -   公開日: 2025-09-23
-    -   視聴数: 52,248
-    -   **いいね数: 846**
-    -   出演者: 牧野知弘, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/FIZ77U8UHfs/hqdefault.jpg)](https://www.youtube.com/watch?v=FIZ77U8UHfs)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 67, 視聴数: 8,413,876, いいね数: 166,070
+-   動画数: 68, 視聴数: 8,499,376, いいね数: 167,704
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,312,333, いいね数: 246,771
+-   動画数: 64, 視聴数: 13,312,379, いいね数: 246,772
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,056,716, いいね数: 355,418
+-   動画数: 76, 視聴数: 20,058,207, いいね数: 355,416
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,485,247, いいね数: 286,002
+-   動画数: 77, 視聴数: 15,486,132, いいね数: 286,001
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -142,23 +142,23 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,330,544, いいね数: 319,166
+-   動画数: 43, 視聴数: 19,332,972, いいね数: 319,192
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,576,313, いいね数: 290,311
+-   動画数: 44, 視聴数: 15,580,725, いいね数: 290,315
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,485,297, いいね数: 141,147
+-   動画数: 31, 視聴数: 10,486,762, いいね数: 141,151
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,419,122, いいね数: 79,216
+-   動画数: 29, 視聴数: 6,421,472, いいね数: 79,212
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,347,430, いいね数: 98,411
+-   動画数: 34, 視聴数: 9,351,498, いいね数: 98,433
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,817,436, いいね数: 141,068
 
 ---
-2025-09-25 13:00
+2025-09-25 20:00
