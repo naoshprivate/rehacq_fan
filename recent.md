@@ -1,31 +1,31 @@
+1.  [【ReHacQ生配信】神谷宗幣と激論！参政党のこれから…【高橋弘樹】](/rehacq_fan/ids/eBvIKeumC0A "wikilink")
+    -   公開日: 2025-09-25
+    -   視聴数: 30,586
+    -   **いいね数: 1,561**
+    -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/eBvIKeumC0A/hqdefault.jpg)](https://www.youtube.com/watch?v=eBvIKeumC0A)
 1.  [【ReHacQ生配信】激論！林芳正の野望とは【高橋弘樹】](/rehacq_fan/ids/WZ9a45-QMiU "wikilink")
     -   公開日: 2025-09-25
-    -   視聴数: 18,388
-    -   **いいね数: 514**
-    -   出演者: 
+    -   視聴数: 27,926
+    -   **いいね数: 578**
+    -   出演者: [林芳正](/rehacq_fan/people/林芳正 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/WZ9a45-QMiU/hqdefault.jpg)](https://www.youtube.com/watch?v=WZ9a45-QMiU)
 1.  [【ひろゆきvs石丸伸二】参院選後…なぜ川へ？人生の夏休み【ReHacQ高橋弘樹】](/rehacq_fan/ids/L-rm307xc58 "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 129,291
-    -   **いいね数: 6,337**
+    -   視聴数: 134,203
+    -   **いいね数: 6,446**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/L-rm307xc58/hqdefault.jpg)](https://www.youtube.com/watch?v=L-rm307xc58)
 1.  [【国民民主党】玉木雄一郎代表定例会見 9月24日（水）【ReHacQ】](/rehacq_fan/ids/Q88k7h_BiZE "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 7,672
-    -   **いいね数: 127**
+    -   視聴数: 7,769
+    -   **いいね数: 128**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/Q88k7h_BiZE/hqdefault.jpg)](https://www.youtube.com/watch?v=Q88k7h_BiZE)
 1.  [【高橋弘樹vs入山章栄】なぜイノベーションが必要なのか？大企業から学ぶ企業戦略【ReHacQ】](/rehacq_fan/ids/3vghXjLchas "wikilink")
     -   公開日: 2025-09-24
-    -   視聴数: 21,491
-    -   **いいね数: 357**
+    -   視聴数: 22,074
+    -   **いいね数: 364**
     -   出演者: 入山章栄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/3vghXjLchas/hqdefault.jpg)](https://www.youtube.com/watch?v=3vghXjLchas)
-1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
-    -   公開日: 2025-09-23
-    -   視聴数: 677,182
-    -   **いいね数: 11,746**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/keDkHXJbZEY/hqdefault.jpg)](https://www.youtube.com/watch?v=keDkHXJbZEY)
 
