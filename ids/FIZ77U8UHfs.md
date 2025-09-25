@@ -1,6 +1,6 @@
 ### [【問題だらけの住宅相続】空き家になる前の早めの対策が吉！売れない・貸せない親の家はどうすべき？【須黒清華】](https://www.youtube.com/watch?v=FIZ77U8UHfs)
 [![](https://img.youtube.com/vi/FIZ77U8UHfs/sddefault.jpg)](https://www.youtube.com/watch?v=FIZ77U8UHfs)
 -   公開日: 2025-09-23
--   視聴数: 48,645
--   **いいね数: 789**
+-   視聴数: 51,702
+-   **いいね数: 836**
 -   出演者: 牧野知弘, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
