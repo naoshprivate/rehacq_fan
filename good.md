@@ -345,6 +345,11 @@
     -   視聴数: 1,066,160
     -   **いいね数: 16,436**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
+    -   公開日: 2025-09-26
+    -   視聴数: 394,461
+    -   **いいね数: 16,383**
+    -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26
     -   視聴数: 837,815
@@ -352,8 +357,8 @@
     -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
 1.  [【中田敦彦vs高橋弘樹】衝撃告白！兵庫県知事選&自民党総裁選…大物出演の裏側とは？【ReHacQ &YouTube大学コラボ】](/rehacq_fan/ids/ZnXwCAVJ7Gs "wikilink")
     -   公開日: 2024-12-28
-    -   視聴数: 852,176
-    -   **いいね数: 16,178**
+    -   視聴数: 852,572
+    -   **いいね数: 16,176**
     -   出演者: [中田敦彦](/rehacq_fan/people/中田敦彦 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs藤井サチ】気まずい因縁ある2人で彦根旅【ReHacQ旅】](/rehacq_fan/ids/f3kpjjROUGc "wikilink")
     -   公開日: 2024-08-02
@@ -390,11 +395,6 @@
     -   視聴数: 835,911
     -   **いいね数: 15,661**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
-    -   公開日: 2025-09-26
-    -   視聴数: 355,331
-    -   **いいね数: 15,656**
-    -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
     -   公開日: 2024-11-21
     -   視聴数: 1,041,399
@@ -417,8 +417,8 @@
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 関口健太郎
 1.  [【兵庫県知事選でも問題】公職選挙法の闇！なぜ逮捕？【石丸伸二を生んだ男】](/rehacq_fan/ids/smDf7a0Z_-w "wikilink")
     -   公開日: 2024-11-29
-    -   視聴数: 1,103,521
-    -   **いいね数: 15,395**
+    -   視聴数: 1,105,290
+    -   **いいね数: 15,396**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
@@ -437,8 +437,8 @@
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
-    -   視聴数: 918,438
-    -   **いいね数: 15,216**
+    -   視聴数: 918,776
+    -   **いいね数: 15,220**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09

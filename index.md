@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【ReHacQ生配信】政治とAI…民主主義のあり方とは【立憲小西ひろゆきvs再生の道奥村光貴vs高橋弘樹】](/rehacq_fan/ids/d8IAiApz0HQ "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 29,620
-    -   **いいね数: 1,643**
+    -   視聴数: 68,941
+    -   **いいね数: 2,736**
     -   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), 小西ひろゆき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/d8IAiApz0HQ/hqdefault.jpg)](https://www.youtube.com/watch?v=d8IAiApz0HQ)
-1.  [【GDPマイナスの裏側】日本経済に黄信号？“関税ショック”の正体とは！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
+1.  [【日本経済に黄信号？】物価・賃金の伸び上回り...国の税収過去最高！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 13,880
-    -   **いいね数: 227**
+    -   視聴数: 20,485
+    -   **いいね数: 260**
     -   出演者: 斎藤太郎, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 355,331
-    -   **いいね数: 15,656**
+    -   視聴数: 394,461
+    -   **いいね数: 16,383**
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gvhsrihOCrc/hqdefault.jpg)](https://www.youtube.com/watch?v=gvhsrihOCrc)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/cQVQfRUpG6U "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 2,656
-    -   **いいね数: 67**
+    -   視聴数: 2,819
+    -   **いいね数: 73**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/cQVQfRUpG6U/hqdefault.jpg)](https://www.youtube.com/watch?v=cQVQfRUpG6U)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/gNfbbhEVnPw "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 4,114
-    -   **いいね数: 33**
+    -   視聴数: 4,306
+    -   **いいね数: 34**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/gNfbbhEVnPw/hqdefault.jpg)](https://www.youtube.com/watch?v=gNfbbhEVnPw)
 
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 74, 視聴数: 9,310,964, いいね数: 193,210
+-   動画数: 74, 視聴数: 9,405,282, いいね数: 195,141
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,329,858, いいね数: 246,931
+-   動画数: 64, 視聴数: 13,332,593, いいね数: 246,948
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,516,453, いいね数: 286,435
+-   動画数: 77, 視聴数: 15,520,848, いいね数: 286,525
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -122,15 +122,15 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,232,007, いいね数: 289,479
+-   動画数: 48, 視聴数: 17,237,107, いいね数: 289,538
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,227,812, いいね数: 308,037
+-   動画数: 60, 視聴数: 18,230,315, いいね数: 308,050
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,547,272, いいね数: 374,407
+-   動画数: 37, 視聴数: 21,549,755, いいね数: 374,414
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -158,15 +158,15 @@
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,353,510, いいね数: 98,445
+-   動画数: 34, 視聴数: 9,355,328, いいね数: 98,458
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,037,457, いいね数: 109,339
+-   動画数: 44, 視聴数: 9,037,764, いいね数: 109,340
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 14,997,274, いいね数: 186,112
+-   動画数: 34, 視聴数: 14,997,333, いいね数: 186,114
 
 #### [2024年01月](videos/202401 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,819,413, いいね数: 141,071
 
 ---
-2025-09-26 23:00
+2025-09-27 01:00
