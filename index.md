@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ReHacQ生配信】政治とAI…民主主義のあり方とは【立憲小西ひろゆきvs再生の道奥村光貴vs高橋弘樹】](/rehacq_fan/ids/d8IAiApz0HQ "wikilink")
+    -   公開日: 2025-09-26
+    -   視聴数: 29,620
+    -   **いいね数: 1,643**
+    -   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), 小西ひろゆき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/d8IAiApz0HQ/hqdefault.jpg)](https://www.youtube.com/watch?v=d8IAiApz0HQ)
 1.  [【GDPマイナスの裏側】日本経済に黄信号？“関税ショック”の正体とは！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 8,619
-    -   **いいね数: 208**
+    -   視聴数: 13,880
+    -   **いいね数: 227**
     -   出演者: 斎藤太郎, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 329,459
-    -   **いいね数: 15,098**
+    -   視聴数: 355,331
+    -   **いいね数: 15,656**
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gvhsrihOCrc/hqdefault.jpg)](https://www.youtube.com/watch?v=gvhsrihOCrc)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/cQVQfRUpG6U "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 2,562
-    -   **いいね数: 65**
+    -   視聴数: 2,656
+    -   **いいね数: 67**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/cQVQfRUpG6U/hqdefault.jpg)](https://www.youtube.com/watch?v=cQVQfRUpG6U)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/gNfbbhEVnPw "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 3,981
-    -   **いいね数: 32**
+    -   視聴数: 4,114
+    -   **いいね数: 33**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/gNfbbhEVnPw/hqdefault.jpg)](https://www.youtube.com/watch?v=gNfbbhEVnPw)
-1.  [【ReHacQ生配信】神谷宗幣と激論！参政党のこれから…【高橋弘樹】](/rehacq_fan/ids/eBvIKeumC0A "wikilink")
-    -   公開日: 2025-09-25
-    -   視聴数: 199,507
-    -   **いいね数: 5,292**
-    -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/eBvIKeumC0A/hqdefault.jpg)](https://www.youtube.com/watch?v=eBvIKeumC0A)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 73, 視聴数: 9,245,215, いいね数: 190,925
+-   動画数: 74, 視聴数: 9,310,964, いいね数: 193,210
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,070,054, いいね数: 355,563
+-   動画数: 76, 視聴数: 20,071,610, いいね数: 355,578
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -122,7 +122,7 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,223,941, いいね数: 289,444
+-   動画数: 48, 視聴数: 17,232,007, いいね数: 289,479
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -146,19 +146,19 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,580,792, いいね数: 290,315
+-   動画数: 44, 視聴数: 15,580,899, いいね数: 290,319
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,486,881, いいね数: 141,156
+-   動画数: 31, 視聴数: 10,486,926, いいね数: 141,156
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,421,488, いいね数: 79,213
+-   動画数: 29, 視聴数: 6,422,203, いいね数: 79,216
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,352,044, いいね数: 98,435
+-   動画数: 34, 視聴数: 9,353,510, いいね数: 98,445
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,819,413, いいね数: 141,071
 
 ---
-2025-09-26 22:00
+2025-09-26 23:00
