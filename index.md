@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【GDPマイナスの裏側】日本経済に黄信号？“関税ショック”の正体とは！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
+    -   公開日: 2025-09-26
+    -   視聴数: 5,298
+    -   **いいね数: 140**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 273,873
-    -   **いいね数: 13,499**
+    -   視聴数: 302,975
+    -   **いいね数: 14,350**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gvhsrihOCrc/hqdefault.jpg)](https://www.youtube.com/watch?v=gvhsrihOCrc)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/cQVQfRUpG6U "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 2,380
-    -   **いいね数: 61**
+    -   視聴数: 2,471
+    -   **いいね数: 64**
     -   出演者: 
     - [![](https://img.youtube.com/vi/cQVQfRUpG6U/hqdefault.jpg)](https://www.youtube.com/watch?v=cQVQfRUpG6U)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/gNfbbhEVnPw "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 3,760
-    -   **いいね数: 31**
+    -   視聴数: 3,874
+    -   **いいね数: 32**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gNfbbhEVnPw/hqdefault.jpg)](https://www.youtube.com/watch?v=gNfbbhEVnPw)
 1.  [【ReHacQ生配信】神谷宗幣と激論！参政党のこれから…【高橋弘樹】](/rehacq_fan/ids/eBvIKeumC0A "wikilink")
     -   公開日: 2025-09-25
-    -   視聴数: 194,785
-    -   **いいね数: 5,121**
+    -   視聴数: 197,130
+    -   **いいね数: 5,161**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/eBvIKeumC0A/hqdefault.jpg)](https://www.youtube.com/watch?v=eBvIKeumC0A)
-1.  [【ReHacQ生配信】激論！林芳正の野望とは【高橋弘樹】](/rehacq_fan/ids/WZ9a45-QMiU "wikilink")
-    -   公開日: 2025-09-25
-    -   視聴数: 58,231
-    -   **いいね数: 831**
-    -   出演者: [林芳正](/rehacq_fan/people/林芳正 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/WZ9a45-QMiU/hqdefault.jpg)](https://www.youtube.com/watch?v=WZ9a45-QMiU)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 72, 視聴数: 9,163,313, いいね数: 189,103
+-   動画数: 73, 視聴数: 9,210,892, いいね数: 190,226
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,319,348, いいね数: 246,843
+-   動画数: 64, 視聴数: 13,323,326, いいね数: 246,874
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,069,708, いいね数: 355,564
+-   動画数: 76, 視聴数: 20,070,045, いいね数: 355,563
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -110,23 +110,23 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,436,080, いいね数: 342,214
+-   動画数: 58, 視聴数: 21,436,123, いいね数: 342,215
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,919,433, いいね数: 248,459
+-   動画数: 61, 視聴数: 13,922,172, いいね数: 248,459
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,016,044, いいね数: 297,128
+-   動画数: 47, 視聴数: 16,019,953, いいね数: 297,149
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,209,944, いいね数: 289,331
+-   動画数: 48, 視聴数: 17,223,941, いいね数: 289,444
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,218,071, いいね数: 307,930
+-   動画数: 60, 視聴数: 18,218,269, いいね数: 307,933
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,819,413, いいね数: 141,071
 
 ---
-2025-09-26 20:00
+2025-09-26 21:00
