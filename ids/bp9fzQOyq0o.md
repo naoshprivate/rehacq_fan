@@ -3,4 +3,4 @@
 -   公開日: 2025-09-16
 -   視聴数: 353,548
 -   **いいね数: 12,786**
--   出演者: 奥村光貴, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
+-   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
