@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【高橋弘樹vs辞め三菱銀行】父・権藤博！バブル崩壊とともに三菱入行...ルイ・ヴィトンで師との出会い...56歳で社長を電撃退任したワケとは？【ReHacQ】](/rehacq_fan/ids/XwtWS3Sgoo8 "wikilink")
+    -   公開日: 2025-09-28
+    -   視聴数: 2
+    -   **いいね数: 10**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/XwtWS3Sgoo8/hqdefault.jpg)](https://www.youtube.com/watch?v=XwtWS3Sgoo8)
 1.  [【高橋弘樹vs猪瀬直樹】黙殺された日本必敗の予測...80年前なぜ開戦したのか？【ReHacQ】](/rehacq_fan/ids/oua9LkT0kmI "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 15,390
-    -   **いいね数: 330**
+    -   視聴数: 23,495
+    -   **いいね数: 404**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oua9LkT0kmI/hqdefault.jpg)](https://www.youtube.com/watch?v=oua9LkT0kmI)
 1.  [【ひろゆきvs YouTuber議員②】地方議会の闇を暴露…YouTuberは抑止力になりうるか？【ReHacQ高橋弘樹vs青ヶ島ちゃんねる】](/rehacq_fan/ids/3aIOnb0VIZY "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 22,837
-    -   **いいね数: 366**
+    -   視聴数: 26,640
+    -   **いいね数: 408**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元島新, 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/3aIOnb0VIZY/hqdefault.jpg)](https://www.youtube.com/watch?v=3aIOnb0VIZY)
-1.  [【高橋弘樹vs島巡り】知られざる東京23区の島！江戸から令和に続く時間旅行【ReHacQ】](/rehacq_fan/ids/gGR8nRlRXq0 "wikilink")
+1.  [【高橋弘樹vs東京人】知られざる東京23区の島！江戸から令和に続く時間旅行【ReHacQ】](/rehacq_fan/ids/gGR8nRlRXq0 "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 33,926
-    -   **いいね数: 697**
+    -   視聴数: 35,795
+    -   **いいね数: 722**
     -   出演者: 小林政能, 田中紀子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gGR8nRlRXq0/hqdefault.jpg)](https://www.youtube.com/watch?v=gGR8nRlRXq0)
 1.  [【ReHacQ生配信】政治とAI…民主主義のあり方とは【立憲小西ひろゆきvs再生の道奥村光貴vs高橋弘樹】](/rehacq_fan/ids/d8IAiApz0HQ "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 182,451
-    -   **いいね数: 4,320**
+    -   視聴数: 185,249
+    -   **いいね数: 4,343**
     -   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), 小西ひろゆき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/d8IAiApz0HQ/hqdefault.jpg)](https://www.youtube.com/watch?v=d8IAiApz0HQ)
-1.  [【日本経済に黄信号？】物価・賃金の伸び上回り...国の税収過去最高！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
-    -   公開日: 2025-09-26
-    -   視聴数: 43,977
-    -   **いいね数: 513**
-    -   出演者: 斎藤太郎, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 77, 視聴数: 9,931,247, いいね数: 203,761
+-   動画数: 77, 視聴数: 9,962,296, いいね数: 204,072
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,15 +98,15 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,090,435, いいね数: 355,742
+-   動画数: 76, 視聴数: 20,090,592, いいね数: 355,738
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,543,161, いいね数: 286,812
+-   動画数: 77, 視聴数: 15,545,068, いいね数: 286,853
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,742,699, いいね数: 193,173
+-   動画数: 63, 視聴数: 14,743,060, いいね数: 193,169
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -114,19 +114,19 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,923,245, いいね数: 248,471
+-   動画数: 61, 視聴数: 13,923,394, いいね数: 248,470
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,024,176, いいね数: 297,171
+-   動画数: 47, 視聴数: 16,024,346, いいね数: 297,173
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,253,629, いいね数: 289,626
+-   動画数: 48, 視聴数: 17,253,661, いいね数: 289,626
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,232,270, いいね数: 308,078
+-   動画数: 60, 視聴数: 18,235,697, いいね数: 308,073
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -194,7 +194,7 @@
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,364,822, いいね数: 139,807
+-   動画数: 30, 視聴数: 11,364,825, いいね数: 139,807
 
 #### [2023年06月](videos/202306 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,824,598, いいね数: 141,077
 
 ---
-2025-09-28 02:00
+2025-09-28 07:00
