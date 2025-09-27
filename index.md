@@ -1,32 +1,32 @@
 # 最近の動画
+1.  [【高橋弘樹vs猪瀬直樹】黙殺された日本必敗の予測...80年前なぜ開戦したのか？【ReHacQ】](/rehacq_fan/ids/oua9LkT0kmI "wikilink")
+    -   公開日: 2025-09-27
+    -   視聴数: 1
+    -   **いいね数: 26**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/oua9LkT0kmI/hqdefault.jpg)](https://www.youtube.com/watch?v=oua9LkT0kmI)
 1.  [【ひろゆきvs YouTuber議員②】地方議会の闇を暴露…YouTuberは抑止力になりうるか？【ReHacQ高橋弘樹vs青ヶ島ちゃんねる】](/rehacq_fan/ids/3aIOnb0VIZY "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 6,153
-    -   **いいね数: 188**
+    -   視聴数: 10,736
+    -   **いいね数: 238**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3aIOnb0VIZY/hqdefault.jpg)](https://www.youtube.com/watch?v=3aIOnb0VIZY)
 1.  [【高橋弘樹vs島巡り】知られざる東京23区の島！江戸から令和に続く時間旅行【ReHacQ】](/rehacq_fan/ids/gGR8nRlRXq0 "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 27,165
-    -   **いいね数: 591**
+    -   視聴数: 28,756
+    -   **いいね数: 623**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gGR8nRlRXq0/hqdefault.jpg)](https://www.youtube.com/watch?v=gGR8nRlRXq0)
-1.  [【高橋弘樹vs猪瀬直樹】黙殺された日本必敗の予測...80年前なぜ開戦したのか？【ReHacQ】](/rehacq_fan/ids/oua9LkT0kmI "wikilink")
-    -   公開日: 2025-09-27
-    -   視聴数: 1
-    -   **いいね数: 13**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/oua9LkT0kmI/hqdefault.jpg)](https://www.youtube.com/watch?v=oua9LkT0kmI)
 1.  [【ReHacQ生配信】政治とAI…民主主義のあり方とは【立憲小西ひろゆきvs再生の道奥村光貴vs高橋弘樹】](/rehacq_fan/ids/d8IAiApz0HQ "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 173,397
-    -   **いいね数: 4,215**
+    -   視聴数: 175,302
+    -   **いいね数: 4,230**
     -   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), 小西ひろゆき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/d8IAiApz0HQ/hqdefault.jpg)](https://www.youtube.com/watch?v=d8IAiApz0HQ)
 1.  [【日本経済に黄信号？】物価・賃金の伸び上回り...国の税収過去最高！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 40,811
-    -   **いいね数: 487**
+    -   視聴数: 41,475
+    -   **いいね数: 491**
     -   出演者: 斎藤太郎, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 76, 視聴数: 9,826,680, いいね数: 202,162
+-   動画数: 76, 視聴数: 9,842,220, いいね数: 202,338
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,357,358, いいね数: 247,190
+-   動画数: 64, 視聴数: 13,360,171, いいね数: 247,210
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,085,051, いいね数: 355,690
+-   動画数: 76, 視聴数: 20,085,464, いいね数: 355,696
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -166,31 +166,31 @@
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,001,719, いいね数: 186,175
+-   動画数: 34, 視聴数: 15,001,756, いいね数: 186,174
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,291,039, いいね数: 118,153
+-   動画数: 30, 視聴数: 9,291,116, いいね数: 118,153
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,255,220, いいね数: 119,650
+-   動画数: 30, 視聴数: 9,255,352, いいね数: 119,653
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,072,496, いいね数: 141,511
+-   動画数: 25, 視聴数: 13,072,760, いいね数: 141,519
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,110,086, いいね数: 170,079
+-   動画数: 33, 視聴数: 12,111,545, いいね数: 170,099
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,387,117, いいね数: 86,175
+-   動画数: 27, 視聴数: 6,390,108, いいね数: 86,195
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,410,038, いいね数: 127,482
+-   動画数: 33, 視聴数: 11,410,765, いいね数: 127,489
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,819,632, いいね数: 141,075
 
 ---
-2025-09-27 20:00
+2025-09-27 21:00
