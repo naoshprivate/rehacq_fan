@@ -1,31 +1,31 @@
 # 最近の動画
 1.  [【高橋弘樹vs島巡り】知られざる東京23区の島！江戸から令和に続く時間旅行【ReHacQ】](/rehacq_fan/ids/gGR8nRlRXq0 "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 3,872
-    -   **いいね数: 156**
+    -   視聴数: 6,226
+    -   **いいね数: 233**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gGR8nRlRXq0/hqdefault.jpg)](https://www.youtube.com/watch?v=gGR8nRlRXq0)
 1.  [【ReHacQ生配信】政治とAI…民主主義のあり方とは【立憲小西ひろゆきvs再生の道奥村光貴vs高橋弘樹】](/rehacq_fan/ids/d8IAiApz0HQ "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 149,791
-    -   **いいね数: 3,845**
+    -   視聴数: 153,966
+    -   **いいね数: 3,905**
     -   出演者: [奥村光貴](/rehacq_fan/people/奥村光貴 "wikilink"), 小西ひろゆき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/d8IAiApz0HQ/hqdefault.jpg)](https://www.youtube.com/watch?v=d8IAiApz0HQ)
 1.  [【日本経済に黄信号？】物価・賃金の伸び上回り...国の税収過去最高！？【斎藤太郎＆永濱利廣＆森本智子】](/rehacq_fan/ids/Xi_FJYCmLto "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 34,143
-    -   **いいね数: 410**
+    -   視聴数: 35,142
+    -   **いいね数: 423**
     -   出演者: 斎藤太郎, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/Xi_FJYCmLto/hqdefault.jpg)](https://www.youtube.com/watch?v=Xi_FJYCmLto)
 1.  [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 483,177
-    -   **いいね数: 18,176**
+    -   視聴数: 491,057
+    -   **いいね数: 18,378**
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gvhsrihOCrc/hqdefault.jpg)](https://www.youtube.com/watch?v=gvhsrihOCrc)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 9月26日（金）【ReHacQ】](/rehacq_fan/ids/cQVQfRUpG6U "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 4,773
+    -   視聴数: 4,893
     -   **いいね数: 79**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/cQVQfRUpG6U/hqdefault.jpg)](https://www.youtube.com/watch?v=cQVQfRUpG6U)
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 75, 視聴数: 9,678,574, いいね数: 199,444
+-   動画数: 75, 視聴数: 9,696,324, いいね数: 199,836
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,355,676, いいね数: 247,185
+-   動画数: 64, 視聴数: 13,356,471, いいね数: 247,189
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,083,073, いいね数: 355,679
+-   動画数: 76, 視聴数: 20,085,051, いいね数: 355,690
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -146,11 +146,11 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,587,523, いいね数: 290,326
+-   動画数: 44, 視聴数: 15,588,547, いいね数: 290,329
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,486,926, いいね数: 141,156
+-   動画数: 31, 視聴数: 10,487,179, いいね数: 141,155
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -198,19 +198,19 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,752,399, いいね数: 94,946
+-   動画数: 27, 視聴数: 7,752,427, いいね数: 94,946
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,283,962, いいね数: 112,015
+-   動画数: 24, 視聴数: 7,283,993, いいね数: 112,016
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,485,744, いいね数: 103,121
+-   動画数: 28, 視聴数: 6,485,821, いいね数: 103,123
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 7,819,413, いいね数: 141,071
 
 ---
-2025-09-27 12:00
+2025-09-27 13:00
