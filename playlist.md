@@ -1,8 +1,8 @@
 # プレイリスト (305): ReHacQ SP /  ReHacQTV
 1.  [【ReHacQ記者会見】自民党総裁選・高市早苗 出馬会見 9月19日（金） 【ReHacQ】](/rehacq_fan/ids/QoRyscjXMV8 "wikilink")
     -   公開日: 2025-09-19
-    -   視聴数: 56,060
-    -   **いいね数: 1,728**
+    -   視聴数: 62,619
+    -   **いいね数: 1,884**
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink")
 1.  [【ReHacQ生配信】激論！茂木敏充の野望とは【高橋弘樹】](/rehacq_fan/ids/2DZQwsjuZJE "wikilink")
     -   公開日: 2025-09-17
@@ -71,7 +71,7 @@
     -   出演者: [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), 高橋和夫, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【LINEヤフーvsベンチャー起業家】経営課題乗り越えるには？教えて川邊さん！【ReHacQ高橋弘樹】](/rehacq_fan/ids/6IQGjt6jdqg "wikilink")
     -   公開日: 2025-07-30
-    -   視聴数: 33,516
+    -   視聴数: 33,596
     -   **いいね数: 444**
     -   出演者: 中川元太, 岸上健人, [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink"), 李蕣里, 蓮田健一, 重松泰斗, 金谷元気, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハラスメント対策】コミュニケーショントレーナー直伝！論破せずに言い返す方法とは？【呂布カルマ】](/rehacq_fan/ids/PFeK9Sovu1s "wikilink")
@@ -3574,8 +3574,8 @@
 # プレイリスト (99): ReHacQs
 1.  [【ひろゆきvs地方首長】人口増加中の特区でも課題山積...なぜ？過疎地域町長が衝撃的な対策を激白【スーツvsReHacQ高橋弘樹】](/rehacq_fan/ids/8eDWyLWHX_c "wikilink")
     -   公開日: 2025-08-03
-    -   視聴数: 447,608
-    -   **いいね数: 5,610**
+    -   視聴数: 449,394
+    -   **いいね数: 5,624**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [スーツ](/rehacq_fan/people/スーツ "wikilink"), 五十嵐立青, 小林伸行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsビッグダディ】衝撃の過去！夜逃げ・タコ部屋・用心棒…ビッグダディが明かす壮絶人生【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/N0NY2rGkMZw "wikilink")
     -   公開日: 2025-07-27
@@ -5030,108 +5030,108 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
-    -   視聴数: 803,586
-    -   **いいね数: 16,087**
+    -   視聴数: 803,798
+    -   **いいね数: 16,088**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【スーツvs茂木敏充】町中華で餃子ビール！トランプ外交の裏話と絶品チャーハン【栃木県・足利】](/rehacq_fan/ids/uJzoql06jxg "wikilink")
     -   公開日: 2024-08-10
-    -   視聴数: 545,701
-    -   **いいね数: 7,566**
+    -   視聴数: 547,767
+    -   **いいね数: 7,585**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink")
 1.  [【テスタvs海外投資】円安！海外投資先探しの旅【18億の衝撃ハウス】](/rehacq_fan/ids/SLnQC1oxGR0 "wikilink")
     -   公開日: 2024-05-11
-    -   視聴数: 273,823
+    -   視聴数: 273,940
     -   **いいね数: 2,411**
     -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), [髙橋史好](/rehacq_fan/people/髙橋史好 "wikilink")
 1.  [【ひろゆきvs群馬の山奥】開湯1200年！隠れすぎ温泉【12歳アイドルに叱られるひろゆき】](/rehacq_fan/ids/rNM45dsUU4Q "wikilink")
     -   公開日: 2024-03-30
-    -   視聴数: 108,384
-    -   **いいね数: 1,379**
+    -   視聴数: 108,531
+    -   **いいね数: 1,381**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 遠藤雄斗
 1.  [【東出昌大の舎弟vsひろゆき】露天風呂で事件！極寒で裸…なぜ？【後藤達也】](/rehacq_fan/ids/MJ1YuI7u8Uw "wikilink")
     -   公開日: 2024-03-26
-    -   視聴数: 145,959
+    -   視聴数: 146,117
     -   **いいね数: 1,808**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs後藤達也】ガチ大炎上…ひろゆき語る「諦めと人生」](/rehacq_fan/ids/wABRBDbRjsM "wikilink")
     -   公開日: 2024-03-17
-    -   視聴数: 210,394
-    -   **いいね数: 2,618**
+    -   視聴数: 210,521
+    -   **いいね数: 2,619**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs山本一太】年商２億も多発！天皇杯とった「群馬農業」とは？【後藤達也】](/rehacq_fan/ids/C5ch06ZICP4 "wikilink")
     -   公開日: 2024-03-11
-    -   視聴数: 158,089
-    -   **いいね数: 2,139**
+    -   視聴数: 158,264
+    -   **いいね数: 2,140**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸市長の手法vs島根県の村】仁義なき戦い！日本再生の鍵は？【安芸高田から邑南町へ】](/rehacq_fan/ids/SlOz2_X8pr4 "wikilink")
     -   公開日: 2024-03-03
-    -   視聴数: 269,000
-    -   **いいね数: 3,971**
+    -   視聴数: 269,170
+    -   **いいね数: 3,973**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs後藤達也】秘境！奥群馬を探検…93歳とコタツで激論【山本一太】](/rehacq_fan/ids/ptMo4eHjejU "wikilink")
     -   公開日: 2024-03-01
-    -   視聴数: 214,516
-    -   **いいね数: 3,142**
+    -   視聴数: 214,814
+    -   **いいね数: 3,143**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸市長と因縁】熊高議員が突然川の中へ…なぜ？秘境の村の秘密【島根と広島県境！ポツンと一軒家】](/rehacq_fan/ids/cOarpsul3CU "wikilink")
     -   公開日: 2024-02-25
-    -   視聴数: 486,819
-    -   **いいね数: 7,120**
+    -   視聴数: 486,987
+    -   **いいね数: 7,122**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【安芸高田vsGHQ】石丸市長が明かす…瀬島龍三も絶賛の神事秘史【ガチ秘境】](/rehacq_fan/ids/dllrObQPA3g "wikilink")
     -   公開日: 2024-02-18
-    -   視聴数: 344,493
-    -   **いいね数: 5,586**
+    -   視聴数: 344,615
+    -   **いいね数: 5,587**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長も絶句】安芸高田の山奥…忘れられぬ夜【西田亮介】](/rehacq_fan/ids/2FS1Yf2TjbQ "wikilink")
     -   公開日: 2024-02-11
-    -   視聴数: 427,757
+    -   視聴数: 427,901
     -   **いいね数: 6,933**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs清志会の裏側】「あきたかた焼き」巡る…衝撃攻防戦【絶品の馬刺し】](/rehacq_fan/ids/y_40eyauBAk "wikilink")
     -   公開日: 2024-02-04
-    -   視聴数: 598,074
-    -   **いいね数: 9,462**
+    -   視聴数: 598,261
+    -   **いいね数: 9,463**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs議会】なぜ揉める？政治家の本音暴露【安芸高田市】](/rehacq_fan/ids/f8rJNZFEE2g "wikilink")
     -   公開日: 2024-01-28
-    -   視聴数: 806,235
-    -   **いいね数: 11,660**
+    -   視聴数: 806,400
+    -   **いいね数: 11,662**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
-    -   視聴数: 1,476,726
-    -   **いいね数: 21,335**
+    -   視聴数: 1,477,092
+    -   **いいね数: 21,340**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs若新雄純】学べるReHacQ旅in富山！ついに最終回【NewsPicks間に合うか？】](/rehacq_fan/ids/6KUuY7PGG7A "wikilink")
     -   公開日: 2023-08-12
-    -   視聴数: 183,312
+    -   視聴数: 183,462
     -   **いいね数: 3,058**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs若新雄純】世界遺産•五箇山で突撃してきた謎の女子【一体なぜ？】](/rehacq_fan/ids/5E7l-hdwWXs "wikilink")
     -   公開日: 2023-07-13
-    -   視聴数: 267,819
-    -   **いいね数: 3,391**
+    -   視聴数: 268,078
+    -   **いいね数: 3,393**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき&若新雄純】穴場すぎる彫刻の街・井波とは？！巨大な寺の秘密！【衝撃！「富山のひろゆき」参戦】](/rehacq_fan/ids/5dbqaiJmWt4 "wikilink")
     -   公開日: 2023-06-19
-    -   視聴数: 313,855
-    -   **いいね数: 5,248**
+    -   視聴数: 313,997
+    -   **いいね数: 5,250**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsゴーンの部下】暗闇にマッチョ高校生！連れて行かれたのは…【若新雄純】](/rehacq_fan/ids/9BUv8M8SNE8 "wikilink")
     -   公開日: 2023-06-11
-    -   視聴数: 223,893
+    -   視聴数: 224,076
     -   **いいね数: 3,792**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs新聞社】穴場すぎる小京都に、辞め三井物産&辞め三菱商事が集結…一体なぜ？【ReHacQ旅】](/rehacq_fan/ids/LRbQS-O2L3g "wikilink")
     -   公開日: 2023-06-04
-    -   視聴数: 274,391
-    -   **いいね数: 3,981**
+    -   視聴数: 274,583
+    -   **いいね数: 3,982**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs NHK女将アナ】衝撃サウナ！ ReHacQ旅in富山【超行き当たりバッタリの旅】](/rehacq_fan/ids/vHA5x3vvHCw "wikilink")
     -   公開日: 2023-05-27
-    -   視聴数: 325,680
-    -   **いいね数: 5,225**
+    -   視聴数: 326,087
+    -   **いいね数: 5,229**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (29): mudai
@@ -5961,23 +5961,23 @@
 # プレイリスト (4): 社長vs平社員　部下の気持ち理解してますか？/ReHacQワークスタイル
 1.  [【成田悠輔も愛用】熟睡する方法とは？【成田修造もびっくり】](/rehacq_fan/ids/Mrb3KYf8kwY "wikilink")
     -   公開日: 2024-03-29
-    -   視聴数: 102,563
+    -   視聴数: 102,595
     -   **いいね数: 1,271**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【成田悠輔の弟が激白】激務の功罪！キャリア思考術【成田修造】](/rehacq_fan/ids/27lQEf5vMvI "wikilink")
     -   公開日: 2024-03-23
-    -   視聴数: 176,678
+    -   視聴数: 176,728
     -   **いいね数: 2,068**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【ひろゆきもびっくり】5400億！ゼネコンの社長…現場社員と激論【元乃木坂46のOL…困惑】](/rehacq_fan/ids/05OeVM-hTWo "wikilink")
     -   公開日: 2024-03-01
-    -   視聴数: 32,791
-    -   **いいね数: 402**
+    -   視聴数: 32,814
+    -   **いいね数: 403**
     -   出演者: 一條真人, 新内眞衣, 鈴木学, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvs巨大ゼネコン】5400億！一部上場企業の社長vsヒラ社員【激論のワケ】](/rehacq_fan/ids/xQmWgpXJgG0 "wikilink")
     -   公開日: 2024-02-23
-    -   視聴数: 71,247
-    -   **いいね数: 827**
+    -   視聴数: 71,287
+    -   **いいね数: 828**
     -   出演者: 一條真人, 新内眞衣, 鈴木学, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (4): Zストリーム
@@ -6074,12 +6074,12 @@
 # プレイリスト (2): エッセンシャル投資教室
 1.  [【ReHacQ vs少子化】都市×地方で国力衰退リスクを回避!?【河合雅司vsYouTuberくらま】](/rehacq_fan/ids/uk3W4OR2KWM "wikilink")
     -   公開日: 2025-04-22
-    -   視聴数: 59,306
-    -   **いいね数: 768**
+    -   視聴数: 59,363
+    -   **いいね数: 769**
     -   出演者: くらま, 河合雅司, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
 1.  [【ReHacQ vs人口減少】未来を見てリスクを回避！投資先の選び方とは？【河合雅司vsYouTuberくらま】](/rehacq_fan/ids/PolNzDk3cls "wikilink")
     -   公開日: 2025-04-20
-    -   視聴数: 111,666
+    -   視聴数: 111,780
     -   **いいね数: 1,290**
     -   出演者: くらま, 河合雅司, [福田典子](/rehacq_fan/people/福田典子 "wikilink")
 
@@ -6110,13 +6110,13 @@
 # プレイリスト (2): エンタメFUKABORIN
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
     -   公開日: 2025-01-22
-    -   視聴数: 1,041,935
-    -   **いいね数: 15,365**
+    -   視聴数: 1,052,606
+    -   **いいね数: 15,424**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】アメリカで内戦危機？全米大ヒット「シビル・ウォー」を読み解く【ReHacQエンタメFUKABORIN】](/rehacq_fan/ids/1hYQ1dhOteg "wikilink")
     -   公開日: 2024-10-02
-    -   視聴数: 555,765
-    -   **いいね数: 12,067**
+    -   視聴数: 556,378
+    -   **いいね数: 12,074**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (2): 日本一意識の低いクリエイター起業入門
@@ -6175,8 +6175,8 @@
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), 宇野常寛, 笹原和俊
 1.  [【Twitterの罠】承認欲求という快楽地獄【なぜSNSで攻撃？】](/rehacq_fan/ids/7YR8jOkTECw "wikilink")
     -   公開日: 2023-07-19
-    -   視聴数: 56,767
-    -   **いいね数: 895**
+    -   視聴数: 56,775
+    -   **いいね数: 894**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), 宇野常寛, 笹原和俊
 
 # プレイリスト (1): なぜ政治家になった？
