@@ -1,6 +1,6 @@
 ### [【ひろゆきvs石丸伸二】金沢でガチ議論…なぜ？能登と日本の未来【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
 [![](https://img.youtube.com/vi/mDEe9GQ4CHQ/sddefault.jpg)](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
 -   公開日: 2025-09-28
--   視聴数: 142,186
--   **いいね数: 7,182**
+-   視聴数: 175,394
+-   **いいね数: 8,172**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
