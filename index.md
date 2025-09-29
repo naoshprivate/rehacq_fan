@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【須賀川拓vs核融合CEO】夢から現実へ_核融合が変える暮らしとエネルギーの未来とは？【スザンヌ】](/rehacq_fan/ids/gc1TgH0K-GI "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 5
-    -   **いいね数: 4**
+    -   視聴数: 1,745
+    -   **いいね数: 86**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gc1TgH0K-GI/hqdefault.jpg)](https://www.youtube.com/watch?v=gc1TgH0K-GI)
 1.  [【ReHacQ生配信】激論！小林鷹之の野望とは【高橋弘樹】](/rehacq_fan/ids/QQtALoxkt94 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 48,857
-    -   **いいね数: 943**
+    -   視聴数: 55,516
+    -   **いいね数: 1,101**
     -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/QQtALoxkt94/hqdefault.jpg)](https://www.youtube.com/watch?v=QQtALoxkt94)
 1.  [【後藤達也vs河野×唐鎌】経済衰退の戦犯は？本気で日本経済を語る【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/2JWH_cTgEcM "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 130,553
-    -   **いいね数: 2,144**
+    -   視聴数: 135,434
+    -   **いいね数: 2,191**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
     - [![](https://img.youtube.com/vi/2JWH_cTgEcM/hqdefault.jpg)](https://www.youtube.com/watch?v=2JWH_cTgEcM)
 1.  [【ひろゆきvs石丸伸二】金沢でガチ議論…なぜ？能登と日本の未来【ReHacQ高橋弘樹】](/rehacq_fan/ids/mDEe9GQ4CHQ "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 216,529
-    -   **いいね数: 9,204**
+    -   視聴数: 222,437
+    -   **いいね数: 9,332**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mDEe9GQ4CHQ/hqdefault.jpg)](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
 1.  [【高橋弘樹vsオンナ半沢直樹】父は権藤博！？90年代三菱銀行辞めCEO20年…伝説のバリキャリ女性の衝撃人生とは？【ReHacQ】](/rehacq_fan/ids/XwtWS3Sgoo8 "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 152,643
-    -   **いいね数: 1,910**
+    -   視聴数: 155,044
+    -   **いいね数: 1,941**
     -   出演者: 権藤嘉江子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XwtWS3Sgoo8/hqdefault.jpg)](https://www.youtube.com/watch?v=XwtWS3Sgoo8)
 
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 81, 視聴数: 10,777,043, いいね数: 221,800
+-   動画数: 82, 視聴数: 10,805,524, いいね数: 222,361
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,381,326, いいね数: 247,402
+-   動画数: 64, 視聴数: 13,382,814, いいね数: 247,438
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,549,899, いいね数: 286,864
+-   動画数: 77, 視聴数: 15,549,927, いいね数: 286,863
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -114,31 +114,31 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,925,701, いいね数: 248,472
+-   動画数: 61, 視聴数: 13,934,706, いいね数: 248,526
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,030,836, いいね数: 297,175
+-   動画数: 47, 視聴数: 16,037,159, いいね数: 297,226
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,256,928, いいね数: 289,636
+-   動画数: 48, 視聴数: 17,264,553, いいね数: 289,749
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,236,392, いいね数: 308,085
+-   動画数: 60, 視聴数: 18,236,831, いいね数: 308,086
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,586,022, いいね数: 374,535
+-   動画数: 37, 視聴数: 21,591,879, いいね数: 374,542
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,132,246, いいね数: 339,810
+-   動画数: 72, 視聴数: 22,132,518, いいね数: 339,811
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,374,044, いいね数: 219,052
+-   動画数: 50, 視聴数: 14,374,171, いいね数: 219,052
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,825,417, いいね数: 141,078
 
 ---
-2025-09-29 20:00
+2025-09-29 21:00
