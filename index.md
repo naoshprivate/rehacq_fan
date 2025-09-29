@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【就職氷河期の誤解】識者も政治家も論点がズレるのはなぜなのか？「痛み」の本質とは！？【海老原嗣生vs宮崎謙介vs高橋弘樹】](/rehacq_fan/ids/x7IosUsj8s4 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 23,981
-    -   **いいね数: 662**
+    -   視聴数: 29,952
+    -   **いいね数: 712**
     -   出演者: 宮崎謙介, [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/x7IosUsj8s4/hqdefault.jpg)](https://www.youtube.com/watch?v=x7IosUsj8s4)
 1.  [【須賀川拓vs核融合CEO】夢から現実へ_核融合が変える暮らしとエネルギーの未来とは？【スザンヌ】](/rehacq_fan/ids/gc1TgH0K-GI "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 7,287
-    -   **いいね数: 175**
+    -   視聴数: 8,325
+    -   **いいね数: 182**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/gc1TgH0K-GI/hqdefault.jpg)](https://www.youtube.com/watch?v=gc1TgH0K-GI)
 1.  [【ReHacQ生配信】激論！小林鷹之の野望とは【高橋弘樹】](/rehacq_fan/ids/QQtALoxkt94 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 75,727
-    -   **いいね数: 1,402**
+    -   視聴数: 79,189
+    -   **いいね数: 1,420**
     -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/QQtALoxkt94/hqdefault.jpg)](https://www.youtube.com/watch?v=QQtALoxkt94)
 1.  [【後藤達也vs河野×唐鎌】経済衰退の戦犯は？本気で日本経済を語る【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/2JWH_cTgEcM "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 151,040
-    -   **いいね数: 2,353**
+    -   視聴数: 153,956
+    -   **いいね数: 2,369**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
     - [![](https://img.youtube.com/vi/2JWH_cTgEcM/hqdefault.jpg)](https://www.youtube.com/watch?v=2JWH_cTgEcM)
 1.  [【ひろゆきvs石丸伸二】金沢でガチ議論…なぜ？能登と日本の未来【ReHacQ高橋弘樹】](/rehacq_fan/ids/mDEe9GQ4CHQ "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 244,023
-    -   **いいね数: 9,652**
+    -   視聴数: 247,891
+    -   **いいね数: 9,679**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mDEe9GQ4CHQ/hqdefault.jpg)](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
 
@@ -90,31 +90,31 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 83, 視聴数: 10,908,172, いいね数: 224,030
+-   動画数: 83, 視聴数: 10,928,618, いいね数: 224,165
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,382,861, いいね数: 247,438
+-   動画数: 64, 視聴数: 13,383,319, いいね数: 247,444
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,118,550, いいね数: 355,981
+-   動画数: 76, 視聴数: 20,118,664, いいね数: 355,982
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,567,728, いいね数: 287,048
+-   動画数: 77, 視聴数: 15,567,780, いいね数: 287,048
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,753,405, いいね数: 193,225
+-   動画数: 63, 視聴数: 14,753,761, いいね数: 193,228
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,439,714, いいね数: 342,234
+-   動画数: 58, 視聴数: 21,442,480, いいね数: 342,269
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,934,706, いいね数: 248,526
+-   動画数: 61, 視聴数: 13,939,961, いいね数: 248,587
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -182,7 +182,7 @@
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,131,531, いいね数: 170,336
+-   動画数: 33, 視聴数: 12,131,533, いいね数: 170,336
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -190,7 +190,7 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,416,964, いいね数: 127,525
+-   動画数: 33, 視聴数: 11,417,007, いいね数: 127,525
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -202,15 +202,15 @@
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,287,428, いいね数: 112,046
+-   動画数: 24, 視聴数: 7,287,463, いいね数: 112,046
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,487,549, いいね数: 103,134
+-   動画数: 28, 視聴数: 6,487,754, いいね数: 103,130
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,825,417, いいね数: 141,078
+-   動画数: 14, 視聴数: 7,825,512, いいね数: 141,077
 
 ---
-2025-09-30 01:00
+2025-09-30 02:00
