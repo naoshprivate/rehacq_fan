@@ -91,8 +91,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【イスラエル大使の主張】イランを攻撃...なぜ？正当性は？ホロコーストから90年...平和を望むワケ【須賀川拓】](/rehacq_fan/ids/06vuAAFoZbE "wikilink")
     -   公開日: 2025-07-27
-    -   視聴数: 190,000
-    -   **いいね数: 4,612**
+    -   視聴数: 193,090
+    -   **いいね数: 4,681**
     -   出演者: [ギラッド・コーヘン](/rehacq_fan/people/ギラッド・コーヘン "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】夏の夜のまったり雑談【西田亮介vs宇佐美典也】](/rehacq_fan/ids/SHkI3HrdQJI "wikilink")
     -   公開日: 2025-07-26
@@ -191,12 +191,12 @@
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【高橋弘樹vsマックス・ウェーバー】中立とは何か？メディアのウソと欺瞞【価値自由】](/rehacq_fan/ids/K9xVUZ5f1eU "wikilink")
     -   公開日: 2025-07-10
-    -   視聴数: 84,144
-    -   **いいね数: 1,067**
+    -   視聴数: 84,430
+    -   **いいね数: 1,072**
     -   出演者: 野口雅弘, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsにしたんクリニック】20代で借金7,000万円！成功までの壮絶なしくじりとは？【西村誠司】](/rehacq_fan/ids/y7lt6HdPtw0 "wikilink")
     -   公開日: 2025-07-10
-    -   視聴数: 57,807
+    -   視聴数: 57,851
     -   **いいね数: 547**
     -   出演者: 西村誠司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【吉村洋文vs高橋弘樹】緊急生配信 日本維新の会にNG無し質問！【ReHacQvs日本維新の会】](/rehacq_fan/ids/_27klF6H22Q "wikilink")
@@ -311,8 +311,8 @@
     -   出演者: 
 1.  [【ReHacQ討論会】世田谷区ネット討論会【西田亮介】](/rehacq_fan/ids/A6JpwISAoos "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 127,840
-    -   **いいね数: 3,573**
+    -   視聴数: 127,844
+    -   **いいね数: 3,571**
     -   出演者: 
 1.  [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](/rehacq_fan/ids/zU6zLhzkdVI "wikilink")
     -   公開日: 2025-06-20
@@ -326,23 +326,23 @@
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs自由民主党】東京都議選2025！代表者インタビュー【井上信治】](/rehacq_fan/ids/_a4Y_Y3bGHE "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 9,414
+    -   視聴数: 9,417
     -   **いいね数: 64**
     -   出演者: 井上信治, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【藤井サチvs公明党】東京都議選2025！代表者インタビュー【河西宏一】](/rehacq_fan/ids/x7g8nXASRGk "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 21,205
+    -   視聴数: 21,216
     -   **いいね数: 853**
     -   出演者: 河西宏一, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【藤井サチvs夢党】東京都議選2025！代表者インタビュー【やた一久】](/rehacq_fan/ids/UPYQsqANtYo "wikilink")
     -   公開日: 2025-06-20
-    -   視聴数: 20,917
+    -   視聴数: 20,924
     -   **いいね数: 1,105**
     -   出演者: やた一久, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【ReHacQ討論会】新宿区ネット討論会【西田亮介】](/rehacq_fan/ids/OyI8PLwdbJo "wikilink")
     -   公開日: 2025-06-19
-    -   視聴数: 158,925
-    -   **いいね数: 3,563**
+    -   視聴数: 158,926
+    -   **いいね数: 3,562**
     -   出演者: 
 1.  [【高橋弘樹vs立憲民主党】東京都議選2025！代表者インタビュー【落合貴之】](/rehacq_fan/ids/j7psvJ6nJa4 "wikilink")
     -   公開日: 2025-06-19
@@ -1878,8 +1878,8 @@
     -   出演者: [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
-    -   視聴数: 1,097,596
-    -   **いいね数: 8,148**
+    -   視聴数: 1,097,716
+    -   **いいね数: 8,147**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【百田尚樹vs高橋弘樹】日本保守党にNG無し質問！【ReHacQvs日本保守党】](/rehacq_fan/ids/66XALKEKYqA "wikilink")
     -   公開日: 2025-07-19
@@ -2395,73 +2395,73 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 藤井聡
 1.  [【後藤達也vs元内閣官房参与】消費増税で景気どうなる？日本経済を名目GDPで測るワケは？財政政策について徹底討論【ReHacQ高橋弘樹】](/rehacq_fan/ids/YH8_AQrbwLw "wikilink")
     -   公開日: 2025-06-19
-    -   視聴数: 307,850
-    -   **いいね数: 4,418**
+    -   視聴数: 308,381
+    -   **いいね数: 4,419**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 藤井聡
 1.  [【小泉進次郎vs後藤達也】収録を緊急リスケ！裏で動いていた事件とは？農業をガチで知る95分…令和のコメ騒動に終止符？【ReHacQ高橋弘樹】](/rehacq_fan/ids/rm5KXMkq9VQ "wikilink")
     -   公開日: 2025-06-08
-    -   視聴数: 627,609
+    -   視聴数: 628,068
     -   **いいね数: 8,783**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs財務大臣】減税なぜ慎重？国債はどこまで刷れる…加藤勝信が激白【ReHacQ】](/rehacq_fan/ids/kqGtFmLqP3g "wikilink")
     -   公開日: 2025-06-07
-    -   視聴数: 132,967
-    -   **いいね数: 1,449**
+    -   視聴数: 133,037
+    -   **いいね数: 1,450**
     -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs財務大臣】消費税どうなる？トランプ関税は？金利は？減税と財務規律...加藤勝信氏が激白の90分【ReHacQ高橋弘樹】](/rehacq_fan/ids/EnKWdlsCKB0 "wikilink")
     -   公開日: 2025-06-05
-    -   視聴数: 167,857
+    -   視聴数: 167,893
     -   **いいね数: 2,245**
     -   出演者: [加藤勝信](/rehacq_fan/people/加藤勝信 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs総理補佐官】賃上げ実現するには...令和の働き方改革とは？【ReHacQvs矢田稚子】](/rehacq_fan/ids/saIizsInaW0 "wikilink")
     -   公開日: 2025-05-08
-    -   視聴数: 62,997
+    -   視聴数: 63,011
     -   **いいね数: 912**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [矢田稚子](/rehacq_fan/people/矢田稚子 "wikilink")
 1.  [【後藤達也vs総理補佐官】岸田・石破総理の賃金雇用政策ブレーンが緊急出演！電撃退任のワケ激白...官邸で何が？国民民主党から参院選出馬？【ReHacQvs矢田稚子】](/rehacq_fan/ids/vCfm-LwJPCo "wikilink")
     -   公開日: 2025-05-01
-    -   視聴数: 159,848
+    -   視聴数: 159,876
     -   **いいね数: 2,164**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [矢田稚子](/rehacq_fan/people/矢田稚子 "wikilink")
 1.  [【フジテレビ大株主vs後藤達也】なぜフジに投資？中居正広問題は？村上ファンドとダルトン...赤裸々激白【ReHacQvsレオス藤野英人】](/rehacq_fan/ids/kVTFMFxpA88 "wikilink")
     -   公開日: 2025-04-17
-    -   視聴数: 163,415
+    -   視聴数: 163,439
     -   **いいね数: 1,702**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤野英人](/rehacq_fan/people/藤野英人 "wikilink")
 1.  [【後藤達也が緊急配信】日経平均急落…リーマンショック超える可能性も？世界同時株安の行方は？レオス藤野英人と徹底解説【ReHacQ経済】](/rehacq_fan/ids/goJ6Z7xIZl8 "wikilink")
     -   公開日: 2025-04-07
-    -   視聴数: 785,142
+    -   視聴数: 785,199
     -   **いいね数: 10,211**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤野英人](/rehacq_fan/people/藤野英人 "wikilink")
 1.  [【後藤達也ガチ取材】利上げは２％超える？日銀元最高幹部が予測【後藤達也vsReHacQ】](/rehacq_fan/ids/XkOBcn2o_1Y "wikilink")
     -   公開日: 2025-04-03
-    -   視聴数: 61,747
-    -   **いいね数: 718**
+    -   視聴数: 61,770
+    -   **いいね数: 716**
     -   出演者: 前田栄治, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vs元日本銀行最高幹部】日本人の給料上がる？円安、利上げの行方...経済ガチ予測【ReHacQ】](/rehacq_fan/ids/WI-bF1OowWM "wikilink")
     -   公開日: 2025-03-27
-    -   視聴数: 133,267
-    -   **いいね数: 1,512**
+    -   視聴数: 133,317
+    -   **いいね数: 1,511**
     -   出演者: 前田栄治, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【高橋弘樹vs辞めアクセンチュア】トランプで市場激変！ミームコイン急上昇の理由とリスク【ReHacQマネースタディ】](/rehacq_fan/ids/HAoPI9TBCIM "wikilink")
     -   公開日: 2025-03-27
-    -   視聴数: 29,704
+    -   視聴数: 29,713
     -   **いいね数: 264**
     -   出演者: 中山淳雄, 松原亮, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めアクセンチュア】60億円調達！トランプでバブル？仮想通貨の最新潮流とは？【ReHacQ風呂上がりマネースタディ】](/rehacq_fan/ids/NNCRl8gZJHY "wikilink")
     -   公開日: 2025-03-23
-    -   視聴数: 48,216
+    -   視聴数: 48,229
     -   **いいね数: 507**
     -   出演者: 中山淳雄, 松原亮, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs ネトフリと戦う男】巨大外資に負けない！U-NEXT.HDカリスマ社長のビジネス思考とは【高橋弘樹vs宇野康秀】](/rehacq_fan/ids/XOZukE5vBPQ "wikilink")
     -   公開日: 2025-03-20
-    -   視聴数: 71,167
+    -   視聴数: 71,203
     -   **いいね数: 851**
     -   出演者: 宇野康秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【後藤達也vsU-NEXT】500億赤字からどう復活？敏腕社長の逆襲劇【高橋弘樹vs宇野康秀】](/rehacq_fan/ids/VDrejHzEXFs "wikilink")
     -   公開日: 2025-03-14
-    -   視聴数: 168,932
-    -   **いいね数: 1,927**
+    -   視聴数: 169,047
+    -   **いいね数: 1,928**
     -   出演者: 宇野康秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
     -   公開日: 2025-03-06
@@ -3579,8 +3579,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [スーツ](/rehacq_fan/people/スーツ "wikilink"), 五十嵐立青, 小林伸行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsビッグダディ】衝撃の過去！夜逃げ・タコ部屋・用心棒…ビッグダディが明かす壮絶人生【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/N0NY2rGkMZw "wikilink")
     -   公開日: 2025-07-27
-    -   視聴数: 368,838
-    -   **いいね数: 4,870**
+    -   視聴数: 370,970
+    -   **いいね数: 4,899**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
 1.  [【ひろゆきvsビッグダディ】衝撃！究極の子育て論を展開！止まらぬ少子化に抗う術とは...【林下清志vsナレソメ勝倉】](/rehacq_fan/ids/gE1Tqo86I_Y "wikilink")
     -   公開日: 2025-07-20
@@ -4453,8 +4453,8 @@
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs幸せ研究者】ヒトは幸せになれない？それは遺伝子が社会環境の変化に適応できてないから...【ReHacQ】](/rehacq_fan/ids/uJkjl0Kh8dQ "wikilink")
     -   公開日: 2025-07-03
-    -   視聴数: 252,587
-    -   **いいね数: 3,890**
+    -   視聴数: 257,381
+    -   **いいね数: 3,946**
     -   出演者: 小林武彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs全米トップ医師】皆んな幸せに社会保障費削減できない？診察地獄を一元化！薬漬けも回避！患者も医療費もハッピーめざせ！アメリカ発「ガチ老年科」とは？【ReHacQ】](/rehacq_fan/ids/jsMrjyR5js8 "wikilink")
     -   公開日: 2025-06-30
@@ -5745,28 +5745,28 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 浜村弘一
 1.  [【ReHacQvsゲーム】なぜファミコン大成功!?ゲーム業界の真実【ファミ通vsファミマガ】](/rehacq_fan/ids/cnbQYbSyvHc "wikilink")
     -   公開日: 2025-01-21
-    -   視聴数: 92,607
-    -   **いいね数: 1,493**
+    -   視聴数: 92,655
+    -   **いいね数: 1,494**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 浜村弘一
 1.  [【ピクサーvsスクウェア】ピクサーが恐れた日本アニメなぜ失敗した？【ReHacQヒストリー】](/rehacq_fan/ids/e8t-BtBUcbE "wikilink")
     -   公開日: 2025-01-14
-    -   視聴数: 64,581
+    -   視聴数: 64,599
     -   **いいね数: 923**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 氷川竜介
 1.  [【宮﨑駿と新海誠】敗者の為の物語とは？日本アニメの唯一性と進化【ReHacQ教養ヒストリー】](/rehacq_fan/ids/yYbttR8uLXY "wikilink")
     -   公開日: 2025-01-07
-    -   視聴数: 80,740
+    -   視聴数: 80,757
     -   **いいね数: 1,139**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 氷川竜介
 1.  [【ReHacQマンガHistory】ヒット漫画の秘密とは？知られざる出版社の攻防【ReHacQvs川上量生】](/rehacq_fan/ids/dFxdF4EVmAk "wikilink")
     -   公開日: 2024-12-26
-    -   視聴数: 29,448
+    -   視聴数: 29,451
     -   **いいね数: 505**
     -   出演者: 井上伸一郎, [川上量生](/rehacq_fan/people/川上量生 "wikilink")
 1.  [【川上量生vs漫画アニメの歴史】宮﨑駿が語った…ジブリの今があるワケ【新番組 ReHacQ History】](/rehacq_fan/ids/RUKK8ZO4uQg "wikilink")
     -   公開日: 2024-12-17
-    -   視聴数: 65,818
-    -   **いいね数: 1,049**
+    -   視聴数: 65,837
+    -   **いいね数: 1,050**
     -   出演者: 井上伸一郎, [川上量生](/rehacq_fan/people/川上量生 "wikilink")
 
 # プレイリスト (6): まったりリバースハイスクール/RehacQ高校まったり人生相談/まったりハイスクール
