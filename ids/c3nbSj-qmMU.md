@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】杉並区ネット討論会【高橋弘樹】](https://www.youtube.com/watch?v=c3nbSj-qmMU)
 [![](https://img.youtube.com/vi/c3nbSj-qmMU/sddefault.jpg)](https://www.youtube.com/watch?v=c3nbSj-qmMU)
 -   公開日: 2025-06-21
--   視聴数: 148,390
--   **いいね数: 6,520**
+-   視聴数: 148,402
+-   **いいね数: 6,519**
 -   出演者: 

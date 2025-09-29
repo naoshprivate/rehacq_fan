@@ -1,31 +1,31 @@
 1.  [【後藤達也vs河野×唐鎌】経済衰退の戦犯は？本気で日本経済を語る【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/2JWH_cTgEcM "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 95,193
-    -   **いいね数: 1,642**
+    -   視聴数: 100,695
+    -   **いいね数: 1,719**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
     - [![](https://img.youtube.com/vi/2JWH_cTgEcM/hqdefault.jpg)](https://www.youtube.com/watch?v=2JWH_cTgEcM)
 1.  [【ひろゆきvs石丸伸二】金沢でガチ議論…なぜ？能登と日本の未来【ReHacQ高橋弘樹】](/rehacq_fan/ids/mDEe9GQ4CHQ "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 175,394
-    -   **いいね数: 8,172**
+    -   視聴数: 181,955
+    -   **いいね数: 8,337**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mDEe9GQ4CHQ/hqdefault.jpg)](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
 1.  [【高橋弘樹vsオンナ半沢直樹】父は権藤博！？90年代三菱銀行辞めCEO20年…伝説のバリキャリ女性の衝撃人生とは？【ReHacQ】](/rehacq_fan/ids/XwtWS3Sgoo8 "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 134,211
-    -   **いいね数: 1,682**
+    -   視聴数: 136,432
+    -   **いいね数: 1,715**
     -   出演者: 権藤嘉江子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/XwtWS3Sgoo8/hqdefault.jpg)](https://www.youtube.com/watch?v=XwtWS3Sgoo8)
 1.  [【高橋弘樹vs猪瀬直樹】黙殺された日本必敗の予測...80年前なぜ開戦したのか？【ReHacQ】](/rehacq_fan/ids/oua9LkT0kmI "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 59,726
-    -   **いいね数: 930**
+    -   視聴数: 60,343
+    -   **いいね数: 938**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/oua9LkT0kmI/hqdefault.jpg)](https://www.youtube.com/watch?v=oua9LkT0kmI)
 1.  [【ひろゆきvs YouTuber議員②】地方議会の闇を暴露…YouTuberは抑止力になりうるか？【ReHacQ高橋弘樹vs青ヶ島ちゃんねる】](/rehacq_fan/ids/3aIOnb0VIZY "wikilink")
     -   公開日: 2025-09-27
-    -   視聴数: 42,242
-    -   **いいね数: 598**
+    -   視聴数: 42,550
+    -   **いいね数: 604**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 元島新, 千間泉実, 鳴海加絵
     - [![](https://img.youtube.com/vi/3aIOnb0VIZY/hqdefault.jpg)](https://www.youtube.com/watch?v=3aIOnb0VIZY)
 
