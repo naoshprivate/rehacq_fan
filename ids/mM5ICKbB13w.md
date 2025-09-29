@@ -3,4 +3,4 @@
 -   公開日: 2025-09-14
 -   視聴数: 42,189
 -   **いいね数: 736**
--   出演者: 
+-   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")

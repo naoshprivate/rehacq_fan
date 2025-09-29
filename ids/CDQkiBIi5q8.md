@@ -3,4 +3,4 @@
 -   公開日: 2025-05-12
 -   視聴数: 147,236
 -   **いいね数: 1,720**
--   出演者: 海老原嗣生, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
+-   出演者: [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")

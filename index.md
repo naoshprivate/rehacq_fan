@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【就職氷河期の誤解】識者も政治家も論点がズレるのはなぜなのか？「痛み」の本質とは！？【海老原嗣生vs宮崎謙介vs高橋弘樹】](/rehacq_fan/ids/x7IosUsj8s4 "wikilink")
+    -   公開日: 2025-09-29
+    -   視聴数: 6,930
+    -   **いいね数: 248**
+    -   出演者: 宮崎謙介, [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/x7IosUsj8s4/hqdefault.jpg)](https://www.youtube.com/watch?v=x7IosUsj8s4)
 1.  [【須賀川拓vs核融合CEO】夢から現実へ_核融合が変える暮らしとエネルギーの未来とは？【スザンヌ】](/rehacq_fan/ids/gc1TgH0K-GI "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 1,745
-    -   **いいね数: 86**
-    -   出演者: 
+    -   視聴数: 2,598
+    -   **いいね数: 119**
+    -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/gc1TgH0K-GI/hqdefault.jpg)](https://www.youtube.com/watch?v=gc1TgH0K-GI)
 1.  [【ReHacQ生配信】激論！小林鷹之の野望とは【高橋弘樹】](/rehacq_fan/ids/QQtALoxkt94 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 55,516
-    -   **いいね数: 1,101**
+    -   視聴数: 60,852
+    -   **いいね数: 1,215**
     -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/QQtALoxkt94/hqdefault.jpg)](https://www.youtube.com/watch?v=QQtALoxkt94)
 1.  [【後藤達也vs河野×唐鎌】経済衰退の戦犯は？本気で日本経済を語る【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/2JWH_cTgEcM "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 135,434
-    -   **いいね数: 2,191**
+    -   視聴数: 139,794
+    -   **いいね数: 2,244**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
     - [![](https://img.youtube.com/vi/2JWH_cTgEcM/hqdefault.jpg)](https://www.youtube.com/watch?v=2JWH_cTgEcM)
 1.  [【ひろゆきvs石丸伸二】金沢でガチ議論…なぜ？能登と日本の未来【ReHacQ高橋弘樹】](/rehacq_fan/ids/mDEe9GQ4CHQ "wikilink")
     -   公開日: 2025-09-28
-    -   視聴数: 222,437
-    -   **いいね数: 9,332**
+    -   視聴数: 228,416
+    -   **いいね数: 9,446**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mDEe9GQ4CHQ/hqdefault.jpg)](https://www.youtube.com/watch?v=mDEe9GQ4CHQ)
-1.  [【高橋弘樹vsオンナ半沢直樹】父は権藤博！？90年代三菱銀行辞めCEO20年…伝説のバリキャリ女性の衝撃人生とは？【ReHacQ】](/rehacq_fan/ids/XwtWS3Sgoo8 "wikilink")
-    -   公開日: 2025-09-28
-    -   視聴数: 155,044
-    -   **いいね数: 1,941**
-    -   出演者: 権藤嘉江子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XwtWS3Sgoo8/hqdefault.jpg)](https://www.youtube.com/watch?v=XwtWS3Sgoo8)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 82, 視聴数: 10,805,524, いいね数: 222,361
+-   動画数: 83, 視聴数: 10,832,768, いいね数: 222,952
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,382,814, いいね数: 247,438
+-   動画数: 64, 視聴数: 13,382,852, いいね数: 247,438
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,114,712, いいね数: 355,967
+-   動画数: 76, 視聴数: 20,118,512, いいね数: 355,984
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,549,927, いいね数: 286,863
+-   動画数: 77, 視聴数: 15,550,677, いいね数: 286,870
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -142,23 +142,23 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,368,887, いいね数: 319,507
+-   動画数: 43, 視聴数: 19,371,062, いいね数: 319,521
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,595,646, いいね数: 290,367
+-   動画数: 44, 視聴数: 15,600,913, いいね数: 290,369
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,497,241, いいね数: 141,237
+-   動画数: 31, 視聴数: 10,498,521, いいね数: 141,243
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,423,637, いいね数: 79,235
+-   動画数: 29, 視聴数: 6,426,823, いいね数: 79,248
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,358,195, いいね数: 98,482
+-   動画数: 34, 視聴数: 9,362,403, いいね数: 98,504
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,825,417, いいね数: 141,078
 
 ---
-2025-09-29 21:00
+2025-09-29 22:00
