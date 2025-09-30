@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】国民民主党・玉木代表定例会見 9月30日（火）【ReHacQ】](/rehacq_fan/ids/0J15Wy4x6eU "wikilink")
+    -   公開日: 2025-09-30
+    -   視聴数: 3,636
+    -   **いいね数: 93**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/0J15Wy4x6eU/hqdefault.jpg)](https://www.youtube.com/watch?v=0J15Wy4x6eU)
 1.  [【高橋弘樹vs最低賃金】タイミーのデータを活用！最低賃金UPで雇用どうなる！？【ReHacQ】](/rehacq_fan/ids/LaydJr3QH2w "wikilink")
     -   公開日: 2025-09-30
-    -   視聴数: 1
-    -   **いいね数: 13**
+    -   視聴数: 15,359
+    -   **いいね数: 271**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LaydJr3QH2w/hqdefault.jpg)](https://www.youtube.com/watch?v=LaydJr3QH2w)
 1.  [【就職氷河期の誤解】識者も政治家も論点がズレるのはなぜなのか？「痛み」の本質とは！？【海老原嗣生vs宮崎謙介vs高橋弘樹】](/rehacq_fan/ids/x7IosUsj8s4 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 42,529
-    -   **いいね数: 914**
+    -   視聴数: 60,062
+    -   **いいね数: 1,259**
     -   出演者: 宮崎謙介, [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/x7IosUsj8s4/hqdefault.jpg)](https://www.youtube.com/watch?v=x7IosUsj8s4)
 1.  [【須賀川拓vs核融合CEO】夢から現実へ_核融合が変える暮らしとエネルギーの未来とは？【スザンヌ】](/rehacq_fan/ids/gc1TgH0K-GI "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 10,075
-    -   **いいね数: 204**
+    -   視聴数: 12,288
+    -   **いいね数: 236**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/gc1TgH0K-GI/hqdefault.jpg)](https://www.youtube.com/watch?v=gc1TgH0K-GI)
-1.  [【ReHacQ生配信】激論！小林鷹之の野望とは【高橋弘樹】](/rehacq_fan/ids/QQtALoxkt94 "wikilink")
+1.  [【高橋弘樹vs小林鷹之】社会保障是正と減税で日本再生へ　小林鷹之の総裁選ビジョン【ReHacQ総裁選SP】](/rehacq_fan/ids/QQtALoxkt94 "wikilink")
     -   公開日: 2025-09-29
-    -   視聴数: 86,434
-    -   **いいね数: 1,476**
+    -   視聴数: 93,594
+    -   **いいね数: 1,600**
     -   出演者: [小林鷹之](/rehacq_fan/people/小林鷹之 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/QQtALoxkt94/hqdefault.jpg)](https://www.youtube.com/watch?v=QQtALoxkt94)
-1.  [【後藤達也vs河野×唐鎌】経済衰退の戦犯は？本気で日本経済を語る【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/2JWH_cTgEcM "wikilink")
-    -   公開日: 2025-09-28
-    -   視聴数: 159,513
-    -   **いいね数: 2,425**
-    -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
-    - [![](https://img.youtube.com/vi/2JWH_cTgEcM/hqdefault.jpg)](https://www.youtube.com/watch?v=2JWH_cTgEcM)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 83, 視聴数: 10,968,703, いいね数: 224,651
+-   動画数: 85, 視聴数: 11,042,730, いいね数: 225,928
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -98,7 +98,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,119,295, いいね数: 355,984
+-   動画数: 76, 視聴数: 20,123,986, いいね数: 356,072
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,754,192, いいね数: 193,232
+-   動画数: 63, 視聴数: 14,759,565, いいね数: 193,262
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -150,27 +150,27 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,498,521, いいね数: 141,243
+-   動画数: 31, 視聴数: 10,498,644, いいね数: 141,246
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,426,823, いいね数: 79,248
+-   動画数: 29, 視聴数: 6,426,836, いいね数: 79,247
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,362,903, いいね数: 98,510
+-   動画数: 34, 視聴数: 9,363,008, いいね数: 98,511
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,050,631, いいね数: 109,453
+-   動画数: 44, 視聴数: 9,050,901, いいね数: 109,455
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,025,187, いいね数: 186,306
+-   動画数: 34, 視聴数: 15,025,320, いいね数: 186,306
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,294,057, いいね数: 118,180
+-   動画数: 30, 視聴数: 9,294,068, いいね数: 118,180
 
 #### [2023年12月](videos/202312 "wikilink")
 
@@ -213,4 +213,4 @@
 -   動画数: 14, 視聴数: 7,825,512, いいね数: 141,077
 
 ---
-2025-09-30 07:00
+2025-09-30 12:00
