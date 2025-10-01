@@ -1,31 +1,31 @@
 1.  [【緊急生配信】大激論！自民党総裁選…なぜ総裁にその人推すんですか？【ReHacQvs総裁選】](/rehacq_fan/ids/W4IRKZK_dU0 "wikilink")
     -   公開日: 2025-10-01
-    -   視聴数: 27,789
-    -   **いいね数: 561**
-    -   出演者: 
+    -   視聴数: 39,713
+    -   **いいね数: 936**
+    -   出演者: 山田賢司, [片山さつき](/rehacq_fan/people/片山さつき "wikilink"), 白坂リサ, 神田潤一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 金子容三, 鈴木貴子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/W4IRKZK_dU0/hqdefault.jpg)](https://www.youtube.com/watch?v=W4IRKZK_dU0)
 1.  [【ひろゆきvs障害者就労】障害者就労の闇…跋扈する悪徳業者と障害者ビジネスの実態とは…？【ReHacQ高橋弘樹】](/rehacq_fan/ids/7X8OsEvmsk8 "wikilink")
     -   公開日: 2025-10-01
-    -   視聴数: 10,334
-    -   **いいね数: 613**
-    -   出演者: 
+    -   視聴数: 18,241
+    -   **いいね数: 868**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 中島隆信, 白石圭太郎, 竹村利道, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/7X8OsEvmsk8/hqdefault.jpg)](https://www.youtube.com/watch?v=7X8OsEvmsk8)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/GYwruDDggvs "wikilink")
     -   公開日: 2025-10-01
-    -   視聴数: 3,157
-    -   **いいね数: 37**
-    -   出演者: 
+    -   視聴数: 3,497
+    -   **いいね数: 38**
+    -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/GYwruDDggvs/hqdefault.jpg)](https://www.youtube.com/watch?v=GYwruDDggvs)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/1RotC8T8Jt4 "wikilink")
     -   公開日: 2025-10-01
-    -   視聴数: 4,940
-    -   **いいね数: 68**
-    -   出演者: 
+    -   視聴数: 5,233
+    -   **いいね数: 70**
+    -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/1RotC8T8Jt4/hqdefault.jpg)](https://www.youtube.com/watch?v=1RotC8T8Jt4)
 1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
     -   公開日: 2025-09-30
-    -   視聴数: 162,844
-    -   **いいね数: 2,587**
+    -   視聴数: 168,194
+    -   **いいね数: 2,617**
     -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MBD3k2kLnD8/hqdefault.jpg)](https://www.youtube.com/watch?v=MBD3k2kLnD8)
 
