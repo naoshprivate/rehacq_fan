@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/26pk3dR-ctM/sddefault.jpg)](https://www.youtube.com/watch?v=26pk3dR-ctM)
 -   公開日: 2025-02-14
 -   視聴数: 108,267
--   **いいね数: 826**
+-   **いいね数: 825**
 -   出演者: 重徳和彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
