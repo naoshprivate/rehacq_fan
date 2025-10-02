@@ -3,4 +3,4 @@
 -   公開日: 2023-09-10
 -   視聴数: 560,057
 -   **いいね数: 8,429**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 伊佐進一
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink")
