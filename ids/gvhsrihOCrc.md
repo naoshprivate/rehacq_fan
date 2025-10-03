@@ -1,6 +1,6 @@
-### [【ReHacQ生配信】激論！高市早苗の野望とは【高橋弘樹】](https://www.youtube.com/watch?v=gvhsrihOCrc)
+### [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](https://www.youtube.com/watch?v=gvhsrihOCrc)
 [![](https://img.youtube.com/vi/gvhsrihOCrc/sddefault.jpg)](https://www.youtube.com/watch?v=gvhsrihOCrc)
 -   公開日: 2025-09-26
--   視聴数: 628,961
--   **いいね数: 21,055**
+-   視聴数: 740,685
+-   **いいね数: 22,348**
 -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
