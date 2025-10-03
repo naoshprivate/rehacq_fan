@@ -1,31 +1,31 @@
+1.  [【ひろゆきvs須賀川】衝撃「眼球が破裂」医師が証言…ガザで何を見た？記者絶句【藤井サチ】](/rehacq_fan/ids/9LtEmpFXRHo "wikilink")
+    -   公開日: 2025-10-03
+    -   視聴数: 8,728
+    -   **いいね数: 336**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+    - [![](https://img.youtube.com/vi/9LtEmpFXRHo/hqdefault.jpg)](https://www.youtube.com/watch?v=9LtEmpFXRHo)
 1.  [【次期総理は誰だ！？】自民党総裁選の経済政策を徹底比較！物価高・社会保障・賃上げ…日本経済の未来は？【会田卓司＆永濱利廣＆森本智子】](/rehacq_fan/ids/9gT8lq2KAYk "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 15,639
-    -   **いいね数: 381**
-    -   出演者: 
+    -   視聴数: 22,601
+    -   **いいね数: 460**
+    -   出演者: 会田卓司, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/9gT8lq2KAYk/hqdefault.jpg)](https://www.youtube.com/watch?v=9gT8lq2KAYk)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月3日（金）【ReHacQ】](/rehacq_fan/ids/vmARaVa65Uo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 5,890
-    -   **いいね数: 40**
-    -   出演者: 
+    -   視聴数: 6,045
+    -   **いいね数: 41**
+    -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/vmARaVa65Uo/hqdefault.jpg)](https://www.youtube.com/watch?v=vmARaVa65Uo)
 1.  [【緊急生配信】激論！落選議員が語る自民党総裁選とは【ReHacQvs総裁選】](/rehacq_fan/ids/uFdhDYt7QSs "wikilink")
     -   公開日: 2025-10-02
-    -   視聴数: 211,366
-    -   **いいね数: 4,610**
+    -   視聴数: 216,640
+    -   **いいね数: 4,716**
     -   出演者: 丸川珠代, [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 伊藤菜々, 東修平, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 門ひろこ, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uFdhDYt7QSs/hqdefault.jpg)](https://www.youtube.com/watch?v=uFdhDYt7QSs)
 1.  [【後藤達也vs河野×唐鎌②】日本経済の真実…失われた30年は本当に失敗？【ReHacQ高橋弘樹vsみずほ銀行vs BNPパリバ証券】](/rehacq_fan/ids/7FqLPuqIo4o "wikilink")
     -   公開日: 2025-10-02
-    -   視聴数: 98,795
-    -   **いいね数: 2,058**
+    -   視聴数: 100,873
+    -   **いいね数: 2,111**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
     - [![](https://img.youtube.com/vi/7FqLPuqIo4o/hqdefault.jpg)](https://www.youtube.com/watch?v=7FqLPuqIo4o)
-1.  [【生配信】チームみらい・安野代表定例会見 10月2日（木）【ReHacQ】](/rehacq_fan/ids/tM_MntR9frw "wikilink")
-    -   公開日: 2025-10-02
-    -   視聴数: 30,636
-    -   **いいね数: 825**
-    -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
-    - [![](https://img.youtube.com/vi/tM_MntR9frw/hqdefault.jpg)](https://www.youtube.com/watch?v=tM_MntR9frw)
 
