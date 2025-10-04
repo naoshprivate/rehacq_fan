@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【高橋弘樹vs伝説のバリキャリ】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任...なぜ？56歳で見つけた幸福論とは？【ReHacQ】](/rehacq_fan/ids/VB_OGd38ylA "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 1
-    -   **いいね数: 17**
+    -   視聴数: 2,445
+    -   **いいね数: 75**
     -   出演者: 
     - [![](https://img.youtube.com/vi/VB_OGd38ylA/hqdefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
 1.  [【ひろゆきvs須賀川】衝撃「眼球が破裂」医師が証言…ガザで何を見た？記者絶句【藤井サチ】](/rehacq_fan/ids/9LtEmpFXRHo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 56,806
-    -   **いいね数: 1,379**
+    -   視聴数: 59,064
+    -   **いいね数: 1,432**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9LtEmpFXRHo/hqdefault.jpg)](https://www.youtube.com/watch?v=9LtEmpFXRHo)
 1.  [【次期総理は誰か!?】自民党総裁選の経済政策を徹底比較！物価高・社会保障・賃上げ…日本経済の未来は？【会田卓司＆永濱利廣＆森本智子】](/rehacq_fan/ids/9gT8lq2KAYk "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 45,806
-    -   **いいね数: 737**
+    -   視聴数: 46,939
+    -   **いいね数: 757**
     -   出演者: 会田卓司, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/9gT8lq2KAYk/hqdefault.jpg)](https://www.youtube.com/watch?v=9gT8lq2KAYk)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月3日（金）【ReHacQ】](/rehacq_fan/ids/vmARaVa65Uo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 8,392
+    -   視聴数: 8,541
     -   **いいね数: 48**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/vmARaVa65Uo/hqdefault.jpg)](https://www.youtube.com/watch?v=vmARaVa65Uo)
 1.  [【緊急生配信】激論！落選議員が語る自民党総裁選とは【ReHacQvs総裁選】](/rehacq_fan/ids/uFdhDYt7QSs "wikilink")
     -   公開日: 2025-10-02
-    -   視聴数: 252,747
-    -   **いいね数: 5,162**
+    -   視聴数: 255,408
+    -   **いいね数: 5,191**
     -   出演者: 丸川珠代, [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 伊藤菜々, 東修平, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 門ひろこ, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/uFdhDYt7QSs/hqdefault.jpg)](https://www.youtube.com/watch?v=uFdhDYt7QSs)
 
@@ -90,35 +90,35 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 11, 視聴数: 1,091,793, いいね数: 18,898
+-   動画数: 12, 視聴数: 1,104,058, いいね数: 19,144
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,083,034, いいね数: 238,461
+-   動画数: 87, 視聴数: 12,090,497, いいね数: 238,589
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,449,352, いいね数: 248,022
+-   動画数: 64, 視聴数: 13,449,725, いいね数: 248,025
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,184,502, いいね数: 356,567
+-   動画数: 76, 視聴数: 20,184,731, いいね数: 356,568
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,614,863, いいね数: 287,612
+-   動画数: 77, 視聴数: 15,616,694, いいね数: 287,633
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,785,011, いいね数: 193,481
+-   動画数: 63, 視聴数: 14,785,618, いいね数: 193,485
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,473,757, いいね数: 342,484
+-   動画数: 58, 視聴数: 21,477,559, いいね数: 342,525
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 13,973,792, いいね数: 248,803
+-   動画数: 61, 視聴数: 13,977,728, いいね数: 248,855
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -130,7 +130,7 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,262,497, いいね数: 308,280
+-   動画数: 60, 視聴数: 18,262,613, いいね数: 308,280
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -210,11 +210,11 @@
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,489,981, いいね数: 103,143
+-   動画数: 28, 視聴数: 6,490,116, いいね数: 103,146
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 7,834,705, いいね数: 141,095
 
 ---
-2025-10-04 12:00
+2025-10-04 13:00
