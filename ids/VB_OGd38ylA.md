@@ -1,0 +1,6 @@
+### [【高橋弘樹vs伝説のバリキャリ】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任...なぜ？56歳で見つけた幸福論とは？【ReHacQ】](https://www.youtube.com/watch?v=VB_OGd38ylA)
+[![](https://img.youtube.com/vi/VB_OGd38ylA/sddefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
+-   公開日: 2025-10-04
+-   視聴数: 1
+-   **いいね数: 17**
+-   出演者: 
