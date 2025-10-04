@@ -1,6 +1,6 @@
-### [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任...なぜ？56歳で見つけた幸福論とは？【ReHacQ】](https://www.youtube.com/watch?v=VB_OGd38ylA)
+### [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任なぜ？56歳で見つけた幸福論とは？【ReHacQ】](https://www.youtube.com/watch?v=VB_OGd38ylA)
 [![](https://img.youtube.com/vi/VB_OGd38ylA/sddefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
 -   公開日: 2025-10-04
--   視聴数: 23,855
--   **いいね数: 472**
+-   視聴数: 26,354
+-   **いいね数: 508**
 -   出演者: 

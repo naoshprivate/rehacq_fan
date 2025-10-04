@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任...なぜ？56歳で見つけた幸福論とは？【ReHacQ】](/rehacq_fan/ids/VB_OGd38ylA "wikilink")
+1.  [【高橋弘樹vs辻田真佐憲】総裁選で露見！騙されるな…民主主義を破壊するブラックプロパガンダを徹底研究！ヒトラー「意志の勝利」&米軍諜報機関の衝撃手口【ReHacQ】](/rehacq_fan/ids/gzIAvQsK2is "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 23,855
-    -   **いいね数: 472**
+    -   視聴数: 6,859
+    -   **いいね数: 147**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/gzIAvQsK2is/hqdefault.jpg)](https://www.youtube.com/watch?v=gzIAvQsK2is)
+1.  [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任なぜ？56歳で見つけた幸福論とは？【ReHacQ】](/rehacq_fan/ids/VB_OGd38ylA "wikilink")
+    -   公開日: 2025-10-04
+    -   視聴数: 26,354
+    -   **いいね数: 508**
     -   出演者: 
     - [![](https://img.youtube.com/vi/VB_OGd38ylA/hqdefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
 1.  [【ひろゆきvs須賀川】衝撃「眼球が破裂」医師が証言…ガザで何を見た？記者絶句【藤井サチ】](/rehacq_fan/ids/9LtEmpFXRHo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 70,892
-    -   **いいね数: 1,669**
+    -   視聴数: 72,073
+    -   **いいね数: 1,704**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9LtEmpFXRHo/hqdefault.jpg)](https://www.youtube.com/watch?v=9LtEmpFXRHo)
 1.  [【次期総理は誰か!?】自民党総裁選の経済政策を徹底比較！物価高・社会保障・賃上げ…日本経済の未来は？【会田卓司＆永濱利廣＆森本智子】](/rehacq_fan/ids/9gT8lq2KAYk "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 51,927
-    -   **いいね数: 800**
+    -   視聴数: 52,490
+    -   **いいね数: 807**
     -   出演者: 会田卓司, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/9gT8lq2KAYk/hqdefault.jpg)](https://www.youtube.com/watch?v=9gT8lq2KAYk)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月3日（金）【ReHacQ】](/rehacq_fan/ids/vmARaVa65Uo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 9,178
+    -   視聴数: 9,250
     -   **いいね数: 49**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/vmARaVa65Uo/hqdefault.jpg)](https://www.youtube.com/watch?v=vmARaVa65Uo)
-1.  [【緊急生配信】激論！落選議員が語る自民党総裁選とは【ReHacQvs総裁選】](/rehacq_fan/ids/uFdhDYt7QSs "wikilink")
-    -   公開日: 2025-10-02
-    -   視聴数: 268,990
-    -   **いいね数: 5,371**
-    -   出演者: 丸川珠代, [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 伊藤菜々, 東修平, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 門ひろこ, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/uFdhDYt7QSs/hqdefault.jpg)](https://www.youtube.com/watch?v=uFdhDYt7QSs)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 12, 視聴数: 1,178,146, いいね数: 20,313
+-   動画数: 13, 視聴数: 1,192,278, いいね数: 20,589
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,090,862, いいね数: 238,591
+-   動画数: 87, 視聴数: 12,109,506, いいね数: 238,807
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,454,496, いいね数: 248,073
+-   動画数: 64, 視聴数: 13,454,645, いいね数: 248,072
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,185,059, いいね数: 356,567
+-   動画数: 76, 視聴数: 20,189,630, いいね数: 356,650
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -110,7 +110,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,786,339, いいね数: 193,493
+-   動画数: 63, 視聴数: 14,797,033, いいね数: 193,584
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -170,15 +170,15 @@
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,052,790, いいね数: 186,525
+-   動画数: 34, 視聴数: 15,052,840, いいね数: 186,526
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,298,148, いいね数: 118,204
+-   動画数: 30, 視聴数: 9,298,212, いいね数: 118,204
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,279,574, いいね数: 119,887
+-   動画数: 30, 視聴数: 9,279,658, いいね数: 119,890
 
 #### [2023年11月](videos/202311 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,834,705, いいね数: 141,095
 
 ---
-2025-10-04 20:00
+2025-10-04 21:00
