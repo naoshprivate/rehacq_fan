@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【緊急生配信】高市早苗総裁で自民党どうなる？総裁選まったり雑談 【ReHacQ】](/rehacq_fan/ids/KcpmK1qnGQM "wikilink")
     -   公開日: 2025-10-05
-    -   視聴数: 31,036
-    -   **いいね数: 1,501**
+    -   視聴数: 109,310
+    -   **いいね数: 2,760**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), 大空こうき, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/KcpmK1qnGQM/hqdefault.jpg)](https://www.youtube.com/watch?v=KcpmK1qnGQM)
 1.  [【ひろゆきvs太田光代】「離婚直前に…」なぜ？妻から見た夫、爆笑問題太田光とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/GFMP7ekVVo8 "wikilink")
     -   公開日: 2025-10-05
-    -   視聴数: 46,159
-    -   **いいね数: 1,004**
+    -   視聴数: 71,415
+    -   **いいね数: 1,280**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 太田光代
     - [![](https://img.youtube.com/vi/GFMP7ekVVo8/hqdefault.jpg)](https://www.youtube.com/watch?v=GFMP7ekVVo8)
 1.  [【高橋弘樹vs箕輪厚介】秩父で満月にお祈り巡礼！自己反省と浄化…人生観が変わる観音めぐり【ReHacQ旅】](/rehacq_fan/ids/LLZH7j5UFgo "wikilink")
     -   公開日: 2025-10-05
-    -   視聴数: 31,380
-    -   **いいね数: 1,017**
+    -   視聴数: 34,342
+    -   **いいね数: 1,051**
     -   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/LLZH7j5UFgo/hqdefault.jpg)](https://www.youtube.com/watch?v=LLZH7j5UFgo)
 1.  [【高橋弘樹vs辻田真佐憲】総裁選で露見！騙されるな…民主主義を破壊するブラックプロパガンダを徹底研究！ヒトラー「意志の勝利」&米軍諜報機関の衝撃手口【ReHacQ】](/rehacq_fan/ids/gzIAvQsK2is "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 87,822
-    -   **いいね数: 1,483**
+    -   視聴数: 90,773
+    -   **いいね数: 1,506**
     -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gzIAvQsK2is/hqdefault.jpg)](https://www.youtube.com/watch?v=gzIAvQsK2is)
 1.  [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任なぜ？56歳で見つけた幸福論とは？【ReHacQ】](/rehacq_fan/ids/VB_OGd38ylA "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 55,324
-    -   **いいね数: 991**
+    -   視聴数: 56,920
+    -   **いいね数: 1,010**
     -   出演者: 権藤嘉江子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/VB_OGd38ylA/hqdefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 16, 視聴数: 1,479,080, いいね数: 26,899
+-   動画数: 16, 視聴数: 1,594,149, いいね数: 28,547
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,339,268, いいね数: 241,141
+-   動画数: 87, 視聴数: 12,339,345, いいね数: 241,141
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,483,007, いいね数: 248,300
+-   動画数: 64, 視聴数: 13,483,987, いいね数: 248,300
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,215,389, いいね数: 356,939
+-   動画数: 76, 視聴数: 20,216,570, いいね数: 356,939
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -150,11 +150,11 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,628,168, いいね数: 290,444
+-   動画数: 44, 視聴数: 15,628,546, いいね数: 290,445
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,507,057, いいね数: 141,293
+-   動画数: 31, 視聴数: 10,508,214, いいね数: 141,301
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -202,19 +202,19 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,757,678, いいね数: 94,987
+-   動画数: 27, 視聴数: 7,757,701, いいね数: 94,987
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,290,152, いいね数: 112,055
+-   動画数: 24, 視聴数: 7,290,175, いいね数: 112,055
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,490,319, いいね数: 103,145
+-   動画数: 28, 視聴数: 6,490,369, いいね数: 103,146
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 7,836,746, いいね数: 141,097
 
 ---
-2025-10-05 23:00
+2025-10-06 01:00
