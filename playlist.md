@@ -11,23 +11,23 @@
     -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【優秀な人ほど失敗する】できるプレーヤーがなぜ？３万人の研修実績で磨かれた部下のマネジメント法とは？【肉乃小路ニクヨ】](/rehacq_fan/ids/RQx0Se_RJi4 "wikilink")
     -   公開日: 2025-08-29
-    -   視聴数: 46,072
-    -   **いいね数: 661**
+    -   視聴数: 46,353
+    -   **いいね数: 663**
     -   出演者: 橋本拓也, [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink")
 1.  [【情報格差が子供の進路に直結】大学入試も視野に！？経験者ママたちが教えるコスパ・タイパ最強の中学受験とは？【呂布カルマ】](/rehacq_fan/ids/-1nRgmMLc0U "wikilink")
     -   公開日: 2025-08-26
-    -   視聴数: 49,780
-    -   **いいね数: 432**
+    -   視聴数: 50,253
+    -   **いいね数: 434**
     -   出演者: 中村祥子, 佐野倫子, [呂布カルマ](/rehacq_fan/people/呂布カルマ "wikilink"), 宮本さおり
 1.  [【斉藤幸平vsイスラエル】200人が殺害…なぜ世界はパレスチナに沈黙するのか_パレスチナ問題の真実【ReHacQ】](/rehacq_fan/ids/sDwgzxWvwwg "wikilink")
     -   公開日: 2025-08-25
-    -   視聴数: 41,539
-    -   **いいね数: 708**
+    -   視聴数: 41,790
+    -   **いいね数: 710**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [箱田徹](/rehacq_fan/people/箱田徹 "wikilink")
 1.  [【高橋弘樹vs長尾一洋】兵法書「孫子」から学ぶ！現代企業の経営戦略とは…!?【孫子兵法家】](/rehacq_fan/ids/BAE7mqXcRNI "wikilink")
     -   公開日: 2025-08-23
-    -   視聴数: 45,993
-    -   **いいね数: 649**
+    -   視聴数: 46,114
+    -   **いいね数: 650**
     -   出演者: 長尾一洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参政党と金】なぜ？参政党のお金の流れを徹底研究【ReHacQ高橋弘樹】](/rehacq_fan/ids/PBFyp-7cJdo "wikilink")
     -   公開日: 2025-08-10
@@ -1581,32 +1581,32 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岸田総理vs自民党】意味なし!?派閥解消の罠【西田亮介】](/rehacq_fan/ids/1DcTnmbPmzM "wikilink")
     -   公開日: 2024-01-20
-    -   視聴数: 121,982
+    -   視聴数: 122,034
     -   **いいね数: 1,942**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【西田亮介vs国民民主党】衝撃！永田町で働く女性リアル【なぜ女性議員増えない？】](/rehacq_fan/ids/cNXaPKT8MMI "wikilink")
     -   公開日: 2024-01-19
-    -   視聴数: 114,339
+    -   視聴数: 114,371
     -   **いいね数: 1,785**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【川上量生vs 野村泰紀】おじさん3人！仙台旅【斎藤幸平】](/rehacq_fan/ids/aWIbpn0pXLM "wikilink")
     -   公開日: 2023-12-30
-    -   視聴数: 57,333
+    -   視聴数: 57,371
     -   **いいね数: 1,109**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
 1.  [【川上量生vs斎藤幸平】「受験と大学教育」…徹底議論【N高の逆襲!?】](/rehacq_fan/ids/kcOwtRQjXk0 "wikilink")
     -   公開日: 2023-12-02
-    -   視聴数: 145,770
-    -   **いいね数: 2,202**
+    -   視聴数: 145,865
+    -   **いいね数: 2,201**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
 1.  [【川上量生vs脱成長】仙台で高級ホテル！マルクス主義者が激怒【南三陸グルメ旅】](/rehacq_fan/ids/lkPNZHjrorc "wikilink")
     -   公開日: 2023-11-26
-    -   視聴数: 106,467
-    -   **いいね数: 1,779**
+    -   視聴数: 106,511
+    -   **いいね数: 1,780**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ東電辞めた？】元東電マンと行く…福島原発20km圏内の旅【斎藤幸平vs野村泰紀】](/rehacq_fan/ids/R0u-1MMZtes "wikilink")
     -   公開日: 2023-11-19
-    -   視聴数: 110,899
+    -   視聴数: 110,927
     -   **いいね数: 2,494**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsスザンヌ】祝！ちょっぴり重大発表 & まったり雑談【日本一ゆるいビジネス番組】](/rehacq_fan/ids/_Sc1dUY3UOQ "wikilink")
@@ -1616,117 +1616,117 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【福島原発の旅】田んぼにカエルが！日常の奇跡味わう復興旅【デカ盛り！海鮮丼】](/rehacq_fan/ids/dHoeKd7UDeE "wikilink")
     -   公開日: 2023-11-10
-    -   視聴数: 67,094
+    -   視聴数: 67,127
     -   **いいね数: 1,620**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【巨大石炭タウン】「資本主義サイコー！」マルクス主義者が唸った伊勢エビ【斎藤幸平&野村泰紀】](/rehacq_fan/ids/vJKhCj05sbQ "wikilink")
     -   公開日: 2023-11-03
-    -   視聴数: 111,402
+    -   視聴数: 111,483
     -   **いいね数: 2,251**
     -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【パレスチナ大使単独インタビュー】ガザで何が？【イスラエルとの関係は？】](/rehacq_fan/ids/vn-2dy3Ubfc "wikilink")
     -   公開日: 2023-10-20
-    -   視聴数: 325,377
-    -   **いいね数: 10,309**
+    -   視聴数: 325,641
+    -   **いいね数: 10,312**
     -   出演者: ワリード・シアム
 1.  [【イスラエル大使単独インタビュー】なぜ地上侵攻？【パレスチナ問題】](/rehacq_fan/ids/xT2B7Y0xIHs "wikilink")
     -   公開日: 2023-10-20
-    -   視聴数: 239,940
+    -   視聴数: 240,023
     -   **いいね数: 6,326**
     -   出演者: [ギラッド・コーヘン](/rehacq_fan/people/ギラッド・コーヘン "wikilink")
 1.  [【後藤達也vs若新雄純vs高橋弘樹】ReHacQの行方！まったり雑談](/rehacq_fan/ids/-5oG_yIHFvo "wikilink")
     -   公開日: 2023-10-15
-    -   視聴数: 397,608
+    -   視聴数: 397,646
     -   **いいね数: 4,929**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [若新雄純](/rehacq_fan/people/若新雄純 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
-    -   視聴数: 1,827,413
-    -   **いいね数: 23,698**
+    -   視聴数: 1,827,720
+    -   **いいね数: 23,702**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【ジャニーズ会見】なぜ廃業？東山紀之、井ノ原快彦が説明【テロップ入りノーカット】](/rehacq_fan/ids/qgC00hSxTFw "wikilink")
     -   公開日: 2023-10-02
-    -   視聴数: 114,991
+    -   視聴数: 114,997
     -   **いいね数: 1,360**
     -   出演者: 
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,011,622
-    -   **いいね数: 15,573**
+    -   視聴数: 1,011,746
+    -   **いいね数: 15,575**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsしたらば元運営】なぜひろゆきは人を怒らせる？【赤裸々本音トーク】](/rehacq_fan/ids/5WdasRETWsA "wikilink")
     -   公開日: 2023-09-24
-    -   視聴数: 241,859
-    -   **いいね数: 2,626**
+    -   視聴数: 241,922
+    -   **いいね数: 2,627**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 古川健介
 1.  [【ひろゆきvsけんすう】やりたい事見つからないと嘆く人へ！【まったり人生相談】](/rehacq_fan/ids/vuTp4IOetF0 "wikilink")
     -   公開日: 2023-09-17
-    -   視聴数: 420,786
-    -   **いいね数: 4,522**
+    -   視聴数: 420,911
+    -   **いいね数: 4,520**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 古川健介
 1.  [【水曜どうでしょうvs元テレ東】弱者のヒット戦略【クリエイター秘話】](/rehacq_fan/ids/cicefIujc2E "wikilink")
     -   公開日: 2023-09-13
-    -   視聴数: 657,939
-    -   **いいね数: 5,701**
+    -   視聴数: 660,790
+    -   **いいね数: 5,725**
     -   出演者: 嬉野雅道, 藤村忠寿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs国民民主党】どう変わる？代表選候補者ぶっちゃけ本音トーク](/rehacq_fan/ids/ljAjC80089I "wikilink")
     -   公開日: 2023-09-01
-    -   視聴数: 349,583
-    -   **いいね数: 3,743**
+    -   視聴数: 349,717
+    -   **いいね数: 3,744**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [前原誠司](/rehacq_fan/people/前原誠司 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [リハックマ完成披露会](/rehacq_fan/ids/2AucK-CCluc "wikilink")
     -   公開日: 2023-09-01
-    -   視聴数: 62,874
+    -   視聴数: 62,886
     -   **いいね数: 2,639**
     -   出演者: 
 1.  [【「水曜どうでしょう？」のD】藤村&嬉野Dとまったり雑談【金ないテレビ局で好き勝手にやるには？】](/rehacq_fan/ids/6PSaff90K2c "wikilink")
     -   公開日: 2023-08-25
-    -   視聴数: 67,318
-    -   **いいね数: 875**
+    -   視聴数: 67,381
+    -   **いいね数: 876**
     -   出演者: 嬉野雅道, 藤村忠寿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹 vs AIで人件費圧縮】USENから分社化した謎の企業【社内ベンチャー成功の秘密】](/rehacq_fan/ids/oRwpHDmeql0 "wikilink")
     -   公開日: 2023-08-23
-    -   視聴数: 38,106
+    -   視聴数: 38,108
     -   **いいね数: 756**
     -   出演者: 溝辺和広, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,103,857
-    -   **いいね数: 12,509**
+    -   視聴数: 1,104,381
+    -   **いいね数: 12,511**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【ひろゆきvs加納裕三】Web3で騙されないために【ブロックチェーンとは？】](/rehacq_fan/ids/ZuX2n1s_0rQ "wikilink")
     -   公開日: 2023-08-18
-    -   視聴数: 407,342
-    -   **いいね数: 3,937**
+    -   視聴数: 407,871
+    -   **いいね数: 3,938**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [加納裕三](/rehacq_fan/people/加納裕三 "wikilink")
 1.  [【田原総一朗の少年時代】10歳で軍事教練！大人はウソつきと思ったワケ【第二次世界大戦】](/rehacq_fan/ids/1GrOoAiVZxo "wikilink")
     -   公開日: 2023-08-15
-    -   視聴数: 231,929
-    -   **いいね数: 3,486**
+    -   視聴数: 232,037
+    -   **いいね数: 3,487**
     -   出演者: [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink")
 1.  [【ひろゆきvs国山ハセン】お盆のまったり雑談【世界の果てにひろゆき置いてきた】](/rehacq_fan/ids/3cdFlWHZkMg "wikilink")
     -   公開日: 2023-08-13
-    -   視聴数: 111,077
+    -   視聴数: 111,084
     -   **いいね数: 1,285**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [国山ハセン](/rehacq_fan/people/国山ハセン "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs成田修造】孤独を生む！終身雇用の罠【シン・幸福論】](/rehacq_fan/ids/M7o3Iu0Ccco "wikilink")
     -   公開日: 2023-08-08
-    -   視聴数: 303,230
+    -   視聴数: 303,304
     -   **いいね数: 3,811**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【ひろゆきvs砂漠】真夏のまったり生配信【YOUはなぜアフリカに？】](/rehacq_fan/ids/cavQIeQEPAc "wikilink")
     -   公開日: 2023-08-05
-    -   視聴数: 335,626
-    -   **いいね数: 3,630**
+    -   視聴数: 335,664
+    -   **いいね数: 3,631**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【マルクス主義者vs資本家】メディア&科学リテラシー講座【ReHacQ！高校出張授業】](/rehacq_fan/ids/N-QvIzuwk8s "wikilink")
     -   公開日: 2023-08-04
-    -   視聴数: 302,978
+    -   視聴数: 303,036
     -   **いいね数: 4,204**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
 1.  [【ひろゆきvs成田悠輔の弟】成田家の秘密…真の幸せって？【成田修造…壮絶過去】](/rehacq_fan/ids/uqFFjJo3Lsk "wikilink")
     -   公開日: 2023-08-02
-    -   視聴数: 382,192
+    -   視聴数: 382,331
     -   **いいね数: 4,794**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【成田悠輔も提唱】EBPMとは何か？少子化政策の真相に迫る【自民党・岸田政権の少子化政策】](/rehacq_fan/ids/bsl1LASqwEs "wikilink")
