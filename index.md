@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ひろゆきvs太田光代】「離婚直前に…」なぜ？妻から見た夫、爆笑問題太田光とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/GFMP7ekVVo8 "wikilink")
+    -   公開日: 2025-10-05
+    -   視聴数: 6,497
+    -   **いいね数: 151**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/GFMP7ekVVo8/hqdefault.jpg)](https://www.youtube.com/watch?v=GFMP7ekVVo8)
 1.  [【高橋弘樹vs箕輪厚介】秩父で満月にお祈り巡礼！自己反省と浄化…人生観が変わる観音めぐり【ReHacQ旅】](/rehacq_fan/ids/LLZH7j5UFgo "wikilink")
     -   公開日: 2025-10-05
-    -   視聴数: 2,093
-    -   **いいね数: 143**
-    -   出演者: 
+    -   視聴数: 21,748
+    -   **いいね数: 881**
+    -   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/LLZH7j5UFgo/hqdefault.jpg)](https://www.youtube.com/watch?v=LLZH7j5UFgo)
 1.  [【高橋弘樹vs辻田真佐憲】総裁選で露見！騙されるな…民主主義を破壊するブラックプロパガンダを徹底研究！ヒトラー「意志の勝利」&米軍諜報機関の衝撃手口【ReHacQ】](/rehacq_fan/ids/gzIAvQsK2is "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 62,913
-    -   **いいね数: 1,110**
-    -   出演者: 
+    -   視聴数: 80,540
+    -   **いいね数: 1,406**
+    -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/gzIAvQsK2is/hqdefault.jpg)](https://www.youtube.com/watch?v=gzIAvQsK2is)
 1.  [【高橋弘樹vsオンナ半沢直樹②】三菱銀行辞めCEO20年...人生幸せ！なのに社長退任なぜ？56歳で見つけた幸福論とは？【ReHacQ】](/rehacq_fan/ids/VB_OGd38ylA "wikilink")
     -   公開日: 2025-10-04
-    -   視聴数: 44,371
-    -   **いいね数: 799**
-    -   出演者: 
+    -   視聴数: 52,332
+    -   **いいね数: 937**
+    -   出演者: 権藤嘉江子, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/VB_OGd38ylA/hqdefault.jpg)](https://www.youtube.com/watch?v=VB_OGd38ylA)
 1.  [【ひろゆきvs須賀川】衝撃「眼球が破裂」医師が証言…ガザで何を見た？記者絶句【藤井サチ】](/rehacq_fan/ids/9LtEmpFXRHo "wikilink")
     -   公開日: 2025-10-03
-    -   視聴数: 83,524
-    -   **いいね数: 1,933**
+    -   視聴数: 88,520
+    -   **いいね数: 2,035**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/9LtEmpFXRHo/hqdefault.jpg)](https://www.youtube.com/watch?v=9LtEmpFXRHo)
-1.  [【次期総理は誰か!?】自民党総裁選の経済政策を徹底比較！物価高・社会保障・賃上げ…日本経済の未来は？【会田卓司＆永濱利廣＆森本智子】](/rehacq_fan/ids/9gT8lq2KAYk "wikilink")
-    -   公開日: 2025-10-03
-    -   視聴数: 57,456
-    -   **いいね数: 860**
-    -   出演者: 会田卓司, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/9gT8lq2KAYk/hqdefault.jpg)](https://www.youtube.com/watch?v=9gT8lq2KAYk)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 14, 視聴数: 1,312,622, いいね数: 22,605
+-   動画数: 15, 視聴数: 1,381,650, いいね数: 24,184
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -98,15 +98,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,465,059, いいね数: 248,173
+-   動画数: 64, 視聴数: 13,468,569, いいね数: 248,186
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,196,265, いいね数: 356,725
+-   動画数: 76, 視聴数: 20,196,522, いいね数: 356,726
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,618,748, いいね数: 287,640
+-   動画数: 77, 視聴数: 15,620,526, いいね数: 287,677
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -130,11 +130,11 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,278,801, いいね数: 308,405
+-   動画数: 60, 視聴数: 18,279,532, いいね数: 308,407
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,641,657, いいね数: 374,768
+-   動画数: 37, 視聴数: 21,644,103, いいね数: 374,778
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -162,15 +162,15 @@
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,372,344, いいね数: 98,554
+-   動画数: 34, 視聴数: 9,373,227, いいね数: 98,554
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,063,004, いいね数: 109,540
+-   動画数: 44, 視聴数: 9,063,375, いいね数: 109,542
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,052,994, いいね数: 186,526
+-   動画数: 34, 視聴数: 15,053,075, いいね数: 186,527
 
 #### [2024年01月](videos/202401 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,836,746, いいね数: 141,097
 
 ---
-2025-10-05 13:00
+2025-10-05 20:00
