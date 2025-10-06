@@ -372,8 +372,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
-    -   視聴数: 803,998
-    -   **いいね数: 16,086**
+    -   視聴数: 804,168
+    -   **いいね数: 16,087**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【石丸伸二vs暇空茜】なぜ対談？都知事選どうなる？ 【ReHacQ SP】](/rehacq_fan/ids/LyfcqUBmBlc "wikilink")
     -   公開日: 2024-06-15
@@ -432,8 +432,8 @@
     -   出演者: パックン, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](/rehacq_fan/ids/sXNTlkaZOYo "wikilink")
     -   公開日: 2025-07-15
-    -   視聴数: 734,029
-    -   **いいね数: 15,339**
+    -   視聴数: 734,425
+    -   **いいね数: 15,343**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
