@@ -3,4 +3,4 @@
 -   公開日: 2025-04-09
 -   視聴数: 287,752
 -   **いいね数: 1,932**
--   出演者: [須黒清華](/rehacq_fan/people/須黒清華 "wikilink"), 高口康太
+-   出演者: [須黒清華](/rehacq_fan/people/須黒清華 "wikilink"), [高口康太](/rehacq_fan/people/高口康太 "wikilink")
