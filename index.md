@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 26,057
-    -   **いいね数: 1,830**
+    -   視聴数: 91,960
+    -   **いいね数: 4,559**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/0BV-ZkN2Q8o/hqdefault.jpg)](https://www.youtube.com/watch?v=0BV-ZkN2Q8o)
 1.  [【三崎優太vs斎藤幸平】高市早苗で大激論！働き方改革【たかまつななvs守田りくvs須賀川拓vsReHacQ】](/rehacq_fan/ids/pqmPK24INmU "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 54,009
-    -   **いいね数: 722**
+    -   視聴数: 71,878
+    -   **いいね数: 811**
     -   出演者: たかまつなな, [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), 守田りく, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pqmPK24INmU/hqdefault.jpg)](https://www.youtube.com/watch?v=pqmPK24INmU)
 1.  [【高市早苗相場は続く？】日経平均4万8000円突破！1ドル=152円で株高・輸出・インフレの行方どうなる？高市政権誕生したら…徹底分析【木野内栄治vs永濱利廣vs須黒清華ReHacQ】](/rehacq_fan/ids/-0iyBFcD47Q "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 55,382
-    -   **いいね数: 925**
+    -   視聴数: 64,075
+    -   **いいね数: 987**
     -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
     - [![](https://img.youtube.com/vi/-0iyBFcD47Q/hqdefault.jpg)](https://www.youtube.com/watch?v=-0iyBFcD47Q)
 1.  [【生配信】参政党・記者会見 10月8日（水）【ReHacQ】](/rehacq_fan/ids/3-j9yTesABg "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 27,046
-    -   **いいね数: 332**
+    -   視聴数: 28,037
+    -   **いいね数: 336**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
     - [![](https://img.youtube.com/vi/3-j9yTesABg/hqdefault.jpg)](https://www.youtube.com/watch?v=3-j9yTesABg)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/IlkGseYvWzI "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 6,669
-    -   **いいね数: 81**
+    -   視聴数: 6,916
+    -   **いいね数: 83**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/IlkGseYvWzI/hqdefault.jpg)](https://www.youtube.com/watch?v=IlkGseYvWzI)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 26, 視聴数: 3,072,068, いいね数: 49,065
+-   動画数: 26, 視聴数: 3,173,011, いいね数: 52,038
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,791,259, いいね数: 246,067
+-   動画数: 87, 視聴数: 12,801,168, いいね数: 246,152
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,509,803, いいね数: 248,487
+-   動画数: 64, 視聴数: 13,509,963, いいね数: 248,488
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,242,317, いいね数: 357,063
+-   動画数: 76, 視聴数: 20,246,358, いいね数: 357,140
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -110,7 +110,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,821,045, いいね数: 193,712
+-   動画数: 63, 視聴数: 14,829,027, いいね数: 193,787
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -174,19 +174,19 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,302,113, いいね数: 118,220
+-   動画数: 30, 視聴数: 9,302,162, いいね数: 118,220
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,291,142, いいね数: 119,965
+-   動画数: 30, 視聴数: 9,291,211, いいね数: 119,966
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,107,551, いいね数: 141,692
+-   動画数: 25, 視聴数: 13,107,599, いいね数: 141,694
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,157,743, いいね数: 170,574
+-   動画数: 33, 視聴数: 12,157,747, いいね数: 170,574
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,843,967, いいね数: 141,093
 
 ---
-2025-10-08 23:00
+2025-10-09 01:00
