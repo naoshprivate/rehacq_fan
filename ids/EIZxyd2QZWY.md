@@ -3,4 +3,4 @@
 -   公開日: 2024-08-26
 -   視聴数: 596,660
 -   **いいね数: 6,295**
--   出演者: 三崎優太, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")

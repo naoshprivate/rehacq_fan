@@ -3,4 +3,4 @@
 -   公開日: 2025-06-06
 -   視聴数: 44,048
 -   **いいね数: 542**
--   出演者: 木野内栄治, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
+-   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
