@@ -251,8 +251,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs古代エジプト史】謎多き古代エジプト！庶民が考えていた意外なこととは…？【ReHacQ教養】](/rehacq_fan/ids/JN4qvQM8ERI "wikilink")
     -   公開日: 2025-06-29
-    -   視聴数: 124,766
-    -   **いいね数: 1,422**
+    -   視聴数: 125,191
+    -   **いいね数: 1,428**
     -   出演者: 大城道則, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【投資センス磨く】日経平均5ヶ月ぶりの4万円台！日本株の先行きどうなる？【楽天証券・窪田真之】](/rehacq_fan/ids/F6F12LBWZZU "wikilink")
     -   公開日: 2025-06-27
@@ -1251,28 +1251,28 @@
     -   出演者: [河野太郎](/rehacq_fan/people/河野太郎 "wikilink")
 1.  [【安倍派の重鎮】萩生田光一が裏金問題を赤裸々告白！なぜ不記載？【萩生田光一vs高橋弘樹】](/rehacq_fan/ids/t3Va_HqoJQ4 "wikilink")
     -   公開日: 2024-09-11
-    -   視聴数: 453,923
-    -   **いいね数: 5,036**
+    -   視聴数: 455,917
+    -   **いいね数: 5,052**
     -   出演者: 岸博幸, 萩生田光一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs吉村洋文】緊迫！石丸伸二が野党に激怒…今後のロードマップは？【高橋弘樹】](/rehacq_fan/ids/Lb9U4acxhs4 "wikilink")
     -   公開日: 2024-09-07
-    -   視聴数: 1,034,636
+    -   視聴数: 1,034,890
     -   **いいね数: 18,917**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきが激怒】Web3は意味あるのか？徹底議論【投資に値する？】](/rehacq_fan/ids/6W0rK4x3xwM "wikilink")
     -   公開日: 2024-09-06
-    -   視聴数: 816,375
-    -   **いいね数: 4,266**
+    -   視聴数: 824,863
+    -   **いいね数: 4,294**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), 渡辺創太, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツの即興旅in栃木】前日に「あした足利行こう」！まったり旅【ReHacQ旅】](/rehacq_fan/ids/S1tucsWEEWI "wikilink")
     -   公開日: 2024-09-02
-    -   視聴数: 148,774
-    -   **いいね数: 2,858**
+    -   視聴数: 149,059
+    -   **いいね数: 2,861**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【石丸伸二vs吉村洋文】共闘宣言!?自浄作用なき政治、改革するには？【高橋弘樹】](/rehacq_fan/ids/XKGshW6xD1k "wikilink")
     -   公開日: 2024-08-31
-    -   視聴数: 2,083,067
-    -   **いいね数: 37,458**
+    -   視聴数: 2,084,036
+    -   **いいね数: 37,464**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【岸田総理の素顔】木原誠二の野望...自民党支持率低迷の根本原因と今後の行方【高橋弘樹】](/rehacq_fan/ids/XasgM4vhU9I "wikilink")
     -   公開日: 2024-08-29
@@ -1808,33 +1808,33 @@
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 9月2日（火）【ReHacQ】](/rehacq_fan/ids/aLQOKHiA9L0 "wikilink")
     -   公開日: 2025-09-02
-    -   視聴数: 23,037
+    -   視聴数: 23,039
     -   **いいね数: 312**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【NVIDIA決算】予想上回り過去最高の約6.9兆円...市場の反応は？【永濱利廣＆宮嶋貴之】](/rehacq_fan/ids/cttUgH1xh9U "wikilink")
     -   公開日: 2025-08-29
-    -   視聴数: 31,197
+    -   視聴数: 31,211
     -   **いいね数: 231**
     -   出演者: 宮嶋貴之, [横川楓](/rehacq_fan/people/横川楓 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 8月29日（金）【ReHacQ】](/rehacq_fan/ids/VwX1nM9Uu7A "wikilink")
     -   公開日: 2025-08-29
-    -   視聴数: 16,678
+    -   視聴数: 16,684
     -   **いいね数: 123**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
 1.  [【自民党「政治と金」】緊急配信！５億円出す業界…なぜ？銀座で衝撃…お会計53万円の夜【西田尚史vs土田しんvs西田亮介vsReHacQ高橋弘樹】](/rehacq_fan/ids/Y2gw4CuioyU "wikilink")
     -   公開日: 2025-08-28
-    -   視聴数: 182,470
+    -   視聴数: 182,935
     -   **いいね数: 2,478**
     -   出演者: [土田しん](/rehacq_fan/people/土田しん "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](/rehacq_fan/ids/o9Ymcad1RXE "wikilink")
     -   公開日: 2025-08-27
-    -   視聴数: 644,360
-    -   **いいね数: 16,831**
+    -   視聴数: 645,284
+    -   **いいね数: 16,826**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】再生の道・石丸代表記者会見 8月27日（水）【ReHacQ】](/rehacq_fan/ids/e8KMybXtRuk "wikilink")
     -   公開日: 2025-08-27
-    -   視聴数: 281,927
-    -   **いいね数: 10,894**
+    -   視聴数: 282,008
+    -   **いいね数: 10,893**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急配信】ガザから生中継...病院が空爆？現地の生活は【須賀川拓&斎藤幸平】](/rehacq_fan/ids/wHVOLsEOj8k "wikilink")
     -   公開日: 2025-08-26
@@ -2370,13 +2370,13 @@
 # プレイリスト (134): あつまれ！経済の森 / シン・起業塾/ReHacQマネースタディー
 1.  [【高橋弘樹vs大企業】新時代のマスメディアへ_高橋弘樹 初ピッチ挑戦で大企業と協業なるか？【ReHacQ】](/rehacq_fan/ids/FC0PzLb1saY "wikilink")
     -   公開日: 2025-09-02
-    -   視聴数: 63,043
+    -   視聴数: 63,208
     -   **いいね数: 1,138**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs元日銀理事】日本経済へ衝撃警告…成長神話は破綻？【門間一夫】](/rehacq_fan/ids/UqthP940lyg "wikilink")
     -   公開日: 2025-08-28
-    -   視聴数: 242,042
-    -   **いいね数: 3,947**
+    -   視聴数: 242,962
+    -   **いいね数: 3,953**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
 1.  [【高橋弘樹vs斎藤祐馬】起業3年目で崩壊の危機？生き残りをかけて高橋がついに動きだす](/rehacq_fan/ids/L8aOfMiWyvE "wikilink")
     -   公開日: 2025-07-28
@@ -3492,37 +3492,37 @@
     -   出演者: 武田真一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【NHK→日テレ】プロの伝える技術とは？NHKエースアナが激白【なぜ辞めた？】](/rehacq_fan/ids/7VXr4sNoRKE "wikilink")
     -   公開日: 2023-09-26
-    -   視聴数: 426,772
-    -   **いいね数: 5,058**
+    -   視聴数: 426,872
+    -   **いいね数: 5,060**
     -   出演者: 武田真一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【プロ野球をクビ】「降伏論」負けを認める力とは？【経営コンサルで成功】](/rehacq_fan/ids/1a-m_uixR6I "wikilink")
     -   公開日: 2023-08-18
-    -   視聴数: 79,537
-    -   **いいね数: 1,639**
+    -   視聴数: 79,612
+    -   **いいね数: 1,640**
     -   出演者: 高森勇, 高森勇旗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【プロ野球をクビ】炎天下48度！地獄の試合【なぜビジネス界へ？】](/rehacq_fan/ids/qCCChlPopMo "wikilink")
     -   公開日: 2023-08-11
-    -   視聴数: 120,306
+    -   視聴数: 120,369
     -   **いいね数: 2,064**
     -   出演者: 高森勇, 高森勇旗, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【白い巨塔&THE DAYS】山崎豊子…初めて語る教えとは？【元フジテレビドラマP】](/rehacq_fan/ids/QzZyCFAl1rg "wikilink")
     -   公開日: 2023-07-04
-    -   視聴数: 207,025
+    -   視聴数: 207,113
     -   **いいね数: 3,558**
     -   出演者: 増本淳, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】赤裸々キャリア雑談会【成田修造】](/rehacq_fan/ids/ZeQ-Q-QXuwo "wikilink")
     -   公開日: 2023-07-01
-    -   視聴数: 148,656
+    -   視聴数: 148,674
     -   **いいね数: 2,547**
     -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【元フジテレビドラマP】退社後メディア初登場！衝撃告白【白い巨塔&コード・ブルー】](/rehacq_fan/ids/Bh3rYhRTVLA "wikilink")
     -   公開日: 2023-06-27
-    -   視聴数: 404,937
-    -   **いいね数: 5,176**
+    -   視聴数: 405,034
+    -   **いいね数: 5,179**
     -   出演者: 増本淳, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【初インタビュー②】ビジネスチャンスは瀬戸内にあり！なぜ？【NewsPicks辞めたワケ】](/rehacq_fan/ids/bZtBWrdFL5I "wikilink")
     -   公開日: 2023-06-21
-    -   視聴数: 44,134
+    -   視聴数: 44,135
     -   **いいね数: 635**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【元NewsPicks CEO】世界で戦えるのは地方企業！？【地方にこだわるワケ】](/rehacq_fan/ids/1ZxxrvdWaWA "wikilink")
@@ -3594,8 +3594,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 大野元裕, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs埼玉県知事】クルド人問題…埼玉の未来…人口減少どうする？大野元裕が激白【ReHacQ高橋弘樹vs斎藤幸平】](/rehacq_fan/ids/P4fSrMP3Kcc "wikilink")
     -   公開日: 2025-06-29
-    -   視聴数: 612,289
-    -   **いいね数: 6,524**
+    -   視聴数: 613,923
+    -   **いいね数: 6,530**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs猪瀬直樹】緊急提言！ひろゆき、政治家になれ【ReHacQ高橋弘樹】](/rehacq_fan/ids/lkiKj7DN8fA "wikilink")
     -   公開日: 2025-06-15
@@ -4448,8 +4448,8 @@
 # プレイリスト (66): まったりFUKABORIN / ReHacQリベラルアーツ / sonogo / ニュース、深掘ReHacQ
 1.  [【野村泰紀vs宇宙の謎】ノーベル賞獲得した日本の研究とは？夏休み特別企画！【ReHacQリベラルアーツ・高橋弘樹】](/rehacq_fan/ids/AuAbpS2Fmp8 "wikilink")
     -   公開日: 2025-08-23
-    -   視聴数: 202,241
-    -   **いいね数: 2,631**
+    -   視聴数: 203,634
+    -   **いいね数: 2,637**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs幸せ研究者】ヒトは幸せになれない？それは遺伝子が社会環境の変化に適応できてないから...【ReHacQ】](/rehacq_fan/ids/uJkjl0Kh8dQ "wikilink")
     -   公開日: 2025-07-03
