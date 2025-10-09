@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【後藤達也vs小林史明】「“民から官へ”リスク取る政治」新しい資本主義の本質とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/yX5qlsU1xTo "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 15,304
-    -   **いいね数: 277**
+    -   視聴数: 20,329
+    -   **いいね数: 329**
     -   出演者: 
     - [![](https://img.youtube.com/vi/yX5qlsU1xTo/hqdefault.jpg)](https://www.youtube.com/watch?v=yX5qlsU1xTo)
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 32,359
-    -   **いいね数: 638**
+    -   視聴数: 51,081
+    -   **いいね数: 875**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ubUYvwixxCg/hqdefault.jpg)](https://www.youtube.com/watch?v=ubUYvwixxCg)
 1.  [【安住淳vs高橋弘樹】立憲幹事長が激白！「国民民主は仲間」…宮城で生まれ、ガチで政権交代目指す訳とは？【ReHacQ】](/rehacq_fan/ids/1o0L064oDpI "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 103,021
-    -   **いいね数: 1,857**
+    -   視聴数: 112,626
+    -   **いいね数: 1,936**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1o0L064oDpI/hqdefault.jpg)](https://www.youtube.com/watch?v=1o0L064oDpI)
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 742,742
-    -   **いいね数: 14,792**
+    -   視聴数: 764,105
+    -   **いいね数: 14,978**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/0BV-ZkN2Q8o/hqdefault.jpg)](https://www.youtube.com/watch?v=0BV-ZkN2Q8o)
 1.  [【三崎優太vs斎藤幸平】高市早苗で大激論！働き方改革【たかまつななvs守田りくvs須賀川拓vsReHacQ】](/rehacq_fan/ids/pqmPK24INmU "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 119,194
-    -   **いいね数: 1,229**
+    -   視聴数: 122,113
+    -   **いいね数: 1,248**
     -   出演者: たかまつなな, [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), 守田りく, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pqmPK24INmU/hqdefault.jpg)](https://www.youtube.com/watch?v=pqmPK24INmU)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 29, 視聴数: 4,116,508, いいね数: 66,571
+-   動画数: 29, 視聴数: 4,177,880, いいね数: 67,191
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,896,827, いいね数: 247,024
+-   動画数: 87, 視聴数: 12,908,734, いいね数: 247,102
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,534,593, いいね数: 248,723
+-   動画数: 64, 視聴数: 13,535,612, いいね数: 248,736
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,264,953, いいね数: 357,374
+-   動画数: 76, 視聴数: 20,265,236, いいね数: 357,374
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -146,11 +146,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,433,726, いいね数: 320,075
+-   動画数: 43, 視聴数: 19,440,097, いいね数: 320,155
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,640,212, いいね数: 290,472
+-   動画数: 44, 視聴数: 15,650,038, いいね数: 290,484
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,846,804, いいね数: 141,094
 
 ---
-2025-10-10 02:00
+2025-10-10 07:00
