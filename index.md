@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【後藤達也vs小林史明】「“民から官へ”リスク取る政治」新しい資本主義の本質とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/yX5qlsU1xTo "wikilink")
+    -   公開日: 2025-10-09
+    -   視聴数: 3,950
+    -   **いいね数: 130**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/yX5qlsU1xTo/hqdefault.jpg)](https://www.youtube.com/watch?v=yX5qlsU1xTo)
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 5,508
-    -   **いいね数: 157**
+    -   視聴数: 9,039
+    -   **いいね数: 339**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ubUYvwixxCg/hqdefault.jpg)](https://www.youtube.com/watch?v=ubUYvwixxCg)
 1.  [【安住淳vs高橋弘樹】立憲幹事長が激白！「国民民主は仲間」…宮城で生まれ、ガチで政権交代目指す訳とは？【ReHacQ】](/rehacq_fan/ids/1o0L064oDpI "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 67,469
-    -   **いいね数: 1,450**
+    -   視聴数: 76,387
+    -   **いいね数: 1,570**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1o0L064oDpI/hqdefault.jpg)](https://www.youtube.com/watch?v=1o0L064oDpI)
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 673,105
-    -   **いいね数: 14,103**
+    -   視聴数: 688,053
+    -   **いいね数: 14,336**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/0BV-ZkN2Q8o/hqdefault.jpg)](https://www.youtube.com/watch?v=0BV-ZkN2Q8o)
 1.  [【三崎優太vs斎藤幸平】高市早苗で大激論！働き方改革【たかまつななvs守田りくvs須賀川拓vsReHacQ】](/rehacq_fan/ids/pqmPK24INmU "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 111,069
-    -   **いいね数: 1,195**
+    -   視聴数: 113,200
+    -   **いいね数: 1,210**
     -   出演者: たかまつなな, [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), 守田りく, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pqmPK24INmU/hqdefault.jpg)](https://www.youtube.com/watch?v=pqmPK24INmU)
-1.  [【高市早苗相場は続く？】日経平均4万8000円突破！1ドル=152円で株高・輸出・インフレの行方どうなる？高市政権誕生したら…徹底分析【木野内栄治vs永濱利廣vs須黒清華ReHacQ】](/rehacq_fan/ids/-0iyBFcD47Q "wikilink")
-    -   公開日: 2025-10-08
-    -   視聴数: 83,714
-    -   **いいね数: 1,210**
-    -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
-    - [![](https://img.youtube.com/vi/-0iyBFcD47Q/hqdefault.jpg)](https://www.youtube.com/watch?v=-0iyBFcD47Q)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 28, 視聴数: 3,950,138, いいね数: 64,569
+-   動画数: 29, 視聴数: 3,985,781, いいね数: 65,275
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,833,075, いいね数: 246,404
+-   動画数: 87, 視聴数: 12,833,438, いいね数: 246,397
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -126,11 +126,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,380,124, いいね数: 290,472
+-   動画数: 48, 視聴数: 17,383,621, いいね数: 290,498
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,291,636, いいね数: 308,464
+-   動画数: 60, 視聴数: 18,293,236, いいね数: 308,476
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -150,19 +150,19 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,640,117, いいね数: 290,470
+-   動画数: 44, 視聴数: 15,640,212, いいね数: 290,472
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,516,750, いいね数: 141,348
+-   動画数: 31, 視聴数: 10,516,810, いいね数: 141,348
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,440,232, いいね数: 79,322
+-   動画数: 29, 視聴数: 6,442,835, いいね数: 79,366
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,378,222, いいね数: 98,565
+-   動画数: 34, 視聴数: 9,379,387, いいね数: 98,568
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,846,804, いいね数: 141,094
 
 ---
-2025-10-09 21:00
+2025-10-09 22:00
