@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 1
-    -   **いいね数: 14**
+    -   視聴数: 5,508
+    -   **いいね数: 157**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ubUYvwixxCg/hqdefault.jpg)](https://www.youtube.com/watch?v=ubUYvwixxCg)
 1.  [【安住淳vs高橋弘樹】立憲幹事長が激白！「国民民主は仲間」…宮城で生まれ、ガチで政権交代目指す訳とは？【ReHacQ】](/rehacq_fan/ids/1o0L064oDpI "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 58,961
-    -   **いいね数: 1,345**
+    -   視聴数: 67,469
+    -   **いいね数: 1,450**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1o0L064oDpI/hqdefault.jpg)](https://www.youtube.com/watch?v=1o0L064oDpI)
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 656,941
-    -   **いいね数: 13,880**
+    -   視聴数: 673,105
+    -   **いいね数: 14,103**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/0BV-ZkN2Q8o/hqdefault.jpg)](https://www.youtube.com/watch?v=0BV-ZkN2Q8o)
 1.  [【三崎優太vs斎藤幸平】高市早苗で大激論！働き方改革【たかまつななvs守田りくvs須賀川拓vsReHacQ】](/rehacq_fan/ids/pqmPK24INmU "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 109,092
-    -   **いいね数: 1,184**
+    -   視聴数: 111,069
+    -   **いいね数: 1,195**
     -   出演者: たかまつなな, [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), 守田りく, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pqmPK24INmU/hqdefault.jpg)](https://www.youtube.com/watch?v=pqmPK24INmU)
 1.  [【高市早苗相場は続く？】日経平均4万8000円突破！1ドル=152円で株高・輸出・インフレの行方どうなる？高市政権誕生したら…徹底分析【木野内栄治vs永濱利廣vs須黒清華ReHacQ】](/rehacq_fan/ids/-0iyBFcD47Q "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 83,084
-    -   **いいね数: 1,211**
+    -   視聴数: 83,714
+    -   **いいね数: 1,210**
     -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
     - [![](https://img.youtube.com/vi/-0iyBFcD47Q/hqdefault.jpg)](https://www.youtube.com/watch?v=-0iyBFcD47Q)
 
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 27, 視聴数: 3,907,770, いいね数: 64,019
+-   動画数: 28, 視聴数: 3,950,138, いいね数: 64,569
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,831,774, いいね数: 246,390
+-   動画数: 87, 視聴数: 12,833,075, いいね数: 246,404
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,513,570, いいね数: 248,517
+-   動画数: 64, 視聴数: 13,521,439, いいね数: 248,636
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,250,292, いいね数: 357,186
+-   動画数: 76, 視聴数: 20,252,376, いいね数: 357,217
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -122,11 +122,11 @@
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,118,203, いいね数: 297,632
+-   動画数: 47, 視聴数: 16,118,553, いいね数: 297,625
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,374,744, いいね数: 290,462
+-   動画数: 48, 視聴数: 17,380,124, いいね数: 290,472
 
 #### [2024年12月](videos/202412 "wikilink")
 
@@ -142,7 +142,7 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,413,351, いいね数: 219,304
+-   動画数: 50, 視聴数: 14,413,752, いいね数: 219,309
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -150,7 +150,7 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,640,085, いいね数: 290,471
+-   動画数: 44, 視聴数: 15,640,117, いいね数: 290,470
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,846,804, いいね数: 141,094
 
 ---
-2025-10-09 20:00
+2025-10-09 21:00
