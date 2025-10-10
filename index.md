@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月10日（金）【ReHacQ】](/rehacq_fan/ids/5-8EXtVCm2U "wikilink")
+    -   公開日: 2025-10-10
+    -   視聴数: 5,382
+    -   **いいね数: 62**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/5-8EXtVCm2U/hqdefault.jpg)](https://www.youtube.com/watch?v=5-8EXtVCm2U)
 1.  [【後藤達也vs小林史明】「“民から官へ”リスク取る政治」新しい資本主義の本質とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/yX5qlsU1xTo "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 20,329
-    -   **いいね数: 329**
+    -   視聴数: 28,509
+    -   **いいね数: 444**
     -   出演者: 
     - [![](https://img.youtube.com/vi/yX5qlsU1xTo/hqdefault.jpg)](https://www.youtube.com/watch?v=yX5qlsU1xTo)
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 51,081
-    -   **いいね数: 875**
+    -   視聴数: 84,513
+    -   **いいね数: 1,362**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ubUYvwixxCg/hqdefault.jpg)](https://www.youtube.com/watch?v=ubUYvwixxCg)
 1.  [【安住淳vs高橋弘樹】立憲幹事長が激白！「国民民主は仲間」…宮城で生まれ、ガチで政権交代目指す訳とは？【ReHacQ】](/rehacq_fan/ids/1o0L064oDpI "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 112,626
-    -   **いいね数: 1,936**
+    -   視聴数: 122,481
+    -   **いいね数: 2,095**
     -   出演者: 
     - [![](https://img.youtube.com/vi/1o0L064oDpI/hqdefault.jpg)](https://www.youtube.com/watch?v=1o0L064oDpI)
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 764,105
-    -   **いいね数: 14,978**
+    -   視聴数: 785,651
+    -   **いいね数: 15,436**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/0BV-ZkN2Q8o/hqdefault.jpg)](https://www.youtube.com/watch?v=0BV-ZkN2Q8o)
-1.  [【三崎優太vs斎藤幸平】高市早苗で大激論！働き方改革【たかまつななvs守田りくvs須賀川拓vsReHacQ】](/rehacq_fan/ids/pqmPK24INmU "wikilink")
-    -   公開日: 2025-10-08
-    -   視聴数: 122,113
-    -   **いいね数: 1,248**
-    -   出演者: たかまつなな, [三崎優太](/rehacq_fan/people/三崎優太 "wikilink"), 守田りく, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/pqmPK24INmU/hqdefault.jpg)](https://www.youtube.com/watch?v=pqmPK24INmU)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,19 +90,19 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 29, 視聴数: 4,177,880, いいね数: 67,191
+-   動画数: 30, 視聴数: 4,264,987, いいね数: 68,588
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,908,734, いいね数: 247,102
+-   動画数: 87, 視聴数: 12,908,782, いいね数: 247,102
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,535,612, いいね数: 248,736
+-   動画数: 64, 視聴数: 13,536,810, いいね数: 248,738
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,265,236, いいね数: 357,374
+-   動画数: 76, 視聴数: 20,266,406, いいね数: 357,372
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -150,11 +150,11 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,650,038, いいね数: 290,484
+-   動画数: 44, 視聴数: 15,650,501, いいね数: 290,489
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,516,810, いいね数: 141,348
+-   動画数: 31, 視聴数: 10,518,216, いいね数: 141,346
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -202,19 +202,19 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,759,639, いいね数: 94,994
+-   動画数: 27, 視聴数: 7,759,647, いいね数: 94,994
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,291,984, いいね数: 112,067
+-   動画数: 24, 視聴数: 7,292,018, いいね数: 112,068
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,492,707, いいね数: 103,155
+-   動画数: 28, 視聴数: 6,492,761, いいね数: 103,153
 
 #### [2023年03月](videos/202303 "wikilink")
 
 -   動画数: 14, 視聴数: 7,846,804, いいね数: 141,094
 
 ---
-2025-10-10 07:00
+2025-10-10 12:00
