@@ -1,6 +1,6 @@
 ### [【安住淳vs高橋弘樹】立憲幹事長が激白！「国民民主は仲間」…宮城で生まれ、ガチで政権交代目指す訳とは？【ReHacQ】](https://www.youtube.com/watch?v=1o0L064oDpI)
 [![](https://img.youtube.com/vi/1o0L064oDpI/sddefault.jpg)](https://www.youtube.com/watch?v=1o0L064oDpI)
 -   公開日: 2025-10-09
--   視聴数: 124,255
--   **いいね数: 2,123**
+-   視聴数: 135,444
+-   **いいね数: 2,242**
 -   出演者: 
