@@ -3,4 +3,4 @@
 -   公開日: 2025-02-14
 -   視聴数: 295,607
 -   **いいね数: 5,146**
--   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 高岡浩三
+-   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高岡浩三](/rehacq_fan/people/高岡浩三 "wikilink")

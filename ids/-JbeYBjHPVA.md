@@ -3,4 +3,4 @@
 -   公開日: 2023-11-12
 -   視聴数: 275,670
 -   **いいね数: 4,079**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 小林史明, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小林史明](/rehacq_fan/people/小林史明 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")

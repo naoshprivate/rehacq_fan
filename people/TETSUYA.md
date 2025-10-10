@@ -22,11 +22,11 @@
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき&EXILE】なぜ？世界最大級のゴミ山で生きるワケ【アフリカガーナ旅②】](/rehacq_fan/ids/nJDdh9Mi1M0 "wikilink")
     -   公開日: 2025-01-10
-    -   視聴数: 189,373
-    -   **いいね数: 2,467**
+    -   視聴数: 190,361
+    -   **いいね数: 2,475**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆき&EXILE】毒ガスの町へ…なぜそこに住む？アフリカ・ガーナ編始動【ReHacQ旅】](/rehacq_fan/ids/8T3GTN11i-U "wikilink")
     -   公開日: 2025-01-03
-    -   視聴数: 371,436
-    -   **いいね数: 4,437**
+    -   視聴数: 374,988
+    -   **いいね数: 4,453**
     -   出演者: [TETSUYA](/rehacq_fan/people/TETSUYA "wikilink"), [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
