@@ -345,16 +345,16 @@
     -   視聴数: 1,063,501
     -   **いいね数: 16,525**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](/rehacq_fan/ids/_qzFJpEy_rI "wikilink")
-    -   公開日: 2025-07-14
-    -   視聴数: 766,936
-    -   **いいね数: 16,442**
-    -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】石丸市長…なぜ市長辞めるんですか？安芸高田市【石丸伸二vs西田亮介vs高橋弘樹】](/rehacq_fan/ids/_FPkSBwYeFs "wikilink")
     -   公開日: 2024-05-13
     -   視聴数: 1,066,748
     -   **いいね数: 16,441**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【立花孝志vs高橋弘樹】NHK党にNG無し質問！ReHacQ【西田亮介&横田一】](/rehacq_fan/ids/_qzFJpEy_rI "wikilink")
+    -   公開日: 2025-07-14
+    -   視聴数: 767,419
+    -   **いいね数: 16,439**
+    -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26
     -   視聴数: 838,467
@@ -372,8 +372,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 853,995
-    -   **いいね数: 16,102**
+    -   視聴数: 854,135
+    -   **いいね数: 16,103**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
@@ -497,6 +497,6 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,097,712
-    -   **いいね数: 14,415**
+    -   視聴数: 1,098,005
+    -   **いいね数: 14,413**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛

@@ -322,8 +322,8 @@
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
-    -   視聴数: 1,097,712
-    -   **いいね数: 14,415**
+    -   視聴数: 1,098,005
+    -   **いいね数: 14,413**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 長渕剛
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](/rehacq_fan/ids/mt5tmXdLERs "wikilink")
     -   公開日: 2024-12-26
@@ -400,16 +400,16 @@
     -   視聴数: 1,011,851
     -   **いいね数: 15,579**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
+    -   公開日: 2023-10-01
+    -   視聴数: 996,495
+    -   **いいね数: 10,346**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](/rehacq_fan/ids/loEb4IWVkAs "wikilink")
     -   公開日: 2025-08-07
     -   視聴数: 995,881
     -   **いいね数: 20,117**
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
-    -   公開日: 2023-10-01
-    -   視聴数: 994,503
-    -   **いいね数: 10,329**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](/rehacq_fan/ids/18Lb1U5pt0k "wikilink")
     -   公開日: 2025-05-18
     -   視聴数: 988,348
@@ -465,16 +465,16 @@
     -   視聴数: 914,335
     -   **いいね数: 15,442**
     -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
+    -   公開日: 2023-10-07
+    -   視聴数: 913,044
+    -   **いいね数: 10,122**
+    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](/rehacq_fan/ids/yFtpS4iZXlg "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 911,545
     -   **いいね数: 12,394**
     -   出演者: 
-1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
-    -   公開日: 2023-10-07
-    -   視聴数: 911,520
-    -   **いいね数: 10,102**
-    -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
     -   公開日: 2025-03-06
     -   視聴数: 902,940
@@ -497,6 +497,6 @@
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
-    -   視聴数: 853,995
-    -   **いいね数: 16,102**
+    -   視聴数: 854,135
+    -   **いいね数: 16,103**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
