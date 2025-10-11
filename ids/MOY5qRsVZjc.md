@@ -1,9 +1,11 @@
 ### [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=MOY5qRsVZjc)
 [![](https://img.youtube.com/vi/MOY5qRsVZjc/sddefault.jpg)](https://www.youtube.com/watch?v=MOY5qRsVZjc)
 -   公開日: 2025-10-11
--   視聴数: 107,447
--   **いいね数: 6,489**
--   出演者: 
+-   視聴数: 174,677
+-   **いいね数: 6,961**
+-   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+
+
 ## 動画の概要
 
 斉藤代表は、連立解消の最大の理由として、自民党の「政治とカネ」を巡る問題への対応と、現場の公明党支持者の「限界」の声を挙げました。
