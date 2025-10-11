@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【緊急生配信】自公連立政権崩壊...どうなる？【土田しん&中谷一馬&金村りゅうな&西田亮介&須賀川拓】](/rehacq_fan/ids/pF1CIIG7Ds0 "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 264,391
-    -   **いいね数: 2,191**
+    -   視聴数: 331,686
+    -   **いいね数: 2,821**
     -   出演者: 
     - [![](https://img.youtube.com/vi/pF1CIIG7Ds0/hqdefault.jpg)](https://www.youtube.com/watch?v=pF1CIIG7Ds0)
 1.  [【日本企業停滞のワケ】2025年決算を辛口診断？カリスマCEOが日本企業を一刀両断する！【高岡浩三＆永濱利廣＆森本智子](/rehacq_fan/ids/UCnAPHthgMI "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 19,898
-    -   **いいね数: 247**
+    -   視聴数: 22,433
+    -   **いいね数: 290**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [高岡浩三](/rehacq_fan/people/高岡浩三 "wikilink")
     - [![](https://img.youtube.com/vi/UCnAPHthgMI/hqdefault.jpg)](https://www.youtube.com/watch?v=UCnAPHthgMI)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月10日（金）【ReHacQ】](/rehacq_fan/ids/5-8EXtVCm2U "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 18,499
-    -   **いいね数: 111**
+    -   視聴数: 18,894
+    -   **いいね数: 113**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/5-8EXtVCm2U/hqdefault.jpg)](https://www.youtube.com/watch?v=5-8EXtVCm2U)
 1.  [【後藤達也vs小林史明】「“民から官へ”リスク取る政治」新しい資本主義の本質とは【ReHacQ高橋弘樹】](/rehacq_fan/ids/yX5qlsU1xTo "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 41,203
-    -   **いいね数: 567**
+    -   視聴数: 42,161
+    -   **いいね数: 582**
     -   出演者: [小林史明](/rehacq_fan/people/小林史明 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/yX5qlsU1xTo/hqdefault.jpg)](https://www.youtube.com/watch?v=yX5qlsU1xTo)
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
-    -   視聴数: 196,468
-    -   **いいね数: 2,390**
+    -   視聴数: 214,396
+    -   **いいね数: 2,553**
     -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ubUYvwixxCg/hqdefault.jpg)](https://www.youtube.com/watch?v=ubUYvwixxCg)
 
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 32, 視聴数: 4,797,613, いいね数: 73,244
+-   動画数: 32, 視聴数: 4,899,623, いいね数: 74,300
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 12,943,132, いいね数: 247,417
+-   動画数: 87, 視聴数: 12,949,840, いいね数: 247,454
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -102,7 +102,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,273,904, いいね数: 357,452
+-   動画数: 76, 視聴数: 20,273,915, いいね数: 357,451
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -138,15 +138,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,185,280, いいね数: 340,018
+-   動画数: 72, 視聴数: 22,188,286, いいね数: 340,030
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,427,949, いいね数: 219,377
+-   動画数: 50, 視聴数: 14,428,724, いいね数: 219,377
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,444,697, いいね数: 320,219
+-   動画数: 43, 視聴数: 19,445,504, いいね数: 320,215
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,852,891, いいね数: 141,107
 
 ---
-2025-10-11 07:00
+2025-10-11 12:00
