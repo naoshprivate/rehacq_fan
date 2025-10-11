@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
     -   公開日: 2025-10-11
-    -   視聴数: 381,542
-    -   **いいね数: 9,159**
+    -   視聴数: 465,298
+    -   **いいね数: 9,294**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MOY5qRsVZjc/hqdefault.jpg)](https://www.youtube.com/watch?v=MOY5qRsVZjc)
 1.  [【スーツvs羽田圭介】星野リゾートで羊とリトリート＆秘湯！山奥の洞窟風呂【ReHacQ旅in北海道⑥】](/rehacq_fan/ids/U5QlbzwpFE4 "wikilink")
     -   公開日: 2025-10-11
-    -   視聴数: 15,093
-    -   **いいね数: 312**
+    -   視聴数: 16,261
+    -   **いいね数: 327**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/U5QlbzwpFE4/hqdefault.jpg)](https://www.youtube.com/watch?v=U5QlbzwpFE4)
 1.  [【緊急生配信】自公連立政権崩壊...どうなる？【土田しん&中谷一馬&金村りゅうな&西田亮介&須賀川拓】](/rehacq_fan/ids/pF1CIIG7Ds0 "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 406,978
-    -   **いいね数: 3,270**
+    -   視聴数: 411,310
+    -   **いいね数: 3,288**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 金村りゅうな, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pF1CIIG7Ds0/hqdefault.jpg)](https://www.youtube.com/watch?v=pF1CIIG7Ds0)
 1.  [【日本企業停滞のワケ】2025年決算を辛口診断？カリスマCEOが日本企業を一刀両断する！【高岡浩三＆永濱利廣＆森本智子](/rehacq_fan/ids/UCnAPHthgMI "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 27,409
-    -   **いいね数: 352**
+    -   視聴数: 27,951
+    -   **いいね数: 358**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [高岡浩三](/rehacq_fan/people/高岡浩三 "wikilink")
     - [![](https://img.youtube.com/vi/UCnAPHthgMI/hqdefault.jpg)](https://www.youtube.com/watch?v=UCnAPHthgMI)
 1.  [【生配信・立憲野田代表】国民民主との“隔たり”に反論　野党結集と中道路線を強調【ReHacQ】](/rehacq_fan/ids/5-8EXtVCm2U "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 20,331
-    -   **いいね数: 114**
+    -   視聴数: 20,619
+    -   **いいね数: 115**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/5-8EXtVCm2U/hqdefault.jpg)](https://www.youtube.com/watch?v=5-8EXtVCm2U)
 
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 34, 視聴数: 5,474,212, いいね数: 85,201
+-   動画数: 34, 視聴数: 5,574,883, いいね数: 85,451
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -98,27 +98,27 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,549,707, いいね数: 248,860
+-   動画数: 64, 視聴数: 13,552,811, いいね数: 248,867
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,285,730, いいね数: 357,474
+-   動画数: 76, 視聴数: 20,287,603, いいね数: 357,503
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,672,761, いいね数: 288,155
+-   動画数: 77, 視聴数: 15,673,637, いいね数: 288,156
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,850,435, いいね数: 193,916
+-   動画数: 63, 視聴数: 14,850,471, いいね数: 193,916
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,549,263, いいね数: 342,974
+-   動画数: 58, 視聴数: 21,549,346, いいね数: 342,971
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,035,493, いいね数: 249,203
+-   動画数: 61, 視聴数: 14,035,510, いいね数: 249,203
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -126,15 +126,15 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,402,196, いいね数: 290,559
+-   動画数: 48, 視聴数: 17,402,310, いいね数: 290,557
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,298,258, いいね数: 308,484
+-   動画数: 60, 視聴数: 18,298,310, いいね数: 308,486
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 37, 視聴数: 21,738,987, いいね数: 375,143
+-   動画数: 37, 視聴数: 21,739,033, いいね数: 375,143
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,853,800, いいね数: 141,115
 
 ---
-2025-10-12 02:00
+2025-10-12 07:00
