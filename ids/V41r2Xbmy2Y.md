@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】横浜市長選ネット討論会【高橋弘樹】](https://www.youtube.com/watch?v=V41r2Xbmy2Y)
 [![](https://img.youtube.com/vi/V41r2Xbmy2Y/sddefault.jpg)](https://www.youtube.com/watch?v=V41r2Xbmy2Y)
 -   公開日: 2025-07-24
--   視聴数: 321,709
--   **いいね数: 5,279**
+-   視聴数: 321,775
+-   **いいね数: 5,277**
 -   出演者: 小山正武, 斉藤直明, 田中康夫, 福山あつし, 高橋のりみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
