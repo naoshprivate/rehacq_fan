@@ -1,34 +1,34 @@
 # 最近の動画
 1.  [【高橋弘樹vs箕輪厚介】真夜中の懺悔！なぜ埼玉の奥地へ…江戸から続くご利益旅【ReHacQ旅in秩父②】](/rehacq_fan/ids/zuAgjoh77uw "wikilink")
     -   公開日: 2025-10-12
-    -   視聴数: 2,343
-    -   **いいね数: 138**
-    -   出演者: 
+    -   視聴数: 16,447
+    -   **いいね数: 532**
+    -   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zuAgjoh77uw/hqdefault.jpg)](https://www.youtube.com/watch?v=zuAgjoh77uw)
 1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
     -   公開日: 2025-10-11
-    -   視聴数: 557,439
-    -   **いいね数: 11,914**
+    -   視聴数: 642,375
+    -   **いいね数: 13,957**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/MOY5qRsVZjc/hqdefault.jpg)](https://www.youtube.com/watch?v=MOY5qRsVZjc)
+1.  [【ひろゆきvs太田光代】激動！キャリアと家庭…幸せの見つけ方【ReHacQ高橋弘樹】](/rehacq_fan/ids/fau999kvB5o "wikilink")
+    -   公開日: 2025-10-11
+    -   視聴数: 2
+    -   **いいね数: 27**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/fau999kvB5o/hqdefault.jpg)](https://www.youtube.com/watch?v=fau999kvB5o)
 1.  [【スーツvs羽田圭介】星野リゾートで羊とリトリート＆秘湯！山奥の洞窟風呂【ReHacQ旅in北海道⑥】](/rehacq_fan/ids/U5QlbzwpFE4 "wikilink")
     -   公開日: 2025-10-11
-    -   視聴数: 18,726
-    -   **いいね数: 381**
+    -   視聴数: 22,018
+    -   **いいね数: 438**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/U5QlbzwpFE4/hqdefault.jpg)](https://www.youtube.com/watch?v=U5QlbzwpFE4)
 1.  [【緊急生配信】自公連立政権崩壊...どうなる？【土田しん&中谷一馬&金村りゅうな&西田亮介&須賀川拓】](/rehacq_fan/ids/pF1CIIG7Ds0 "wikilink")
     -   公開日: 2025-10-10
-    -   視聴数: 417,997
-    -   **いいね数: 3,327**
+    -   視聴数: 427,355
+    -   **いいね数: 3,382**
     -   出演者: [中谷一馬](/rehacq_fan/people/中谷一馬 "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 金村りゅうな, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/pF1CIIG7Ds0/hqdefault.jpg)](https://www.youtube.com/watch?v=pF1CIIG7Ds0)
-1.  [【日本企業停滞のワケ】2025年決算を辛口診断？カリスマCEOが日本企業を一刀両断する！【高岡浩三＆永濱利廣＆森本智子](/rehacq_fan/ids/UCnAPHthgMI "wikilink")
-    -   公開日: 2025-10-10
-    -   視聴数: 29,024
-    -   **いいね数: 385**
-    -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [高岡浩三](/rehacq_fan/people/高岡浩三 "wikilink")
-    - [![](https://img.youtube.com/vi/UCnAPHthgMI/hqdefault.jpg)](https://www.youtube.com/watch?v=UCnAPHthgMI)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,15 +90,15 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 35, 視聴数: 5,705,846, いいね数: 88,651
+-   動画数: 35, 視聴数: 5,932,708, いいね数: 92,438
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 13,211,878, いいね数: 249,573
+-   動画数: 87, 視聴数: 13,212,515, いいね数: 249,574
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,553,264, いいね数: 248,868
+-   動画数: 64, 視聴数: 13,553,290, いいね数: 248,869
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -106,7 +106,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,674,207, いいね数: 288,158
+-   動画数: 77, 視聴数: 15,676,928, いいね数: 288,207
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -154,19 +154,19 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,525,085, いいね数: 141,396
+-   動画数: 31, 視聴数: 10,525,102, いいね数: 141,396
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,443,893, いいね数: 79,360
+-   動画数: 29, 視聴数: 6,448,359, いいね数: 79,375
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,382,012, いいね数: 98,577
+-   動画数: 34, 視聴数: 9,384,244, いいね数: 98,589
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,085,361, いいね数: 109,715
+-   動画数: 44, 視聴数: 9,085,646, いいね数: 109,717
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,853,800, いいね数: 141,115
 
 ---
-2025-10-12 13:00
+2025-10-12 20:00
