@@ -1,8 +1,8 @@
 ### [【スーツvs羽田圭介】星野リゾートで羊とリトリート＆秘湯！山奥の洞窟風呂【ReHacQ旅in北海道⑥】](https://www.youtube.com/watch?v=U5QlbzwpFE4)
 [![](https://img.youtube.com/vi/U5QlbzwpFE4/sddefault.jpg)](https://www.youtube.com/watch?v=U5QlbzwpFE4)
 -   公開日: 2025-10-11
--   視聴数: 28,323
--   **いいね数: 546**
+-   視聴数: 28,671
+-   **いいね数: 549**
 -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
 
 
