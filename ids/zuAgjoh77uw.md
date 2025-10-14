@@ -1,7 +1,7 @@
 ### [【高橋弘樹vs箕輪厚介】真夜中の懺悔！なぜ埼玉の奥地へ…江戸から続くご利益旅【ReHacQ旅in秩父②】](https://www.youtube.com/watch?v=zuAgjoh77uw)
 [![](https://img.youtube.com/vi/zuAgjoh77uw/sddefault.jpg)](https://www.youtube.com/watch?v=zuAgjoh77uw)
 -   公開日: 2025-10-12
--   視聴数: 40,809
+-   視聴数: 41,061
 -   **いいね数: 914**
 -   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
