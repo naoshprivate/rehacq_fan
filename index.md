@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】国民民主党・玉木代表定例会見 10月13日（火）【ReHacQ】](/rehacq_fan/ids/E1mB_sLc0sY "wikilink")
+    -   公開日: 2025-10-14
+    -   視聴数: 20,055
+    -   **いいね数: 323**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/E1mB_sLc0sY/hqdefault.jpg)](https://www.youtube.com/watch?v=E1mB_sLc0sY)
 1.  [【河村たかしvs百田尚樹vsひろゆき】なぜ離党！？緊急生配信中…百田尚樹さんと大激論【ReHacQ高橋弘樹&西田亮介】](/rehacq_fan/ids/UWfPshzoSeI "wikilink")
     -   公開日: 2025-10-13
-    -   視聴数: 309,045
-    -   **いいね数: 6,650**
+    -   視聴数: 363,180
+    -   **いいね数: 7,846**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/UWfPshzoSeI/hqdefault.jpg)](https://www.youtube.com/watch?v=UWfPshzoSeI)
 1.  [【小島瑠璃子vs後藤達也】本音告白90分...あの時「自分の人生はどうでも良いと思った」引退の真相...活動再開のワケとは？【ReHacQ】](/rehacq_fan/ids/7OV9nNLaKCg "wikilink")
     -   公開日: 2025-10-12
-    -   視聴数: 198,935
-    -   **いいね数: 2,799**
+    -   視聴数: 210,978
+    -   **いいね数: 2,943**
     -   出演者: 小島瑠璃子, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
     - [![](https://img.youtube.com/vi/7OV9nNLaKCg/hqdefault.jpg)](https://www.youtube.com/watch?v=7OV9nNLaKCg)
 1.  [【ひろゆきvs太田光代】激動！キャリアと家庭…幸せの見つけ方【ReHacQ高橋弘樹】](/rehacq_fan/ids/fau999kvB5o "wikilink")
     -   公開日: 2025-10-12
-    -   視聴数: 107,769
-    -   **いいね数: 1,862**
+    -   視聴数: 113,910
+    -   **いいね数: 1,951**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 太田光代
     - [![](https://img.youtube.com/vi/fau999kvB5o/hqdefault.jpg)](https://www.youtube.com/watch?v=fau999kvB5o)
 1.  [【高橋弘樹vs箕輪厚介】真夜中の懺悔！なぜ埼玉の奥地へ…江戸から続くご利益旅【ReHacQ旅in秩父②】](/rehacq_fan/ids/zuAgjoh77uw "wikilink")
     -   公開日: 2025-10-12
-    -   視聴数: 35,873
-    -   **いいね数: 821**
+    -   視聴数: 37,052
+    -   **いいね数: 842**
     -   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zuAgjoh77uw/hqdefault.jpg)](https://www.youtube.com/watch?v=zuAgjoh77uw)
-1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
-    -   公開日: 2025-10-11
-    -   視聴数: 808,751
-    -   **いいね数: 16,978**
-    -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/MOY5qRsVZjc/hqdefault.jpg)](https://www.youtube.com/watch?v=MOY5qRsVZjc)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,23 +90,23 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 38, 視聴数: 6,933,844, いいね数: 109,104
+-   動画数: 39, 視聴数: 7,053,005, いいね数: 111,445
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 13,281,636, いいね数: 250,179
+-   動画数: 87, 視聴数: 13,282,825, いいね数: 250,179
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,578,626, いいね数: 249,060
+-   動画数: 64, 視聴数: 13,580,465, いいね数: 249,062
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,316,287, いいね数: 357,796
+-   動画数: 76, 視聴数: 20,316,610, いいね数: 357,799
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 77, 視聴数: 15,697,393, いいね数: 288,445
+-   動画数: 77, 視聴数: 15,699,054, いいね数: 288,458
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -142,15 +142,15 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,446,972, いいね数: 219,508
+-   動画数: 50, 視聴数: 14,452,937, いいね数: 219,527
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,475,479, いいね数: 320,472
+-   動画数: 43, 視聴数: 19,483,754, いいね数: 320,560
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,660,049, いいね数: 290,535
+-   動画数: 44, 視聴数: 15,668,124, いいね数: 290,540
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,856,443, いいね数: 141,114
 
 ---
-2025-10-14 07:00
+2025-10-14 12:00
