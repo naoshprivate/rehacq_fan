@@ -1,6 +1,6 @@
 ### [【海老原嗣生vs宮崎謙介】就職氷河期は嘘？識者も政治家も論点がズレるのはなぜなのか...「痛み」の本質を徹底討論！【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=x7IosUsj8s4)
 [![](https://img.youtube.com/vi/x7IosUsj8s4/sddefault.jpg)](https://www.youtube.com/watch?v=x7IosUsj8s4)
 -   公開日: 2025-09-29
--   視聴数: 137,090
--   **いいね数: 2,413**
+-   視聴数: 140,544
+-   **いいね数: 2,453**
 -   出演者: 宮崎謙介, [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
