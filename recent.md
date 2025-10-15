@@ -1,31 +1,31 @@
+1.  [【生配信・日本維新の会】日本維新の会 吉村洋文代表・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/7wlezJQR2c0 "wikilink")
+    -   公開日: 2025-10-15
+    -   視聴数: 37,924
+    -   **いいね数: 848**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/7wlezJQR2c0/hqdefault.jpg)](https://www.youtube.com/watch?v=7wlezJQR2c0)
+1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/lRDCLOqTcvw "wikilink")
+    -   公開日: 2025-10-15
+    -   視聴数: 12,184
+    -   **いいね数: 168**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/lRDCLOqTcvw/hqdefault.jpg)](https://www.youtube.com/watch?v=lRDCLOqTcvw)
+1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/esRZN0NSU1k "wikilink")
+    -   公開日: 2025-10-15
+    -   視聴数: 38,502
+    -   **いいね数: 467**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/esRZN0NSU1k/hqdefault.jpg)](https://www.youtube.com/watch?v=esRZN0NSU1k)
+1.  [【発達障害の診断】困っているなら相談を！仕事や学校で良い関係を築く方法とは？【マコなり社長＆精神科医さわ】](/rehacq_fan/ids/AOZWRepb3EE "wikilink")
+    -   公開日: 2025-10-15
+    -   視聴数: 2
+    -   **いいね数: 35**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/AOZWRepb3EE/hqdefault.jpg)](https://www.youtube.com/watch?v=AOZWRepb3EE)
 1.  [【流通革命の最前線】ASEAN で猛威ふるうTikTokショップが日本市場についに降臨！【高口康太＆濵野智成＆須黒清華】](/rehacq_fan/ids/HrbRb4Kk-2o "wikilink")
     -   公開日: 2025-10-14
-    -   視聴数: 9,165
-    -   **いいね数: 86**
+    -   視聴数: 10,818
+    -   **いいね数: 101**
     -   出演者: 濱野智成, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink"), [高口康太](/rehacq_fan/people/高口康太 "wikilink")
     - [![](https://img.youtube.com/vi/HrbRb4Kk-2o/hqdefault.jpg)](https://www.youtube.com/watch?v=HrbRb4Kk-2o)
-1.  [【生配信・国民民主党 玉木代表】野党連立には基本政策の一致が不可欠 総理より政策実現【ReHacQ】](/rehacq_fan/ids/E1mB_sLc0sY "wikilink")
-    -   公開日: 2025-10-14
-    -   視聴数: 71,490
-    -   **いいね数: 683**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-    - [![](https://img.youtube.com/vi/E1mB_sLc0sY/hqdefault.jpg)](https://www.youtube.com/watch?v=E1mB_sLc0sY)
-1.  [【河村たかしvs百田尚樹vsひろゆき】なぜ離党！？緊急生配信中…百田尚樹さんと大激論【ReHacQ高橋弘樹&西田亮介】](/rehacq_fan/ids/UWfPshzoSeI "wikilink")
-    -   公開日: 2025-10-13
-    -   視聴数: 589,298
-    -   **いいね数: 11,469**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/UWfPshzoSeI/hqdefault.jpg)](https://www.youtube.com/watch?v=UWfPshzoSeI)
-1.  [【小島瑠璃子vs後藤達也】本音告白90分...あの時「自分の人生はどうでも良いと思った」引退の真相...活動再開のワケとは？【ReHacQ】](/rehacq_fan/ids/7OV9nNLaKCg "wikilink")
-    -   公開日: 2025-10-12
-    -   視聴数: 255,927
-    -   **いいね数: 3,404**
-    -   出演者: 小島瑠璃子, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
-    - [![](https://img.youtube.com/vi/7OV9nNLaKCg/hqdefault.jpg)](https://www.youtube.com/watch?v=7OV9nNLaKCg)
-1.  [【ひろゆきvs太田光代】激動！キャリアと家庭…幸せの見つけ方【ReHacQ高橋弘樹】](/rehacq_fan/ids/fau999kvB5o "wikilink")
-    -   公開日: 2025-10-12
-    -   視聴数: 138,754
-    -   **いいね数: 2,224**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 太田光代
-    - [![](https://img.youtube.com/vi/fau999kvB5o/hqdefault.jpg)](https://www.youtube.com/watch?v=fau999kvB5o)
 
