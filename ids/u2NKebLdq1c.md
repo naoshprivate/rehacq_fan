@@ -1,6 +1,6 @@
 ### [【生配信】国民民主党・玉木代表定例会見 10月7日（火）【ReHacQ】](https://www.youtube.com/watch?v=u2NKebLdq1c)
 [![](https://img.youtube.com/vi/u2NKebLdq1c/sddefault.jpg)](https://www.youtube.com/watch?v=u2NKebLdq1c)
 -   公開日: 2025-10-07
--   視聴数: 49,276
+-   視聴数: 49,566
 -   **いいね数: 575**
 -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
