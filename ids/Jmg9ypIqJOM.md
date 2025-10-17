@@ -1,6 +1,6 @@
 ### [【茂木敏充の野望】岸田総理への本音…激白【高橋弘樹】](https://www.youtube.com/watch?v=Jmg9ypIqJOM)
 [![](https://img.youtube.com/vi/Jmg9ypIqJOM/sddefault.jpg)](https://www.youtube.com/watch?v=Jmg9ypIqJOM)
 -   公開日: 2024-05-19
--   視聴数: 215,684
--   **いいね数: 3,607**
+-   視聴数: 217,484
+-   **いいね数: 3,638**
 -   出演者: [茂木敏充](/rehacq_fan/people/茂木敏充 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
