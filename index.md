@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
+    -   公開日: 2025-10-17
+    -   視聴数: 23,064
+    -   **いいね数: 3,074**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Rx4U0L9SK9w/hqdefault.jpg)](https://www.youtube.com/watch?v=Rx4U0L9SK9w)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月17日（金）【ReHacQ】](/rehacq_fan/ids/1qh7Y_HdsPA "wikilink")
     -   公開日: 2025-10-17
-    -   視聴数: 11,419
-    -   **いいね数: 101**
+    -   視聴数: 20,611
+    -   **いいね数: 136**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/1qh7Y_HdsPA/hqdefault.jpg)](https://www.youtube.com/watch?v=1qh7Y_HdsPA)
 1.  [【生配信】落選維新が大集合！連立どうなる？忖度なし大暴露【ReHacQ】](/rehacq_fan/ids/RXKgnjC_XOI "wikilink")
     -   公開日: 2025-10-16
-    -   視聴数: 407,189
-    -   **いいね数: 11,380**
+    -   視聴数: 492,803
+    -   **いいね数: 12,729**
     -   出演者: いなば太郎, 今村充, 東修平, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/RXKgnjC_XOI/hqdefault.jpg)](https://www.youtube.com/watch?v=RXKgnjC_XOI)
 1.  [【ひろゆきvs須賀川拓】ガザから緊急生中継 衝撃の生活実態…停戦は？ ゴミの山からは煙、瓦礫は5000万トン【斎藤幸平】](/rehacq_fan/ids/vvGsKNJoalc "wikilink")
     -   公開日: 2025-10-16
-    -   視聴数: 55,800
-    -   **いいね数: 1,136**
+    -   視聴数: 62,251
+    -   **いいね数: 1,249**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/vvGsKNJoalc/hqdefault.jpg)](https://www.youtube.com/watch?v=vvGsKNJoalc)
 1.  [【生配信・日本維新の会】日本維新の会・藤田文武共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/l0O-55Lnark "wikilink")
     -   公開日: 2025-10-16
-    -   視聴数: 148,840
-    -   **いいね数: 1,271**
+    -   視聴数: 149,716
+    -   **いいね数: 1,269**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/l0O-55Lnark/hqdefault.jpg)](https://www.youtube.com/watch?v=l0O-55Lnark)
-1.  [【生配信】チームみらい・安野代表定例会見 10月16日（木）【ReHacQ】](/rehacq_fan/ids/B4Ol3Oi3S-c "wikilink")
-    -   公開日: 2025-10-16
-    -   視聴数: 26,213
-    -   **いいね数: 730**
-    -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
-    - [![](https://img.youtube.com/vi/B4Ol3Oi3S-c/hqdefault.jpg)](https://www.youtube.com/watch?v=B4Ol3Oi3S-c)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 50, 視聴数: 8,835,229, いいね数: 140,954
+-   動画数: 51, 視聴数: 8,973,700, いいね数: 145,827
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 13,540,738, いいね数: 252,095
+-   動画数: 87, 視聴数: 13,543,475, いいね数: 252,124
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -102,19 +102,19 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,349,416, いいね数: 357,978
+-   動画数: 76, 視聴数: 20,353,262, いいね数: 358,007
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,158,197, いいね数: 299,645
+-   動画数: 78, 視聴数: 16,160,398, いいね数: 299,661
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,889,243, いいね数: 194,144
+-   動画数: 63, 視聴数: 14,895,604, いいね数: 194,186
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,585,236, いいね数: 343,133
+-   動画数: 58, 視聴数: 21,593,569, いいね数: 343,161
 
 #### [2025年03月](videos/202503 "wikilink")
 
@@ -190,19 +190,19 @@
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,414,425, いいね数: 86,325
+-   動画数: 27, 視聴数: 6,414,465, いいね数: 86,324
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,447,790, いいね数: 127,662
+-   動画数: 33, 視聴数: 11,447,805, いいね数: 127,662
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,427,081, いいね数: 140,138
+-   動画数: 30, 視聴数: 11,427,152, いいね数: 140,138
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,763,353, いいね数: 95,002
+-   動画数: 27, 視聴数: 7,763,355, いいね数: 95,002
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -214,7 +214,7 @@
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,862,581, いいね数: 141,112
+-   動画数: 14, 視聴数: 7,862,587, いいね数: 141,112
 
 ---
-2025-10-17 13:00
+2025-10-17 20:00
