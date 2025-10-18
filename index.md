@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【健康vsカオス理論】数学理論で欲を抑える！？ダイエットにも応用可能なカオス理論とは？【ReHacQvsViViモデル】](/rehacq_fan/ids/V1jBG7iCi1Y "wikilink")
+    -   公開日: 2025-10-18
+    -   視聴数: 2
+    -   **いいね数: 19**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/V1jBG7iCi1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=V1jBG7iCi1Y)
 1.  [【高市早苗相場】4つの強材料とリスク！インフレ時代の資産形成どうする？【窪田真之＆永濱利廣＆森本智子】](/rehacq_fan/ids/Hsxlws1a_vg "wikilink")
     -   公開日: 2025-10-17
-    -   視聴数: 34,329
-    -   **いいね数: 310**
+    -   視聴数: 40,451
+    -   **いいね数: 372**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Hsxlws1a_vg/hqdefault.jpg)](https://www.youtube.com/watch?v=Hsxlws1a_vg)
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
     -   公開日: 2025-10-17
-    -   視聴数: 639,336
-    -   **いいね数: 17,010**
+    -   視聴数: 737,871
+    -   **いいね数: 19,295**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Rx4U0L9SK9w/hqdefault.jpg)](https://www.youtube.com/watch?v=Rx4U0L9SK9w)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 10月17日（金）【ReHacQ】](/rehacq_fan/ids/1qh7Y_HdsPA "wikilink")
     -   公開日: 2025-10-17
-    -   視聴数: 22,693
+    -   視聴数: 23,034
     -   **いいね数: 144**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/1qh7Y_HdsPA/hqdefault.jpg)](https://www.youtube.com/watch?v=1qh7Y_HdsPA)
 1.  [【生配信】落選維新が大集合！連立どうなる？忖度なし大暴露【ReHacQ】](/rehacq_fan/ids/RXKgnjC_XOI "wikilink")
     -   公開日: 2025-10-16
-    -   視聴数: 550,499
-    -   **いいね数: 13,097**
+    -   視聴数: 564,179
+    -   **いいね数: 13,510**
     -   出演者: いなば太郎, 今村充, 東修平, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/RXKgnjC_XOI/hqdefault.jpg)](https://www.youtube.com/watch?v=RXKgnjC_XOI)
-1.  [【ひろゆきvs須賀川拓】ガザから緊急生中継 衝撃の生活実態…停戦は？ ゴミの山からは煙、瓦礫は5000万トン【斎藤幸平】](/rehacq_fan/ids/vvGsKNJoalc "wikilink")
-    -   公開日: 2025-10-16
-    -   視聴数: 67,795
-    -   **いいね数: 1,301**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/vvGsKNJoalc/hqdefault.jpg)](https://www.youtube.com/watch?v=vvGsKNJoalc)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,7 +90,7 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 52, 視聴数: 9,925,424, いいね数: 162,280
+-   動画数: 52, 視聴数: 10,052,892, いいね数: 165,244
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -98,15 +98,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,613,684, いいね数: 249,280
+-   動画数: 64, 視聴数: 13,616,336, いいね数: 249,286
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,356,509, いいね数: 358,041
+-   動画数: 76, 視聴数: 20,357,117, いいね数: 358,056
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,160,528, いいね数: 299,662
+-   動画数: 78, 視聴数: 16,162,319, いいね数: 299,705
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -130,15 +130,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,316,012, いいね数: 308,557
+-   動画数: 60, 視聴数: 18,316,371, いいね数: 308,559
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 21,954,926, いいね数: 379,180
+-   動画数: 38, 視聴数: 21,956,125, いいね数: 379,185
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,231,315, いいね数: 340,210
+-   動画数: 72, 視聴数: 22,233,855, いいね数: 340,216
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -162,15 +162,15 @@
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,391,799, いいね数: 98,619
+-   動画数: 34, 視聴数: 9,392,474, いいね数: 98,621
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,096,640, いいね数: 109,791
+-   動画数: 44, 視聴数: 9,096,960, いいね数: 109,792
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,140,173, いいね数: 187,232
+-   動画数: 34, 視聴数: 15,140,220, いいね数: 187,231
 
 #### [2024年01月](videos/202401 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,864,129, いいね数: 141,112
 
 ---
-2025-10-18 07:00
+2025-10-18 12:00
