@@ -107,8 +107,8 @@
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,740,601
-    -   **いいね数: 15,055**
+    -   視聴数: 1,744,550
+    -   **いいね数: 15,080**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
@@ -122,8 +122,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,628,516
-    -   **いいね数: 15,075**
+    -   視聴数: 1,632,784
+    -   **いいね数: 15,092**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
@@ -440,6 +440,11 @@
     -   視聴数: 942,069
     -   **いいね数: 17,030**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
+    -   公開日: 2025-10-17
+    -   視聴数: 934,276
+    -   **いいね数: 22,024**
+    -   出演者: 
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
     -   視聴数: 927,302
@@ -475,11 +480,6 @@
     -   視聴数: 913,880
     -   **いいね数: 10,983**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
-1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
-    -   公開日: 2025-10-17
-    -   視聴数: 913,013
-    -   **いいね数: 21,796**
-    -   出演者: 
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](/rehacq_fan/ids/yFtpS4iZXlg "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 911,582

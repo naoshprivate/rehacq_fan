@@ -165,16 +165,16 @@
     -   視聴数: 848,245
     -   **いいね数: 22,141**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
+    -   公開日: 2025-10-17
+    -   視聴数: 934,276
+    -   **いいね数: 22,024**
+    -   出演者: 
 1.  [【石丸新党は？記者会見】なぜテレ朝に激怒？謎だらけ新党の全容は？【ReHacQSP】](/rehacq_fan/ids/lM0cVpbgv5w "wikilink")
     -   公開日: 2025-01-15
     -   視聴数: 621,757
     -   **いいね数: 21,961**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
-1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
-    -   公開日: 2025-10-17
-    -   視聴数: 913,013
-    -   **いいね数: 21,796**
-    -   出演者: 
 1.  [【国民民主vsひろゆき】全部言う！玉木氏が衝撃告白！参院選で重大発表【ReHacQ高橋弘樹】](/rehacq_fan/ids/3WIDjkmg6xY "wikilink")
     -   公開日: 2025-02-02
     -   視聴数: 1,659,234
@@ -472,13 +472,13 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,628,516
-    -   **いいね数: 15,075**
+    -   視聴数: 1,632,784
+    -   **いいね数: 15,092**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,740,601
-    -   **いいね数: 15,055**
+    -   視聴数: 1,744,550
+    -   **いいね数: 15,080**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【緊急生配信】　「再生の道」会見　応募1128人　候補者選定状況は？【ReHacQ】](/rehacq_fan/ids/CGqSiMYHhTc "wikilink")
     -   公開日: 2025-02-26
