@@ -1,6 +1,6 @@
 ### [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=Rx4U0L9SK9w)
 [![](https://img.youtube.com/vi/Rx4U0L9SK9w/sddefault.jpg)](https://www.youtube.com/watch?v=Rx4U0L9SK9w)
 -   公開日: 2025-10-17
--   視聴数: 756,309
--   **いいね数: 19,636**
+-   視聴数: 858,030
+-   **いいね数: 21,131**
 -   出演者: 

@@ -1,6 +1,6 @@
 ### [【スーツvs羽田圭介】旅のプロが対決！知られざる北海道旅【ReHacQ旅】](https://www.youtube.com/watch?v=e0eDv9p18jk)
 [![](https://img.youtube.com/vi/e0eDv9p18jk/sddefault.jpg)](https://www.youtube.com/watch?v=e0eDv9p18jk)
 -   公開日: 2025-08-31
--   視聴数: 106,885
--   **いいね数: 1,891**
+-   視聴数: 107,294
+-   **いいね数: 1,895**
 -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
