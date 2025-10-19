@@ -3,4 +3,4 @@
 -   公開日: 2025-10-16
 -   視聴数: 150,706
 -   **いいね数: 1,267**
--   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
+-   出演者: , [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
