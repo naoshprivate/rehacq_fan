@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【後藤達也vs小林史明】自民党エースが徹底解説！家計の資産を増やすには【ReHacQ高橋弘樹】](/rehacq_fan/ids/ZjMV4IWDg1Y "wikilink")
+    -   公開日: 2025-10-19
+    -   視聴数: 3,676
+    -   **いいね数: 113**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ZjMV4IWDg1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=ZjMV4IWDg1Y)
 1.  [【ひろゆきvs栃木県知事】なぜ支持される？現職知事最多６選の秘密【ReHacQ高橋弘樹】](/rehacq_fan/ids/-nokT_HTREo "wikilink")
     -   公開日: 2025-10-19
-    -   視聴数: 4,884
-    -   **いいね数: 154**
+    -   視聴数: 6,171
+    -   **いいね数: 230**
     -   出演者: 
     - [![](https://img.youtube.com/vi/-nokT_HTREo/hqdefault.jpg)](https://www.youtube.com/watch?v=-nokT_HTREo)
 1.  [【ノーベル物理学賞2025】同僚が受賞！物理学者がノーベル物理学賞をわかりやすく解説！【野村泰紀】](/rehacq_fan/ids/aXG0A5aVIfM "wikilink")
     -   公開日: 2025-10-19
-    -   視聴数: 33,802
-    -   **いいね数: 783**
+    -   視聴数: 37,185
+    -   **いいね数: 840**
     -   出演者: [村上愛花](/rehacq_fan/people/村上愛花 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
     - [![](https://img.youtube.com/vi/aXG0A5aVIfM/hqdefault.jpg)](https://www.youtube.com/watch?v=aXG0A5aVIfM)
 1.  [【ReHacQ討論会】神戸市長選ネット討論会【高橋弘樹】](/rehacq_fan/ids/vXjLZSYkbeQ "wikilink")
     -   公開日: 2025-10-18
-    -   視聴数: 96,197
-    -   **いいね数: 1,551**
+    -   視聴数: 97,867
+    -   **いいね数: 1,586**
     -   出演者: きじまひろつぐ, 久元喜造, 五島だいすけ, 岡崎ふみのり
     - [![](https://img.youtube.com/vi/vXjLZSYkbeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=vXjLZSYkbeQ)
 1.  [【川上量生vs仮想通貨】大激論！本当は損してる？暗号資産界隈の本音とは...【ReHacQ高橋弘樹vs加納裕三vs岡部典孝】](/rehacq_fan/ids/2NtecA0aoYQ "wikilink")
     -   公開日: 2025-10-18
-    -   視聴数: 91,293
-    -   **いいね数: 1,171**
+    -   視聴数: 94,272
+    -   **いいね数: 1,208**
     -   出演者: [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), 岡部典孝, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/2NtecA0aoYQ/hqdefault.jpg)](https://www.youtube.com/watch?v=2NtecA0aoYQ)
-1.  [【健康vsカオス理論】数学理論で欲を抑える！？ダイエットにも応用可能なカオス理論とは？【ReHacQvsViViモデル】](/rehacq_fan/ids/V1jBG7iCi1Y "wikilink")
-    -   公開日: 2025-10-18
-    -   視聴数: 39,859
-    -   **いいね数: 834**
-    -   出演者: [村上愛花](/rehacq_fan/people/村上愛花 "wikilink"), 津田一郎
-    - [![](https://img.youtube.com/vi/V1jBG7iCi1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=V1jBG7iCi1Y)
 
 # ReHacQの人気動画
 ## 視聴数が多い動画
@@ -90,11 +90,11 @@
 # 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 58, 視聴数: 10,796,111, いいね数: 176,621
+-   動画数: 59, 視聴数: 10,864,692, いいね数: 177,438
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 13,629,015, いいね数: 252,749
+-   動画数: 87, 視聴数: 13,632,390, いいね数: 252,778
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -138,15 +138,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,236,664, いいね数: 340,208
+-   動画数: 72, 視聴数: 22,244,822, いいね数: 340,233
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,475,938, いいね数: 219,678
+-   動画数: 50, 視聴数: 14,476,347, いいね数: 219,676
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,542,208, いいね数: 321,191
+-   動画数: 43, 視聴数: 19,542,225, いいね数: 321,191
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -217,4 +217,4 @@
 -   動画数: 14, 視聴数: 7,868,490, いいね数: 141,115
 
 ---
-2025-10-19 21:00
+2025-10-19 22:00
