@@ -365,16 +365,16 @@
     -   視聴数: 1,067,027
     -   **いいね数: 16,449**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
+    -   公開日: 2024-11-21
+    -   視聴数: 1,061,530
+    -   **いいね数: 15,599**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](/rehacq_fan/ids/k2jbKFIP--s "wikilink")
     -   公開日: 2025-01-26
     -   視聴数: 1,061,097
     -   **いいね数: 17,969**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【玉木雄一郎vs後藤達也】緊急対談！103万の壁が崩壊…経済政策に地殻変動【国民民主党の野望2024/11/20】](/rehacq_fan/ids/F4WmVdF4M8c "wikilink")
-    -   公開日: 2024-11-21
-    -   視聴数: 1,059,842
-    -   **いいね数: 15,602**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01
     -   視聴数: 1,054,060
@@ -455,6 +455,11 @@
     -   視聴数: 926,090
     -   **いいね数: 10,671**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink")
+1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
+    -   公開日: 2025-10-08
+    -   視聴数: 921,937
+    -   **いいね数: 16,487**
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
     -   公開日: 2025-05-13
     -   視聴数: 921,755
@@ -485,11 +490,6 @@
     -   視聴数: 911,625
     -   **いいね数: 12,390**
     -   出演者: 
-1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
-    -   公開日: 2025-10-08
-    -   視聴数: 910,365
-    -   **いいね数: 16,446**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
     -   公開日: 2025-09-23
     -   視聴数: 907,508
