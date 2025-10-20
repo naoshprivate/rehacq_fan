@@ -1,31 +1,31 @@
+1.  [【高橋弘樹vs連合】巨大労働組合の組織内候補が大暴露…しがらみって本当？国民民主党のウラ側を激白【ReHacQvs田村まみ】](/rehacq_fan/ids/FjrVNiBJKFs "wikilink")
+    -   公開日: 2025-10-20
+    -   視聴数: 1
+    -   **いいね数: 24**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/FjrVNiBJKFs/hqdefault.jpg)](https://www.youtube.com/watch?v=FjrVNiBJKFs)
+1.  [【元野村證券マンVS200兆円】高市早苗新総裁で日経平均株価上昇！時代を掴み最後に勝つ投資術とは？【ReHacQ】](/rehacq_fan/ids/IQ3Hz-32sro "wikilink")
+    -   公開日: 2025-10-20
+    -   視聴数: 1,882
+    -   **いいね数: 45**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/IQ3Hz-32sro/hqdefault.jpg)](https://www.youtube.com/watch?v=IQ3Hz-32sro)
+1.  [【生配信・日本維新の会】維新、ついに与党入りへ…自民×維新の歴史的合意【ReHacQ】](/rehacq_fan/ids/Vz5Uzqp6SEo "wikilink")
+    -   公開日: 2025-10-20
+    -   視聴数: 130,662
+    -   **いいね数: 2,917**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Vz5Uzqp6SEo/hqdefault.jpg)](https://www.youtube.com/watch?v=Vz5Uzqp6SEo)
 1.  [【後藤達也vs小林史明】自民党エースが徹底解説！家計の資産を増やすには【ReHacQ高橋弘樹】](/rehacq_fan/ids/ZjMV4IWDg1Y "wikilink")
     -   公開日: 2025-10-19
-    -   視聴数: 35,083
-    -   **いいね数: 475**
+    -   視聴数: 43,752
+    -   **いいね数: 568**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ZjMV4IWDg1Y/hqdefault.jpg)](https://www.youtube.com/watch?v=ZjMV4IWDg1Y)
 1.  [【ひろゆきvs栃木県知事】なぜ支持される？現職知事最多６選の秘密【ReHacQ高橋弘樹】](/rehacq_fan/ids/-nokT_HTREo "wikilink")
     -   公開日: 2025-10-19
-    -   視聴数: 38,347
-    -   **いいね数: 509**
+    -   視聴数: 46,928
+    -   **いいね数: 628**
     -   出演者: 
     - [![](https://img.youtube.com/vi/-nokT_HTREo/hqdefault.jpg)](https://www.youtube.com/watch?v=-nokT_HTREo)
-1.  [【ノーベル物理学賞2025】同僚が受賞！物理学者がノーベル物理学賞をわかりやすく解説！【野村泰紀】](/rehacq_fan/ids/aXG0A5aVIfM "wikilink")
-    -   公開日: 2025-10-19
-    -   視聴数: 65,796
-    -   **いいね数: 1,199**
-    -   出演者: [村上愛花](/rehacq_fan/people/村上愛花 "wikilink"), [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink")
-    - [![](https://img.youtube.com/vi/aXG0A5aVIfM/hqdefault.jpg)](https://www.youtube.com/watch?v=aXG0A5aVIfM)
-1.  [【ReHacQ討論会】神戸市長選ネット討論会 三宮駅前の再開発はどうなる？斉藤元彦知事の評価は…？【高橋弘樹】](/rehacq_fan/ids/vXjLZSYkbeQ "wikilink")
-    -   公開日: 2025-10-18
-    -   視聴数: 114,325
-    -   **いいね数: 1,838**
-    -   出演者: きじまひろつぐ, 久元喜造, 五島だいすけ, 岡崎ふみのり
-    - [![](https://img.youtube.com/vi/vXjLZSYkbeQ/hqdefault.jpg)](https://www.youtube.com/watch?v=vXjLZSYkbeQ)
-1.  [【川上量生vs仮想通貨】大激論！本当は損してる？暗号資産界隈の本音とは...【ReHacQ高橋弘樹vs加納裕三vs岡部典孝】](/rehacq_fan/ids/2NtecA0aoYQ "wikilink")
-    -   公開日: 2025-10-18
-    -   視聴数: 126,710
-    -   **いいね数: 1,535**
-    -   出演者: [加納裕三](/rehacq_fan/people/加納裕三 "wikilink"), 岡部典孝, [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/2NtecA0aoYQ/hqdefault.jpg)](https://www.youtube.com/watch?v=2NtecA0aoYQ)
 
