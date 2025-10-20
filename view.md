@@ -327,8 +327,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
-    -   視聴数: 1,098,684
-    -   **いいね数: 8,147**
+    -   視聴数: 1,098,860
+    -   **いいね数: 8,143**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
     -   公開日: 2024-01-27
@@ -432,8 +432,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
-    -   視聴数: 969,813
-    -   **いいね数: 12,058**
+    -   視聴数: 974,172
+    -   **いいね数: 12,080**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
@@ -470,16 +470,16 @@
     -   視聴数: 920,060
     -   **いいね数: 15,222**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
+    -   公開日: 2025-03-06
+    -   視聴数: 917,901
+    -   **いいね数: 11,007**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
     -   公開日: 2023-10-07
     -   視聴数: 915,343
     -   **いいね数: 10,127**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
-1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
-    -   公開日: 2025-03-06
-    -   視聴数: 913,880
-    -   **いいね数: 10,983**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](/rehacq_fan/ids/yFtpS4iZXlg "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 911,625
