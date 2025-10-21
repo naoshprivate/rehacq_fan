@@ -87,8 +87,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
-    -   視聴数: 772,314
-    -   **いいね数: 28,055**
+    -   視聴数: 772,409
+    -   **いいね数: 28,056**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
@@ -232,8 +232,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](/rehacq_fan/ids/_Oje8CA9ZhU "wikilink")
     -   公開日: 2025-03-10
-    -   視聴数: 491,250
-    -   **いいね数: 20,451**
+    -   視聴数: 491,360
+    -   **いいね数: 20,452**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
@@ -437,8 +437,8 @@
     -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs都県議会議員】激論！どうなる地方議会の未来【緊急生配信】](/rehacq_fan/ids/_5NWCvCutc8 "wikilink")
     -   公開日: 2025-02-21
-    -   視聴数: 667,734
-    -   **いいね数: 15,523**
+    -   視聴数: 668,794
+    -   **いいね数: 15,527**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 関口健太郎
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
     -   公開日: 2023-12-07
@@ -482,7 +482,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【緊急生配信】　「再生の道」会見　応募1128人　候補者選定状況は？【ReHacQ】](/rehacq_fan/ids/CGqSiMYHhTc "wikilink")
     -   公開日: 2025-02-26
-    -   視聴数: 338,549
+    -   視聴数: 338,565
     -   **いいね数: 14,982**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs岡田斗司夫】AI出現！人類は老害化？過剰ホワイト社会の弊害【宮崎駿】](/rehacq_fan/ids/aHfLArP4Q_8 "wikilink")
