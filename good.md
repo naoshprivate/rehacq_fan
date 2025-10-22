@@ -202,7 +202,7 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【高橋弘樹vs 斎藤知事に激怒の議員】兵庫県告発文書！百条委員会の委員長の本音【ReHacQ】](/rehacq_fan/ids/uY0Jmw4wR7Y "wikilink")
     -   公開日: 2024-10-04
-    -   視聴数: 1,692,414
+    -   視聴数: 1,692,702
     -   **いいね数: 21,110**
     -   出演者: 奥谷謙一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
@@ -262,8 +262,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【石丸伸二vs銀行の元上司】半沢直樹か否か…銀行時代、上司を詰めた理由とは？【高橋弘樹】](/rehacq_fan/ids/9Ost8DSs1uU "wikilink")
     -   公開日: 2024-09-14
-    -   視聴数: 1,206,382
-    -   **いいね数: 18,676**
+    -   視聴数: 1,206,766
+    -   **いいね数: 18,674**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二が唖然】結婚報告東出昌大！衝撃告白…幸せな人生とは？【世界の果てに、東出・ひろゆき置いてきた】](/rehacq_fan/ids/8xFzx_lOouI "wikilink")
     -   公開日: 2024-08-27
@@ -325,16 +325,16 @@
     -   視聴数: 943,615
     -   **いいね数: 17,029**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
+    -   公開日: 2025-07-29
+    -   視聴数: 1,255,564
+    -   **いいね数: 17,014**
+    -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs西田亮介】「再生の道」の行く末とは？代表の思考をガチ解読！日本再生なるか...【ReHacQvs編集者箕輪厚介】](/rehacq_fan/ids/T6-FWvACzn8 "wikilink")
     -   公開日: 2025-04-30
     -   視聴数: 890,114
     -   **いいね数: 16,942**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【高橋弘樹vs辞めゴールドマン・サックス】年収3億だけど「二度と戻りたくない」外資系投資会社で感じた限界とは？【ReHacQ】](/rehacq_fan/ids/dKXQC1J0VLw "wikilink")
-    -   公開日: 2025-07-29
-    -   視聴数: 1,246,263
-    -   **いいね数: 16,888**
-    -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】緊急生配信！代表退任…「で、今後どうする？」まったりしつこく聞いてみる【ReHacQ 】](/rehacq_fan/ids/o9Ymcad1RXE "wikilink")
     -   公開日: 2025-08-27
     -   視聴数: 647,187
