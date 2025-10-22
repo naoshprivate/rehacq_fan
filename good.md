@@ -472,13 +472,13 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
-    -   視聴数: 1,632,784
-    -   **いいね数: 15,092**
+    -   視聴数: 1,636,896
+    -   **いいね数: 15,120**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,744,550
-    -   **いいね数: 15,080**
+    -   視聴数: 1,747,851
+    -   **いいね数: 15,097**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【緊急生配信】　「再生の道」会見　応募1128人　候補者選定状況は？【ReHacQ】](/rehacq_fan/ids/CGqSiMYHhTc "wikilink")
     -   公開日: 2025-02-26
