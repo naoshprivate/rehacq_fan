@@ -1,6 +1,6 @@
-### [【自民・維新政権発足！】日本維新の会・藤田共同代表に聞く！日本をどう改革するのか？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=TYMAm0xqIv8)
+### [【高橋弘樹vs藤田文武】緊急出演！日本維新の会・共同代表…連立誕生の舞台裏！高市早苗総理でどう日本変わる？【ReHacQ】](https://www.youtube.com/watch?v=TYMAm0xqIv8)
 [![](https://img.youtube.com/vi/TYMAm0xqIv8/sddefault.jpg)](https://www.youtube.com/watch?v=TYMAm0xqIv8)
 -   公開日: 2025-10-22
--   視聴数: 32,659
--   **いいね数: 2,928**
+-   視聴数: 72,137
+-   **いいね数: 4,475**
 -   出演者: 
