@@ -190,16 +190,16 @@
     -   視聴数: 1,248,067
     -   **いいね数: 21,446**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
+    -   公開日: 2025-04-06
+    -   視聴数: 1,133,317
+    -   **いいね数: 21,352**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
     -   視聴数: 1,479,130
     -   **いいね数: 21,350**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
-1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
-    -   公開日: 2025-04-06
-    -   視聴数: 1,132,386
-    -   **いいね数: 21,350**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
     -   視聴数: 1,426,571
@@ -307,8 +307,8 @@
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
-    -   視聴数: 1,277,053
-    -   **いいね数: 17,599**
+    -   視聴数: 1,277,468
+    -   **いいね数: 17,602**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔の推薦】ビジネスと量子力学！超弦理論の謎【野村泰紀と宇宙】](/rehacq_fan/ids/lp7PPFsnQAE "wikilink")
     -   公開日: 2023-07-14
@@ -492,8 +492,8 @@
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
-    -   視聴数: 1,252,219
-    -   **いいね数: 14,692**
+    -   視聴数: 1,255,165
+    -   **いいね数: 14,704**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs参政党】東京都議選2025！代表者インタビュー【神谷宗幣】](/rehacq_fan/ids/u1vR6NcU6ys "wikilink")
     -   公開日: 2025-06-20
