@@ -1,6 +1,6 @@
 ### [【石丸伸二vs藤井サチ】大島に来て号泣!?まさかのクライマックス【vsAKB48大盛】](https://www.youtube.com/watch?v=B-ZSyKXT1S8)
 [![](https://img.youtube.com/vi/B-ZSyKXT1S8/sddefault.jpg)](https://www.youtube.com/watch?v=B-ZSyKXT1S8)
 -   公開日: 2024-10-19
--   視聴数: 354,360
+-   視聴数: 354,460
 -   **いいね数: 9,361**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
