@@ -1,6 +1,6 @@
 ### [【ひろゆきvs自民党】日本のIT産業なぜ敗北？片山さつき参戦【ジャニーズ問題】](https://www.youtube.com/watch?v=--NfR_8b1NY)
 [![](https://img.youtube.com/vi/--NfR_8b1NY/sddefault.jpg)](https://www.youtube.com/watch?v=--NfR_8b1NY)
 -   公開日: 2023-07-09
--   視聴数: 585,768
--   **いいね数: 6,245**
+-   視聴数: 586,367
+-   **いいね数: 6,250**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [片山さつき](/rehacq_fan/people/片山さつき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
