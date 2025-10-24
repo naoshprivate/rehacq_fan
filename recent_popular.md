@@ -18,8 +18,8 @@
     - [![](https://img.youtube.com/vi/RXKgnjC_XOI/hqdefault.jpg)](https://www.youtube.com/watch?v=RXKgnjC_XOI)
 1.  [【河村たかしvs百田尚樹vsひろゆき】なぜ離党！？緊急生配信中…百田尚樹さんと大激論【ReHacQ高橋弘樹&西田亮介】](/rehacq_fan/ids/UWfPshzoSeI "wikilink")
     -   公開日: 2025-10-13
-    -   視聴数: 779,312
-    -   **いいね数: 13,406**
+    -   視聴数: 800,466
+    -   **いいね数: 13,542**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/UWfPshzoSeI/hqdefault.jpg)](https://www.youtube.com/watch?v=UWfPshzoSeI)
 1.  [【なぜ自公連立崩壊？】高市早苗会談で何が…代表に聞く！なぜ連立終了？公明党のこれから【ReHacQ高橋弘樹】](/rehacq_fan/ids/MOY5qRsVZjc "wikilink")
