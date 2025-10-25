@@ -22,8 +22,8 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
-    -   視聴数: 2,657,314
-    -   **いいね数: 40,075**
+    -   視聴数: 2,658,766
+    -   **いいね数: 40,074**
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](/rehacq_fan/ids/MXBsHbF603U "wikilink")
     -   公開日: 2023-12-21
@@ -490,13 +490,13 @@
     -   視聴数: 916,537
     -   **いいね数: 10,138**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
+1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
+    -   公開日: 2025-09-23
+    -   視聴数: 913,002
+    -   **いいね数: 13,722**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](/rehacq_fan/ids/yFtpS4iZXlg "wikilink")
     -   公開日: 2024-12-08
     -   視聴数: 911,665
     -   **いいね数: 12,388**
     -   出演者: 
-1.  [【ひろゆきvs玉木雄一郎】朝まで生玉木！総裁選どうみる？政権どうとる？ガッツリ政策語りまくる【ReHacQ高橋弘樹】](/rehacq_fan/ids/keDkHXJbZEY "wikilink")
-    -   公開日: 2025-09-23
-    -   視聴数: 910,779
-    -   **いいね数: 13,717**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
