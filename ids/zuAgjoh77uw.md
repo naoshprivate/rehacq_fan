@@ -3,7 +3,7 @@
 -   公開日: 2025-10-12
 -   視聴数: 49,436
 -   **いいね数: 1,007**
--   出演者: 清野和彦, [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [清野和彦](/rehacq_fan/people/清野和彦 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 
 ## 動画の概要
