@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【ひろゆきvs令和ロマンくるま】緊急雑談！今後どうする？【ReHacQ】](/rehacq_fan/ids/L-NsJjPlUig "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 22,352
-    -   **いいね数: 686**
+    -   視聴数: 34,433
+    -   **いいね数: 815**
     -   出演者: くるま, [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink")
     - [![](https://img.youtube.com/vi/L-NsJjPlUig/hqdefault.jpg)](https://www.youtube.com/watch?v=L-NsJjPlUig)
 1.  [【ひろゆきvs北関東のドン】地方の課題！教育への投資どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/bpGS4r3eSOY "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 12,707
-    -   **いいね数: 251**
+    -   視聴数: 16,310
+    -   **いいね数: 293**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 福田富一
     - [![](https://img.youtube.com/vi/bpGS4r3eSOY/hqdefault.jpg)](https://www.youtube.com/watch?v=bpGS4r3eSOY)
 1.  [【スーツvs羽田圭介】大激論！なぜ人は旅をするのか…【ReHacQ旅北海道】](/rehacq_fan/ids/EWiCvcfgwp8 "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 34,269
-    -   **いいね数: 525**
+    -   視聴数: 36,771
+    -   **いいね数: 539**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
     - [![](https://img.youtube.com/vi/EWiCvcfgwp8/hqdefault.jpg)](https://www.youtube.com/watch?v=EWiCvcfgwp8)
 1.  [【高橋弘樹vs孤独】高市総理で日本どうなる？田原総一朗問題&石丸伸二vs小西洋之&立憲民主のヤジvs吉村知事のラーメン【ReHacQまったり生配信】](/rehacq_fan/ids/x5kMWKz8COk "wikilink")
     -   公開日: 2025-10-25
-    -   視聴数: 317,424
-    -   **いいね数: 3,951**
+    -   視聴数: 322,141
+    -   **いいね数: 3,981**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/x5kMWKz8COk/hqdefault.jpg)](https://www.youtube.com/watch?v=x5kMWKz8COk)
 1.  [【高市早苗のブレーン】緊急出演！責任ある積極財政…真の意味とは？【後藤達也vs藤井聡vsReHacQ高橋弘樹】](/rehacq_fan/ids/NnEZ6wVBVEM "wikilink")
     -   公開日: 2025-10-25
-    -   視聴数: 147,408
-    -   **いいね数: 2,435**
+    -   視聴数: 151,075
+    -   **いいね数: 2,467**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤井聡](/rehacq_fan/people/藤井聡 "wikilink")
     - [![](https://img.youtube.com/vi/NnEZ6wVBVEM/hqdefault.jpg)](https://www.youtube.com/watch?v=NnEZ6wVBVEM)
 
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 86, 視聴数: 16,690,665, いいね数: 259,864
+-   動画数: 86, 視聴数: 16,720,376, いいね数: 260,141
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,142,259, いいね数: 255,894
+-   動画数: 87, 視聴数: 14,149,478, いいね数: 255,957
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,707,774, いいね数: 249,953
+-   動画数: 64, 視聴数: 13,708,197, いいね数: 249,963
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,460,159, いいね数: 358,841
+-   動画数: 76, 視聴数: 20,460,383, いいね数: 358,842
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -132,11 +132,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,638,950, いいね数: 322,086
+-   動画数: 43, 視聴数: 19,642,268, いいね数: 322,144
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,705,911, いいね数: 290,627
+-   動画数: 44, 視聴数: 15,709,302, いいね数: 290,623
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -188,11 +188,11 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,766,581, いいね数: 95,014
+-   動画数: 27, 視聴数: 7,766,598, いいね数: 95,015
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,301,724, いいね数: 112,087
+-   動画数: 24, 視聴数: 7,301,726, いいね数: 112,087
 
 #### [2023年04月](videos/202304 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 7,877,448, いいね数: 141,121
 
 ---
-2025-10-26 23:00
+2025-10-27 00:00
