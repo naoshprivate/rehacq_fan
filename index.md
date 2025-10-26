@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ひろゆきvs令和ロマンくるま】緊急雑談！今後どうする？【ReHacQ】](/rehacq_fan/ids/L-NsJjPlUig "wikilink")
+    -   公開日: 2025-10-26
+    -   視聴数: 4
+    -   **いいね数: 42**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/L-NsJjPlUig/hqdefault.jpg)](https://www.youtube.com/watch?v=L-NsJjPlUig)
+1.  [【ひろゆきvs北関東のドン】地方の課題！教育への投資どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/bpGS4r3eSOY "wikilink")
+    -   公開日: 2025-10-26
+    -   視聴数: 5,142
+    -   **いいね数: 132**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/bpGS4r3eSOY/hqdefault.jpg)](https://www.youtube.com/watch?v=bpGS4r3eSOY)
 1.  [【スーツvs羽田圭介】大激論！なぜ人は旅をするのか…【ReHacQ旅北海道】](/rehacq_fan/ids/EWiCvcfgwp8 "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 24,058
-    -   **いいね数: 410**
+    -   視聴数: 27,910
+    -   **いいね数: 456**
     -   出演者: 
     - [![](https://img.youtube.com/vi/EWiCvcfgwp8/hqdefault.jpg)](https://www.youtube.com/watch?v=EWiCvcfgwp8)
 1.  [【高橋弘樹vs孤独】高市総理で日本どうなる？田原総一朗問題&石丸伸二vs小西洋之&立憲民主のヤジvs吉村知事のラーメン【ReHacQまったり生配信】](/rehacq_fan/ids/x5kMWKz8COk "wikilink")
     -   公開日: 2025-10-25
-    -   視聴数: 300,639
-    -   **いいね数: 3,826**
+    -   視聴数: 306,337
+    -   **いいね数: 3,874**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/x5kMWKz8COk/hqdefault.jpg)](https://www.youtube.com/watch?v=x5kMWKz8COk)
 1.  [【高市早苗のブレーン】緊急出演！責任ある積極財政…真の意味とは？【後藤達也vs藤井聡vsReHacQ高橋弘樹】](/rehacq_fan/ids/NnEZ6wVBVEM "wikilink")
     -   公開日: 2025-10-25
-    -   視聴数: 135,481
-    -   **いいね数: 2,284**
+    -   視聴数: 139,661
+    -   **いいね数: 2,341**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤井聡](/rehacq_fan/people/藤井聡 "wikilink")
     - [![](https://img.youtube.com/vi/NnEZ6wVBVEM/hqdefault.jpg)](https://www.youtube.com/watch?v=NnEZ6wVBVEM)
-1.  [【緊急生配信】『激論！クロスファイア』が番組終了…なぜ？【ReHacQ高橋弘樹vs斎藤幸平】](/rehacq_fan/ids/XtPSEC1e3x0 "wikilink")
-    -   公開日: 2025-10-25
-    -   視聴数: 121,493
-    -   **いいね数: 1,901**
-    -   出演者: [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/XtPSEC1e3x0/hqdefault.jpg)](https://www.youtube.com/watch?v=XtPSEC1e3x0)
-1.  [【斎藤幸平vsゾス山本】高市総理で働き方改革どうなる…大激論！幸せな働き方とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/JltRRMzvXVs "wikilink")
-    -   公開日: 2025-10-25
-    -   視聴数: 42,374
-    -   **いいね数: 543**
-    -   出演者: 山本康二, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/JltRRMzvXVs/hqdefault.jpg)](https://www.youtube.com/watch?v=JltRRMzvXVs)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 84, 視聴数: 16,587,009, いいね数: 258,086
+-   動画数: 85, 視聴数: 16,621,414, いいね数: 258,654
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,110,446, いいね数: 255,665
+-   動画数: 87, 視聴数: 14,110,450, いいね数: 255,665
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,696,389, いいね数: 249,870
+-   動画数: 64, 視聴数: 13,698,774, いいね数: 249,887
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,449,679, いいね数: 358,723
+-   動画数: 76, 視聴数: 20,460,153, いいね数: 358,841
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -120,15 +120,15 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,011,975, いいね数: 379,315
+-   動画数: 38, 視聴数: 22,012,593, いいね数: 379,320
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,276,887, いいね数: 340,340
+-   動画数: 72, 視聴数: 22,281,236, いいね数: 340,348
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,501,014, いいね数: 219,877
+-   動画数: 50, 視聴数: 14,501,937, いいね数: 219,882
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -156,7 +156,7 @@
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,190,380, いいね数: 187,582
+-   動画数: 34, 視聴数: 15,190,428, いいね数: 187,583
 
 #### [2024年01月](videos/202401 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 7,877,448, いいね数: 141,121
 
 ---
-2025-10-26 20:00
+2025-10-26 21:00

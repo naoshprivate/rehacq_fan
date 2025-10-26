@@ -1,6 +1,6 @@
 ### [【トランプ再選後の経済】株高続く？読み解くカギは前トランプ政権にあり【安野貴博vs永濱利廣】](https://www.youtube.com/watch?v=ZnMOG1imfHk)
 [![](https://img.youtube.com/vi/ZnMOG1imfHk/sddefault.jpg)](https://www.youtube.com/watch?v=ZnMOG1imfHk)
 -   公開日: 2024-11-08
--   視聴数: 127,525
--   **いいね数: 1,878**
+-   視聴数: 127,530
+-   **いいね数: 1,877**
 -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
