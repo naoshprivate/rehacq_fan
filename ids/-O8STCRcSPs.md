@@ -3,4 +3,4 @@
 -   公開日: 2024-12-07
 -   視聴数: 797,006
 -   **いいね数: 9,280**
--   出演者: 大前プジョルジョ健太, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
