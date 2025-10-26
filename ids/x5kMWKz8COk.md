@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs孤独】高市総理で日本どうなる？田原総一朗問題&石丸伸二vs小西博之&立憲民主のヤジvs吉村知事のラーメン【ReHacQまったり生配信】](https://www.youtube.com/watch?v=x5kMWKz8COk)
 [![](https://img.youtube.com/vi/x5kMWKz8COk/sddefault.jpg)](https://www.youtube.com/watch?v=x5kMWKz8COk)
 -   公開日: 2025-10-25
--   視聴数: 156,071
--   **いいね数: 2,257**
+-   視聴数: 232,537
+-   **いいね数: 3,160**
 -   出演者: 
