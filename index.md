@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【立憲民主党vs高橋弘樹】総理決まったけどどうするの？まったり雑談【ReHacQ】](/rehacq_fan/ids/gb289snBsWY "wikilink")
+    -   公開日: 2025-10-27
+    -   視聴数: 28,795
+    -   **いいね数: 550**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/gb289snBsWY/hqdefault.jpg)](https://www.youtube.com/watch?v=gb289snBsWY)
 1.  [【村上隆vsスーツ】ビッグアーティストが「話したい」...なぜ？緊急対談！【ReHacQ高橋vs箕輪厚介】](/rehacq_fan/ids/Txv2Y31DRpA "wikilink")
     -   公開日: 2025-10-27
-    -   視聴数: 48,692
-    -   **いいね数: 1,789**
+    -   視聴数: 92,090
+    -   **いいね数: 2,467**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Txv2Y31DRpA/hqdefault.jpg)](https://www.youtube.com/watch?v=Txv2Y31DRpA)
 1.  [【史上最強軍団 阪神タイガース】なぜぶっちぎりの優勝ができたのか？チーム戦略＆育成徹底分析SP【ReHacQ】](/rehacq_fan/ids/E31C9WONv0o "wikilink")
     -   公開日: 2025-10-27
-    -   視聴数: 7,989
-    -   **いいね数: 143**
+    -   視聴数: 9,637
+    -   **いいね数: 158**
     -   出演者: 
     - [![](https://img.youtube.com/vi/E31C9WONv0o/hqdefault.jpg)](https://www.youtube.com/watch?v=E31C9WONv0o)
 1.  [【ひろゆきvs令和ロマンくるま】緊急雑談！今後どうする？【ReHacQ】](/rehacq_fan/ids/L-NsJjPlUig "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 83,645
-    -   **いいね数: 1,569**
+    -   視聴数: 85,274
+    -   **いいね数: 1,584**
     -   出演者: くるま, [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink")
     - [![](https://img.youtube.com/vi/L-NsJjPlUig/hqdefault.jpg)](https://www.youtube.com/watch?v=L-NsJjPlUig)
 1.  [【ひろゆきvs北関東のドン】地方の課題！教育への投資どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/bpGS4r3eSOY "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 45,682
-    -   **いいね数: 522**
+    -   視聴数: 46,445
+    -   **いいね数: 532**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 福田富一
     - [![](https://img.youtube.com/vi/bpGS4r3eSOY/hqdefault.jpg)](https://www.youtube.com/watch?v=bpGS4r3eSOY)
-1.  [【スーツvs羽田圭介】大激論！なぜ人は旅をするのか…【ReHacQ旅北海道】](/rehacq_fan/ids/EWiCvcfgwp8 "wikilink")
-    -   公開日: 2025-10-26
-    -   視聴数: 65,488
-    -   **いいね数: 834**
-    -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
-    - [![](https://img.youtube.com/vi/EWiCvcfgwp8/hqdefault.jpg)](https://www.youtube.com/watch?v=EWiCvcfgwp8)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 88, 視聴数: 17,103,372, いいね数: 265,657
+-   動画数: 89, 視聴数: 17,186,885, いいね数: 266,979
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,165,300, いいね数: 256,093
+-   動画数: 87, 視聴数: 14,165,984, いいね数: 256,091
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,467,264, いいね数: 358,888
+-   動画数: 76, 視聴数: 20,467,653, いいね数: 358,889
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -120,11 +120,11 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,013,818, いいね数: 379,324
+-   動画数: 38, 視聴数: 22,023,361, いいね数: 379,344
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,282,467, いいね数: 340,339
+-   動画数: 72, 視聴数: 22,285,901, いいね数: 340,336
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 7,883,117, いいね数: 141,119
 
 ---
-2025-10-27 22:00
+2025-10-27 23:00
