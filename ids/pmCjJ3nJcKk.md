@@ -3,4 +3,4 @@
 -   公開日: 2024-09-20
 -   視聴数: 182,031
 -   **いいね数: 2,030**
--   出演者: 前嶋和弘, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [前嶋和弘](/rehacq_fan/people/前嶋和弘 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")

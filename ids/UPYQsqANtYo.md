@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/UPYQsqANtYo/sddefault.jpg)](https://www.youtube.com/watch?v=UPYQsqANtYo)
 -   公開日: 2025-06-20
 -   視聴数: 20,943
--   **いいね数: 1,104**
+-   **いいね数: 1,103**
 -   出演者: やた一久, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
