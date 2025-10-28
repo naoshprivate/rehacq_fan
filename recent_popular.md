@@ -1,3 +1,9 @@
+1.  [【高橋弘樹vs藤田文武】緊急出演！日本維新の会・共同代表…連立誕生の舞台裏！高市早苗総理でどう日本変わる？【ReHacQ】](/rehacq_fan/ids/TYMAm0xqIv8 "wikilink")
+    -   公開日: 2025-10-22
+    -   視聴数: 547,020
+    -   **いいね数: 10,096**
+    -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+    - [![](https://img.youtube.com/vi/TYMAm0xqIv8/hqdefault.jpg)](https://www.youtube.com/watch?v=TYMAm0xqIv8)
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
     -   公開日: 2025-10-21
     -   視聴数: 1,149,950
@@ -22,10 +28,4 @@
     -   **いいね数: 14,436**
     -   出演者: いなば太郎, 今村充, 東修平, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink")
     - [![](https://img.youtube.com/vi/RXKgnjC_XOI/hqdefault.jpg)](https://www.youtube.com/watch?v=RXKgnjC_XOI)
-1.  [【河村たかしvs百田尚樹vsひろゆき】なぜ離党！？緊急生配信中…百田尚樹さんと大激論【ReHacQ高橋弘樹&西田亮介】](/rehacq_fan/ids/UWfPshzoSeI "wikilink")
-    -   公開日: 2025-10-13
-    -   視聴数: 816,127
-    -   **いいね数: 13,642**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/UWfPshzoSeI/hqdefault.jpg)](https://www.youtube.com/watch?v=UWfPshzoSeI)
 
