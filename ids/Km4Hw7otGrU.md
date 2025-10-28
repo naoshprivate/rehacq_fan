@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs辞めTwitter】SNS界のエース衝撃退社！X辞め...BeRealへ！外資系ヘッドハンティングの衝撃給料...イーロン・マスク後のXとは？【ReHacQ】](https://www.youtube.com/watch?v=Km4Hw7otGrU)
 [![](https://img.youtube.com/vi/Km4Hw7otGrU/sddefault.jpg)](https://www.youtube.com/watch?v=Km4Hw7otGrU)
 -   公開日: 2025-10-28
--   視聴数: 2
--   **いいね数: 18**
+-   視聴数: 6,061
+-   **いいね数: 131**
 -   出演者: 
