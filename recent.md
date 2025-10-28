@@ -1,31 +1,31 @@
-1.  [【立憲民主党vs高橋弘樹】総理決まったけどどうするの？まったり雑談【ReHacQ】](/rehacq_fan/ids/gb289snBsWY "wikilink")
+1.  [【立憲民主党vs高橋弘樹】高市早苗総理が誕生！これからどうする!?まったり雑談【ReHacQvs青柳陽一郎vs中谷一馬vs西田亮介】](/rehacq_fan/ids/gb289snBsWY "wikilink")
     -   公開日: 2025-10-27
-    -   視聴数: 157,519
-    -   **いいね数: 1,499**
+    -   視聴数: 196,627
+    -   **いいね数: 1,944**
     -   出演者: 
     - [![](https://img.youtube.com/vi/gb289snBsWY/hqdefault.jpg)](https://www.youtube.com/watch?v=gb289snBsWY)
-1.  [【村上隆vsスーツ】ビッグアーティストが「話したい」...なぜ？緊急対談！【ReHacQ高橋vs箕輪厚介】](/rehacq_fan/ids/Txv2Y31DRpA "wikilink")
+1.  [【村上隆vsスーツ】「至急、話がしたい」なぜ？「悟り」と「アート」…緊急対談！【ReHacQ高橋弘樹vs箕輪厚介】](/rehacq_fan/ids/Txv2Y31DRpA "wikilink")
     -   公開日: 2025-10-27
-    -   視聴数: 206,064
-    -   **いいね数: 3,748**
+    -   視聴数: 243,916
+    -   **いいね数: 4,467**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Txv2Y31DRpA/hqdefault.jpg)](https://www.youtube.com/watch?v=Txv2Y31DRpA)
 1.  [【史上最強軍団 阪神タイガース】なぜぶっちぎりの優勝ができたのか？チーム戦略＆育成徹底分析SP【ReHacQ】](/rehacq_fan/ids/E31C9WONv0o "wikilink")
     -   公開日: 2025-10-27
-    -   視聴数: 16,871
-    -   **いいね数: 215**
+    -   視聴数: 19,121
+    -   **いいね数: 237**
     -   出演者: 
     - [![](https://img.youtube.com/vi/E31C9WONv0o/hqdefault.jpg)](https://www.youtube.com/watch?v=E31C9WONv0o)
 1.  [【ひろゆきvs令和ロマンくるま】緊急雑談！今後どうする？【ReHacQ】](/rehacq_fan/ids/L-NsJjPlUig "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 91,338
-    -   **いいね数: 1,633**
+    -   視聴数: 94,513
+    -   **いいね数: 1,683**
     -   出演者: くるま, [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink")
     - [![](https://img.youtube.com/vi/L-NsJjPlUig/hqdefault.jpg)](https://www.youtube.com/watch?v=L-NsJjPlUig)
 1.  [【ひろゆきvs北関東のドン】地方の課題！教育への投資どうする？【ReHacQ高橋弘樹】](/rehacq_fan/ids/bpGS4r3eSOY "wikilink")
     -   公開日: 2025-10-26
-    -   視聴数: 49,034
-    -   **いいね数: 551**
+    -   視聴数: 50,359
+    -   **いいね数: 566**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 福田富一
     - [![](https://img.youtube.com/vi/bpGS4r3eSOY/hqdefault.jpg)](https://www.youtube.com/watch?v=bpGS4r3eSOY)
 
