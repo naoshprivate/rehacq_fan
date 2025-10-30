@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【生配信・国民民主党】ガソリン税“年内廃止”迫る！高市政権への提言とは【ReHacQ記者会見 10月28日(火)】](/rehacq_fan/ids/nOjfVQGR4kw "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 37,399
+    -   視聴数: 37,511
     -   **いいね数: 526**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/nOjfVQGR4kw/hqdefault.jpg)](https://www.youtube.com/watch?v=nOjfVQGR4kw)
 1.  [【斎藤幸平vs志位和夫】激論！搾取されない人生とは？『資本論』から知る共産主義への想い【ReHacQvs日本共産党】](/rehacq_fan/ids/ujLjyXg0n1A "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 8,153
-    -   **いいね数: 436**
+    -   視聴数: 12,252
+    -   **いいね数: 568**
     -   出演者: 志位和夫, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
     - [![](https://img.youtube.com/vi/ujLjyXg0n1A/hqdefault.jpg)](https://www.youtube.com/watch?v=ujLjyXg0n1A)
 1.  [【ひろゆきvs石丸伸二】緊急生配信！衝撃の殺人事件…その瞬間何が？ガザの影で忘られたパレスチナのリアルとは【ReHacQ須賀川拓】](/rehacq_fan/ids/wFG1mTfeELo "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 52,732
-    -   **いいね数: 2,519**
+    -   視聴数: 68,023
+    -   **いいね数: 2,695**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/wFG1mTfeELo/hqdefault.jpg)](https://www.youtube.com/watch?v=wFG1mTfeELo)
 1.  [【生配信】チームみらい・安野代表定例会見 10月30日（木）【ReHacQ】](/rehacq_fan/ids/JKaBYlIMo2Y "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 22,205
-    -   **いいね数: 562**
+    -   視聴数: 23,151
+    -   **いいね数: 579**
     -   出演者: [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
     - [![](https://img.youtube.com/vi/JKaBYlIMo2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=JKaBYlIMo2Y)
 1.  [【石丸伸二vsひろゆき】「いつまでも…」再生の道へ本音告白【ReHacQ高橋弘樹vs田中章義】](/rehacq_fan/ids/3X2Ey_jLfmE "wikilink")
     -   公開日: 2025-10-29
-    -   視聴数: 199,751
-    -   **いいね数: 7,021**
+    -   視聴数: 201,884
+    -   **いいね数: 7,063**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [田中章義](/rehacq_fan/people/田中章義 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/3X2Ey_jLfmE/hqdefault.jpg)](https://www.youtube.com/watch?v=3X2Ey_jLfmE)
 
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 98, 視聴数: 19,288,715, いいね数: 298,526
+-   動画数: 98, 視聴数: 19,315,820, いいね数: 298,939
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,454,836, いいね数: 257,910
+-   動画数: 87, 視聴数: 14,454,910, いいね数: 257,910
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,746,014, いいね数: 250,241
+-   動画数: 64, 視聴数: 13,752,267, いいね数: 250,288
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,268,511, いいね数: 300,833
+-   動画数: 78, 視聴数: 16,270,457, いいね数: 300,843
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -128,11 +128,11 @@
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,525,749, いいね数: 220,036
+-   動画数: 50, 視聴数: 14,530,590, いいね数: 220,058
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,692,735, いいね数: 322,577
+-   動画数: 43, 視聴数: 19,711,265, いいね数: 322,863
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -188,7 +188,7 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,768,336, いいね数: 95,016
+-   動画数: 27, 視聴数: 7,768,343, いいね数: 95,016
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 7,885,380, いいね数: 141,125
 
 ---
-2025-10-30 23:00
+2025-10-31 00:00
