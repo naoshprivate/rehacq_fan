@@ -1,34 +1,34 @@
 # 最近の動画
 1.  [【生配信・国民民主党】ガソリン税“年内廃止”迫る！高市政権への提言とは【ReHacQ記者会見 10月28日(火)】](/rehacq_fan/ids/nOjfVQGR4kw "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 35,396
-    -   **いいね数: 509**
+    -   視聴数: 37,004
+    -   **いいね数: 525**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/nOjfVQGR4kw/hqdefault.jpg)](https://www.youtube.com/watch?v=nOjfVQGR4kw)
+1.  [【ひろゆきvs石丸伸二】緊急生配信！衝撃の殺人事件…その瞬間何が？ガザの影で忘られたパレスチナのリアルとは【ReHacQ須賀川拓】](/rehacq_fan/ids/wFG1mTfeELo "wikilink")
+    -   公開日: 2025-10-30
+    -   視聴数: 10,844
+    -   **いいね数: 735**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/wFG1mTfeELo/hqdefault.jpg)](https://www.youtube.com/watch?v=wFG1mTfeELo)
+1.  [【斎藤幸平vs志位和夫】激論！搾取されない人生とは？『資本論』から知る共産主義への想い【ReHacQvs日本共産党】](/rehacq_fan/ids/ujLjyXg0n1A "wikilink")
+    -   公開日: 2025-10-30
+    -   視聴数: 1
+    -   **いいね数: 13**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ujLjyXg0n1A/hqdefault.jpg)](https://www.youtube.com/watch?v=ujLjyXg0n1A)
 1.  [【生配信】チームみらい・安野代表定例会見 10月30日（木）【ReHacQ】](/rehacq_fan/ids/JKaBYlIMo2Y "wikilink")
     -   公開日: 2025-10-30
-    -   視聴数: 6,451
-    -   **いいね数: 246**
+    -   視聴数: 19,262
+    -   **いいね数: 505**
     -   出演者: 
     - [![](https://img.youtube.com/vi/JKaBYlIMo2Y/hqdefault.jpg)](https://www.youtube.com/watch?v=JKaBYlIMo2Y)
 1.  [【石丸伸二vsひろゆき】「いつまでも…」再生の道へ本音告白【ReHacQ高橋弘樹vs田中章義】](/rehacq_fan/ids/3X2Ey_jLfmE "wikilink")
     -   公開日: 2025-10-29
-    -   視聴数: 166,968
-    -   **いいね数: 6,290**
+    -   視聴数: 192,424
+    -   **いいね数: 6,874**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3X2Ey_jLfmE/hqdefault.jpg)](https://www.youtube.com/watch?v=3X2Ey_jLfmE)
-1.  [【後藤達也vs清武英利】激白！ナベツネ読売支配の構造...清武の乱の真相とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/91-raZ4XXrs "wikilink")
-    -   公開日: 2025-10-29
-    -   視聴数: 33,881
-    -   **いいね数: 442**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/91-raZ4XXrs/hqdefault.jpg)](https://www.youtube.com/watch?v=91-raZ4XXrs)
-1.  [【生配信・日本維新の会】与党政策責任者会議・実務者協議会設置へ…議員定数削減「執念を持って取り組む」【ReHacQ記者会見 10月29日(水)】](/rehacq_fan/ids/-vaJOW2JarA "wikilink")
-    -   公開日: 2025-10-29
-    -   視聴数: 18,295
-    -   **いいね数: 309**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/-vaJOW2JarA/hqdefault.jpg)](https://www.youtube.com/watch?v=-vaJOW2JarA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,19 +76,19 @@
 ## 時系列データ
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 96, 視聴数: 19,141,665, いいね数: 294,124
+-   動画数: 97, 視聴数: 19,212,770, いいね数: 295,905
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,432,812, いいね数: 257,724
+-   動画数: 87, 視聴数: 14,433,124, いいね数: 257,727
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,735,803, いいね数: 250,145
+-   動画数: 64, 視聴数: 13,743,230, いいね数: 250,218
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,490,410, いいね数: 359,003
+-   動画数: 76, 視聴数: 20,491,749, いいね数: 359,027
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -112,11 +112,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,580,498, いいね数: 291,658
+-   動画数: 48, 視聴数: 17,591,106, いいね数: 291,689
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,366,286, いいね数: 308,786
+-   動画数: 60, 視聴数: 18,366,768, いいね数: 308,790
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -136,11 +136,11 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,719,518, いいね数: 290,653
+-   動画数: 44, 視聴数: 15,719,653, いいね数: 290,654
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,547,586, いいね数: 141,497
+-   動画数: 31, 視聴数: 10,547,756, いいね数: 141,498
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -203,4 +203,4 @@
 -   動画数: 14, 視聴数: 7,885,380, いいね数: 141,125
 
 ---
-2025-10-30 13:00
+2025-10-30 20:00
