@@ -1,6 +1,6 @@
-### [【元野村證券マンVS200兆円】日本株ブームは続くのか？リスクを回避し最後に勝つ投資術とは？【ReHacQ】](https://www.youtube.com/watch?v=LZVqjKwdlvY)
+### [【高市相場で注目株は？】日経平均5万2000円…リスク回避&買いの業界は？【元野村證券・きこvs宇根尚秀】ReHacQ](https://www.youtube.com/watch?v=LZVqjKwdlvY)
 [![](https://img.youtube.com/vi/LZVqjKwdlvY/sddefault.jpg)](https://www.youtube.com/watch?v=LZVqjKwdlvY)
 -   公開日: 2025-10-31
--   視聴数: 2,265
--   **いいね数: 64**
+-   視聴数: 11,645
+-   **いいね数: 157**
 -   出演者: 
