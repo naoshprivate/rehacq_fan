@@ -222,7 +222,7 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
-    -   視聴数: 1,293,858
+    -   視聴数: 1,293,926
     -   **いいね数: 23,396**
     -   出演者: 
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
@@ -400,16 +400,16 @@
     -   視聴数: 1,047,380
     -   **いいね数: 19,050**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
+    -   公開日: 2024-12-23
+    -   視聴数: 1,036,166
+    -   **いいね数: 24,628**
+    -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】投資ブームに警鐘…父から学んだ真の「ジャーナリズム」とは【小池百合子に...】](/rehacq_fan/ids/qWE1MsRmb7k "wikilink")
     -   公開日: 2024-07-25
     -   視聴数: 1,033,500
     -   **いいね数: 20,756**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森永卓郎
-1.  [【石丸伸二vs吉村洋文】石丸新党の構想判明！国民民主vs維新…解決策は？【ReHacQ・高橋弘樹】](/rehacq_fan/ids/DQkpV-2rV3I "wikilink")
-    -   公開日: 2024-12-23
-    -   視聴数: 1,032,989
-    -   **いいね数: 24,620**
-    -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
     -   視聴数: 1,012,282
@@ -477,8 +477,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](/rehacq_fan/ids/EmOGwtR3x6I "wikilink")
     -   公開日: 2024-12-07
-    -   視聴数: 920,914
-    -   **いいね数: 18,159**
+    -   視聴数: 920,929
+    -   **いいね数: 18,158**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
@@ -497,6 +497,6 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 奥村よしひろ, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), 森ようすけ, 牛田まゆ, [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [足立康史](/rehacq_fan/people/足立康史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](/rehacq_fan/ids/yFtpS4iZXlg "wikilink")
     -   公開日: 2024-12-08
-    -   視聴数: 911,699
-    -   **いいね数: 12,386**
+    -   視聴数: 911,748
+    -   **いいね数: 12,388**
     -   出演者: 
