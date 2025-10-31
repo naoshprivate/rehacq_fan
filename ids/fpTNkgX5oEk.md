@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/fpTNkgX5oEk/sddefault.jpg)](https://www.youtube.com/watch?v=fpTNkgX5oEk)
 -   公開日: 2025-10-31
 -   視聴数: 1
--   **いいね数: 6**
+-   **いいね数: 32**
 -   出演者: 
