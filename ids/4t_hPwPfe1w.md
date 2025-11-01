@@ -3,4 +3,4 @@
 -   公開日: 2023-04-21
 -   視聴数: 307,698
 -   **いいね数: 3,462**
--   出演者: 宇根尚秀, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [宇根尚秀](/rehacq_fan/people/宇根尚秀 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
