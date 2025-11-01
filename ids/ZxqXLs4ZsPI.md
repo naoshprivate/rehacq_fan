@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs歴史の真実】衝撃！17世紀に粉飾決算...300年前のイギリスのビジネスの実態とは？【ReHacQ】](https://www.youtube.com/watch?v=ZxqXLs4ZsPI)
 [![](https://img.youtube.com/vi/ZxqXLs4ZsPI/sddefault.jpg)](https://www.youtube.com/watch?v=ZxqXLs4ZsPI)
 -   公開日: 2025-11-01
--   視聴数: 2,995
--   **いいね数: 113**
+-   視聴数: 5,037
+-   **いいね数: 203**
 -   出演者: 
