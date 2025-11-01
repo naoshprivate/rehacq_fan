@@ -277,8 +277,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
-    -   視聴数: 610,814
-    -   **いいね数: 18,562**
+    -   視聴数: 610,932
+    -   **いいね数: 18,560**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【最先端！快眠の科学】Google賞金4.5億！天才睡眠学者が登場【常識覆す研究】](/rehacq_fan/ids/JpOL251JVcY "wikilink")
     -   公開日: 2023-11-01

@@ -347,7 +347,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
 1.  [【参院選2025】自公大敗…どうなる？まったり雑談【ReHacQ】](/rehacq_fan/ids/nqXDm5gzm7g "wikilink")
     -   公開日: 2025-07-20
-    -   視聴数: 1,099,423
+    -   視聴数: 1,099,571
     -   **いいね数: 8,147**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs長渕剛】人生やり直したい…過去の過ちとは？【人は過去とどう向き合うのか？】](/rehacq_fan/ids/arcYBqJcY8w "wikilink")
@@ -437,8 +437,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
-    -   視聴数: 981,549
-    -   **いいね数: 12,108**
+    -   視聴数: 985,455
+    -   **いいね数: 12,125**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
@@ -465,16 +465,16 @@
     -   視聴数: 932,376
     -   **いいね数: 6,853**
     -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
+    -   公開日: 2025-03-06
+    -   視聴数: 927,737
+    -   **いいね数: 11,041**
+    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【ひろゆきvs公明党】創価学会は納得？公明党の存在意義とは？徹底議論…【党宣伝局長が参戦！】](/rehacq_fan/ids/nd1_O8GADYw "wikilink")
     -   公開日: 2023-09-03
     -   視聴数: 927,135
     -   **いいね数: 10,685**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink")
-1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
-    -   公開日: 2025-03-06
-    -   視聴数: 924,229
-    -   **いいね数: 11,025**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](/rehacq_fan/ids/EmOGwtR3x6I "wikilink")
     -   公開日: 2024-12-07
     -   視聴数: 920,929
