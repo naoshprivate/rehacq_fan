@@ -1,6 +1,6 @@
 ### [【ひろゆきvs北関東のドン】地方の課題！教育への投資どうする？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=bpGS4r3eSOY)
 [![](https://img.youtube.com/vi/bpGS4r3eSOY/sddefault.jpg)](https://www.youtube.com/watch?v=bpGS4r3eSOY)
 -   公開日: 2025-10-26
--   視聴数: 59,134
--   **いいね数: 682**
+-   視聴数: 67,425
+-   **いいね数: 757**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 福田富一
