@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【石丸伸二vs陣笠議員】緊急生配信！陣笠議員で何が悪い？【ReHacQ高橋弘樹vs土田しんvs草間剛vs藤巻けんたvs西田亮介】](/rehacq_fan/ids/Xfbvysy3_cY "wikilink")
+    -   公開日: 2025-11-02
+    -   視聴数: 23,020
+    -   **いいね数: 1,500**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Xfbvysy3_cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Xfbvysy3_cY)
 1.  [【高橋弘樹vsシリアスゲーム】学習に革命！遊びながら学ぶ最新の教育とは？【ReHacQ】](/rehacq_fan/ids/dAzpjcbruEQ "wikilink")
     -   公開日: 2025-11-02
-    -   視聴数: 12,400
-    -   **いいね数: 224**
+    -   視聴数: 13,890
+    -   **いいね数: 241**
     -   出演者: 
     - [![](https://img.youtube.com/vi/dAzpjcbruEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=dAzpjcbruEQ)
 1.  [【後藤達也vs元内閣官房参与】高市早苗の本当の敵は…？藤井聡が激白！財務省との関係【ReHacQ高橋弘樹】](/rehacq_fan/ids/sTC4VWsV6m8 "wikilink")
     -   公開日: 2025-11-01
-    -   視聴数: 112,320
-    -   **いいね数: 1,644**
+    -   視聴数: 115,265
+    -   **いいね数: 1,677**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤井聡](/rehacq_fan/people/藤井聡 "wikilink")
     - [![](https://img.youtube.com/vi/sTC4VWsV6m8/hqdefault.jpg)](https://www.youtube.com/watch?v=sTC4VWsV6m8)
 1.  [【高橋弘樹vs歴史の真実】衝撃！17世紀に粉飾決算...300年前のイギリスのビジネスの実態とは？【ReHacQ】](/rehacq_fan/ids/ZxqXLs4ZsPI "wikilink")
     -   公開日: 2025-11-01
-    -   視聴数: 54,011
-    -   **いいね数: 954**
+    -   視聴数: 54,920
+    -   **いいね数: 979**
     -   出演者: 山本浩司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/ZxqXLs4ZsPI/hqdefault.jpg)](https://www.youtube.com/watch?v=ZxqXLs4ZsPI)
 1.  [【高橋弘樹vs箕輪厚介】埼玉で人生激変？絶景の雲海＆江戸から続くご利益旅【ReHacQ旅in秩父④】](/rehacq_fan/ids/38mpQvBSz5c "wikilink")
     -   公開日: 2025-11-01
-    -   視聴数: 22,125
-    -   **いいね数: 492**
+    -   視聴数: 22,484
+    -   **いいね数: 493**
     -   出演者: [清野和彦](/rehacq_fan/people/清野和彦 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/38mpQvBSz5c/hqdefault.jpg)](https://www.youtube.com/watch?v=38mpQvBSz5c)
-1.  [【高橋弘樹vs国民民主党の比例1位】賃上げが進まないのは労組のせい？国民民主と連合との関係徹底解明！【ReHacQvs田村まみ】](/rehacq_fan/ids/fpTNkgX5oEk "wikilink")
-    -   公開日: 2025-10-31
-    -   視聴数: 111,736
-    -   **いいね数: 2,104**
-    -   出演者: 田村まみ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/fpTNkgX5oEk/hqdefault.jpg)](https://www.youtube.com/watch?v=fpTNkgX5oEk)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,39 +76,39 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 4, 視聴数: 200,856, いいね数: 3,314
+-   動画数: 5, 視聴数: 229,579, いいね数: 4,890
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 20,092,358, いいね数: 309,764
+-   動画数: 102, 視聴数: 20,109,371, いいね数: 309,993
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,714,862, いいね数: 259,411
+-   動画数: 87, 視聴数: 14,715,312, いいね数: 259,419
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,767,487, いいね数: 250,377
+-   動画数: 64, 視聴数: 13,767,774, いいね数: 250,379
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,525,967, いいね数: 359,250
+-   動画数: 76, 視聴数: 20,525,982, いいね数: 359,250
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,298,300, いいね数: 301,163
+-   動画数: 78, 視聴数: 16,300,023, いいね数: 301,191
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 14,983,203, いいね数: 194,811
+-   動画数: 63, 視聴数: 14,983,395, いいね数: 194,813
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,704,705, いいね数: 343,946
+-   動画数: 58, 視聴数: 21,708,072, いいね数: 343,981
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,387,007, いいね数: 251,940
+-   動画数: 61, 視聴数: 14,393,826, いいね数: 252,008
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -200,11 +200,11 @@
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,507,234, いいね数: 103,204
+-   動画数: 28, 視聴数: 6,507,443, いいね数: 103,206
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,890,082, いいね数: 141,129
+-   動画数: 14, 視聴数: 7,890,084, いいね数: 141,129
 
 ---
-2025-11-02 21:00
+2025-11-02 22:00
