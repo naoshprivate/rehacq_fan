@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【東京新聞流ジャーナリズムとは？】元編集局長が激白！本当に新聞はオールドメディア・オワコンなのか？【ReHacQ】](/rehacq_fan/ids/FGWQGTrAC0E "wikilink")
+    -   公開日: 2025-11-03
+    -   視聴数: 2
+    -   **いいね数: 22**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/FGWQGTrAC0E/hqdefault.jpg)](https://www.youtube.com/watch?v=FGWQGTrAC0E)
+1.  [【高橋弘樹vs国民民主のスーパー外交マン】衝撃！元大使館勤務が掲げた大義「自分が政治に関わらねば...」なぜ？定数削減について比例復活議員が本音を暴露…【ReHacQvs深作ヘスス】](/rehacq_fan/ids/-b2aUw2hNxI "wikilink")
+    -   公開日: 2025-11-03
+    -   視聴数: 2
+    -   **いいね数: 41**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/-b2aUw2hNxI/hqdefault.jpg)](https://www.youtube.com/watch?v=-b2aUw2hNxI)
 1.  [【子育てに悩む人へ】知れば楽になる！子どもが本当に思っていることとは？【精神科医さわ＆ReHacQ】](/rehacq_fan/ids/4wFpbiF6cw "wikilink")
     -   公開日: 2025-11-03
-    -   視聴数: 5,010
-    -   **いいね数: 115**
+    -   視聴数: 10,783
+    -   **いいね数: 205**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_4wFpbiF6cw/hqdefault.jpg)](https://www.youtube.com/watch?v=_4wFpbiF6cw)
 1.  [【石丸伸二vs陣笠議員】緊急生配信！陣笠議員で何が悪い？【ReHacQ高橋弘樹vs土田しんvs草間剛vs藤巻けんたvs西田亮介】](/rehacq_fan/ids/Xfbvysy3_cY "wikilink")
     -   公開日: 2025-11-02
-    -   視聴数: 300,877
-    -   **いいね数: 5,150**
+    -   視聴数: 329,531
+    -   **いいね数: 5,397**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Xfbvysy3_cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Xfbvysy3_cY)
 1.  [【高橋弘樹vsシリアスゲーム】学習に革命！遊びながら学ぶ最新の教育とは？【ReHacQ】](/rehacq_fan/ids/dAzpjcbruEQ "wikilink")
     -   公開日: 2025-11-02
-    -   視聴数: 22,654
-    -   **いいね数: 335**
+    -   視聴数: 23,757
+    -   **いいね数: 349**
     -   出演者: 
     - [![](https://img.youtube.com/vi/dAzpjcbruEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=dAzpjcbruEQ)
-1.  [【後藤達也vs元内閣官房参与】高市早苗の本当の敵は…？藤井聡が激白！財務省との関係【ReHacQ高橋弘樹】](/rehacq_fan/ids/sTC4VWsV6m8 "wikilink")
-    -   公開日: 2025-11-01
-    -   視聴数: 144,312
-    -   **いいね数: 1,939**
-    -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [藤井聡](/rehacq_fan/people/藤井聡 "wikilink")
-    - [![](https://img.youtube.com/vi/sTC4VWsV6m8/hqdefault.jpg)](https://www.youtube.com/watch?v=sTC4VWsV6m8)
-1.  [【高橋弘樹vs歴史の真実】衝撃！17世紀に粉飾決算...300年前のイギリスのビジネスの実態とは？【ReHacQ】](/rehacq_fan/ids/ZxqXLs4ZsPI "wikilink")
-    -   公開日: 2025-11-01
-    -   視聴数: 65,442
-    -   **いいね数: 1,132**
-    -   出演者: 山本浩司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/ZxqXLs4ZsPI/hqdefault.jpg)](https://www.youtube.com/watch?v=ZxqXLs4ZsPI)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 6, 視聴数: 563,209, いいね数: 9,210
+-   動画数: 6, 視聴数: 607,566, いいね数: 9,652
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 20,435,895, いいね数: 314,025
+-   動画数: 102, 視聴数: 20,438,098, いいね数: 314,061
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,726,222, いいね数: 259,526
+-   動画数: 87, 視聴数: 14,726,257, いいね数: 259,525
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -116,11 +116,11 @@
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,616,650, いいね数: 291,817
+-   動画数: 48, 視聴数: 17,618,114, いいね数: 291,824
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,381,320, いいね数: 308,860
+-   動画数: 60, 視聴数: 18,383,164, いいね数: 308,864
 
 #### [2024年11月](videos/202411 "wikilink")
 
@@ -140,19 +140,19 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,733,278, いいね数: 290,695
+-   動画数: 44, 視聴数: 15,733,324, いいね数: 290,696
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,552,896, いいね数: 141,528
+-   動画数: 31, 視聴数: 10,553,075, いいね数: 141,528
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,526,537, いいね数: 80,482
+-   動画数: 29, 視聴数: 6,579,478, いいね数: 81,536
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,414,488, いいね数: 98,726
+-   動画数: 34, 視聴数: 9,415,479, いいね数: 98,733
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,891,942, いいね数: 141,129
 
 ---
-2025-11-03 16:34
+2025-11-03 20:00

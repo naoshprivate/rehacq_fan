@@ -1,6 +1,6 @@
 ### [【石丸伸二vs陣笠議員】緊急生配信！陣笠議員で何が悪い？【ReHacQ高橋弘樹vs土田しんvs草間剛vs藤巻けんたvs西田亮介】](https://www.youtube.com/watch?v=Xfbvysy3_cY)
 [![](https://img.youtube.com/vi/Xfbvysy3_cY/sddefault.jpg)](https://www.youtube.com/watch?v=Xfbvysy3_cY)
 -   公開日: 2025-11-02
--   視聴数: 300,877
--   **いいね数: 5,150**
+-   視聴数: 329,531
+-   **いいね数: 5,397**
 -   出演者: 
