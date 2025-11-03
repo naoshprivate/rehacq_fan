@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【高橋弘樹vs国民民主のスーパー外交マン】衝撃！元大使館勤務が掲げた大義「自分が政治に関わらねば...」なぜ？定数削減について比例復活議員が本音を暴露…【ReHacQvs深作ヘスス】](/rehacq_fan/ids/-b2aUw2hNxI "wikilink")
     -   公開日: 2025-11-03
-    -   視聴数: 14,879
-    -   **いいね数: 980**
+    -   視聴数: 23,184
+    -   **いいね数: 1,263**
     -   出演者: 深作ヘスス, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/-b2aUw2hNxI/hqdefault.jpg)](https://www.youtube.com/watch?v=-b2aUw2hNxI)
 1.  [【東京新聞流ジャーナリズムとは？】元編集局長が激白！本当に新聞はオールドメディア・オワコンなのか？【ReHacQ】](/rehacq_fan/ids/FGWQGTrAC0E "wikilink")
     -   公開日: 2025-11-03
-    -   視聴数: 12,741
-    -   **いいね数: 208**
+    -   視聴数: 16,362
+    -   **いいね数: 245**
     -   出演者: 菅沼堅吾, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/FGWQGTrAC0E/hqdefault.jpg)](https://www.youtube.com/watch?v=FGWQGTrAC0E)
 1.  [【子育てに悩む人へ】知れば楽になる！子どもが本当に思っていることとは？【精神科医さわ＆ReHacQ】](/rehacq_fan/ids/4wFpbiF6cw "wikilink")
     -   公開日: 2025-11-03
-    -   視聴数: 14,209
-    -   **いいね数: 236**
+    -   視聴数: 15,177
+    -   **いいね数: 242**
     -   出演者: [さわ](/rehacq_fan/people/さわ "wikilink"), 藤中亜紀子
     - [![](https://img.youtube.com/vi/_4wFpbiF6cw/hqdefault.jpg)](https://www.youtube.com/watch?v=_4wFpbiF6cw)
 1.  [【石丸伸二vs陣笠議員】緊急生配信！陣笠議員で何が悪い？【ReHacQ高橋弘樹vs土田しんvs草間剛vs藤巻けんたvs西田亮介】](/rehacq_fan/ids/Xfbvysy3_cY "wikilink")
     -   公開日: 2025-11-02
-    -   視聴数: 351,275
-    -   **いいね数: 5,565**
+    -   視聴数: 358,098
+    -   **いいね数: 5,616**
     -   出演者: [土田しん](/rehacq_fan/people/土田しん "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 草間剛, 藤巻けんた, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Xfbvysy3_cY/hqdefault.jpg)](https://www.youtube.com/watch?v=Xfbvysy3_cY)
 1.  [【高橋弘樹vsシリアスゲーム】学習に革命！遊びながら学ぶ最新の教育とは？【ReHacQ】](/rehacq_fan/ids/dAzpjcbruEQ "wikilink")
     -   公開日: 2025-11-02
-    -   視聴数: 24,571
-    -   **いいね数: 356**
+    -   視聴数: 24,836
+    -   **いいね数: 358**
     -   出演者: 藤本徹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/dAzpjcbruEQ/hqdefault.jpg)](https://www.youtube.com/watch?v=dAzpjcbruEQ)
 
@@ -76,23 +76,23 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 8, 視聴数: 667,097, いいね数: 11,086
+-   動画数: 8, 視聴数: 688,605, いいね数: 11,476
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 20,443,394, いいね数: 314,160
+-   動画数: 102, 視聴数: 20,444,996, いいね数: 314,185
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 14,749,453, いいね数: 259,728
+-   動画数: 87, 視聴数: 14,754,228, いいね数: 259,772
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,791,006, いいね数: 250,576
+-   動画数: 64, 視聴数: 13,791,420, いいね数: 250,580
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,541,963, いいね数: 359,420
+-   動画数: 76, 視聴数: 20,542,136, いいね数: 359,419
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -136,11 +136,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,762,286, いいね数: 323,536
+-   動画数: 43, 視聴数: 19,773,779, いいね数: 323,797
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,733,324, いいね数: 290,696
+-   動画数: 44, 視聴数: 15,736,779, いいね数: 290,693
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,891,942, いいね数: 141,129
 
 ---
-2025-11-03 23:00
+2025-11-04 00:00
