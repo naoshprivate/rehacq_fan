@@ -197,8 +197,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸市長vs副議長】安芸高田！奥広島のまったり旅…西田亮介【清志会vs毛利元就】](/rehacq_fan/ids/qMR_6XOPwvY "wikilink")
     -   公開日: 2024-01-21
-    -   視聴数: 1,479,993
-    -   **いいね数: 21,353**
+    -   視聴数: 1,480,236
+    -   **いいね数: 21,354**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
@@ -387,7 +387,7 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
-    -   視聴数: 805,248
+    -   視聴数: 805,395
     -   **いいね数: 16,088**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
@@ -457,8 +457,8 @@
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【神谷宗幣vs高橋弘樹】参政党にNG無し質問！【西田亮介vs参政党】](/rehacq_fan/ids/sXNTlkaZOYo "wikilink")
     -   公開日: 2025-07-15
-    -   視聴数: 735,982
-    -   **いいね数: 15,331**
+    -   視聴数: 736,123
+    -   **いいね数: 15,329**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
