@@ -1,6 +1,6 @@
 ### [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](https://www.youtube.com/watch?v=QPmOX-9hDpY)
 [![](https://img.youtube.com/vi/QPmOX-9hDpY/sddefault.jpg)](https://www.youtube.com/watch?v=QPmOX-9hDpY)
 -   公開日: 2025-02-27
--   視聴数: 985,455
--   **いいね数: 12,125**
+-   視聴数: 988,496
+-   **いいね数: 12,136**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
