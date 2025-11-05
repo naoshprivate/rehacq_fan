@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs安野たかひろ】緊急生配信！チームみらいのツール開発で政治の透明化は進むのか？【ReHacQvs西田尚史】](https://www.youtube.com/watch?v=eSduID5hUK0)
 [![](https://img.youtube.com/vi/eSduID5hUK0/sddefault.jpg)](https://www.youtube.com/watch?v=eSduID5hUK0)
 -   公開日: 2025-11-04
--   視聴数: 106,490
--   **いいね数: 2,735**
+-   視聴数: 110,089
+-   **いいね数: 2,783**
 -   出演者: 
