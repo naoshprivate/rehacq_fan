@@ -1,32 +1,32 @@
 # 最近の動画
-1.  [【高橋弘樹vs辞め共同通信】異端のエース記者が衝撃退社...なぜ？出世コース捨て、“地方”の取材に全振り！衝撃記者人生とは？【ReHacQ】](/rehacq_fan/ids/QqekINGTL6c "wikilink")
-    -   公開日: 2025-11-05
-    -   視聴数: 4
-    -   **いいね数: 0**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/QqekINGTL6c/hqdefault.jpg)](https://www.youtube.com/watch?v=QqekINGTL6c)
 1.  [【最強WEBマーケティング】競合と戦わないネット空間での勝ち方とは？【木下勝寿＆成田修造＆ReHacQ】](/rehacq_fan/ids/6VLANvs9c3E "wikilink")
     -   公開日: 2025-11-05
-    -   視聴数: 2
-    -   **いいね数: 19**
+    -   視聴数: 1,337
+    -   **いいね数: 60**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6VLANvs9c3E/hqdefault.jpg)](https://www.youtube.com/watch?v=6VLANvs9c3E)
+1.  [【高橋弘樹vs辞め共同通信】異端のエース記者が衝撃退社...なぜ？出世コース捨て、“地方”の取材に全振り！衝撃記者人生とは【ReHacQ】](/rehacq_fan/ids/QqekINGTL6c "wikilink")
+    -   公開日: 2025-11-05
+    -   視聴数: 4
+    -   **いいね数: 8**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/QqekINGTL6c/hqdefault.jpg)](https://www.youtube.com/watch?v=QqekINGTL6c)
 1.  [【高橋弘樹vs安野たかひろ】緊急生配信！チームみらいのツール開発で政治の透明化は進むのか？【ReHacQvs西田尚史】](/rehacq_fan/ids/eSduID5hUK0 "wikilink")
     -   公開日: 2025-11-04
-    -   視聴数: 104,741
-    -   **いいね数: 2,746**
+    -   視聴数: 106,490
+    -   **いいね数: 2,735**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eSduID5hUK0/hqdefault.jpg)](https://www.youtube.com/watch?v=eSduID5hUK0)
 1.  [【高橋弘樹vs慶應名誉教授・冨田勝】AIは人間を超えない...なぜ？ChatGPTがAIだと言えないワケ...AIと人間の未来とは【ReHacQ】](/rehacq_fan/ids/Gn824JzFrBM "wikilink")
     -   公開日: 2025-11-04
-    -   視聴数: 30,310
-    -   **いいね数: 480**
+    -   視聴数: 30,750
+    -   **いいね数: 483**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Gn824JzFrBM/hqdefault.jpg)](https://www.youtube.com/watch?v=Gn824JzFrBM)
 1.  [【生配信・日本維新の会】“しんぶん赤旗砲”公金還流疑惑は「法的に確実に適正」・取材記者に注意喚起…なぜ？【ReHacQ記者会見 11月4日(火)】](/rehacq_fan/ids/7Vn49QU7M6Y "wikilink")
     -   公開日: 2025-11-04
-    -   視聴数: 65,822
-    -   **いいね数: 1,418**
+    -   視聴数: 66,115
+    -   **いいね数: 1,417**
     -   出演者: 
     - [![](https://img.youtube.com/vi/7Vn49QU7M6Y/hqdefault.jpg)](https://www.youtube.com/watch?v=7Vn49QU7M6Y)
 
@@ -52,8 +52,8 @@
     - [![](https://img.youtube.com/vi/FLpXxsuYKls/hqdefault.jpg)](https://www.youtube.com/watch?v=FLpXxsuYKls)
 1.  [【高橋弘樹vsスーツ】人生ってなんだろう？まったり雑談【ReHacQ生配信】](/rehacq_fan/ids/C4Mo2hRnUac "wikilink")
     -   公開日: 2025-10-21
-    -   視聴数: 658,785
-    -   **いいね数: 9,466**
+    -   視聴数: 685,343
+    -   **いいね数: 9,789**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/C4Mo2hRnUac/hqdefault.jpg)](https://www.youtube.com/watch?v=C4Mo2hRnUac)
 1.  [【なぜ高市早苗と連立？】維新・吉村代表に聞く！自民党は約束を守るのか？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Rx4U0L9SK9w "wikilink")
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 12, 視聴数: 1,177,946, いいね数: 19,292
+-   動画数: 13, 視聴数: 1,183,472, いいね数: 19,369
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 20,570,413, いいね数: 315,399
+-   動画数: 102, 視聴数: 20,607,720, いいね数: 315,845
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,553,537, いいね数: 359,476
+-   動画数: 76, 視聴数: 20,556,083, いいね数: 359,493
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -140,39 +140,39 @@
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,742,615, いいね数: 290,714
+-   動画数: 44, 視聴数: 15,742,628, いいね数: 290,713
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,555,243, いいね数: 141,544
+-   動画数: 31, 視聴数: 10,556,433, いいね数: 141,547
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,580,137, いいね数: 81,538
+-   動画数: 29, 視聴数: 6,580,535, いいね数: 81,541
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,418,187, いいね数: 98,752
+-   動画数: 34, 視聴数: 9,418,245, いいね数: 98,753
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,148,646, いいね数: 110,145
+-   動画数: 44, 視聴数: 9,148,963, いいね数: 110,150
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,251,720, いいね数: 188,034
+-   動画数: 34, 視聴数: 15,251,760, いいね数: 188,034
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,324,637, いいね数: 118,433
+-   動画数: 30, 視聴数: 9,324,796, いいね数: 118,433
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,355,176, いいね数: 120,518
+-   動画数: 30, 視聴数: 9,355,354, いいね数: 120,520
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,175,383, いいね数: 142,094
+-   動画数: 25, 視聴数: 13,179,242, いいね数: 142,105
 
 #### [2023年10月](videos/202310 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,896,226, いいね数: 141,141
 
 ---
-2025-11-05 20:00
+2025-11-05 21:00
