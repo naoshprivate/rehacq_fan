@@ -85,6 +85,11 @@
     -   視聴数: 2,053,429
     -   **いいね数: 23,190**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
+1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
+    -   公開日: 2025-09-26
+    -   視聴数: 1,857,725
+    -   **いいね数: 29,306**
+    -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
     -   視聴数: 1,829,006
@@ -100,11 +105,6 @@
     -   視聴数: 1,786,423
     -   **いいね数: 25,528**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
-    -   公開日: 2025-09-26
-    -   視聴数: 1,784,443
-    -   **いいね数: 29,036**
-    -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
     -   視聴数: 1,782,389
@@ -152,8 +152,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
-    -   視聴数: 1,464,323
-    -   **いいね数: 20,512**
+    -   視聴数: 1,464,372
+    -   **いいね数: 20,511**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
@@ -432,7 +432,7 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](/rehacq_fan/ids/18Lb1U5pt0k "wikilink")
     -   公開日: 2025-05-18
-    -   視聴数: 993,272
+    -   視聴数: 993,611
     -   **いいね数: 9,579**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
