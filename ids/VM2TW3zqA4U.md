@@ -1,0 +1,6 @@
+### [【 須賀川vsガザ最新情勢】国連機関幹部に直撃！最新映像から見る崩壊した街…飢饉の実態は？【ReHacQvsUNRWA清田明宏】](https://www.youtube.com/watch?v=VM2TW3zqA4U)
+[![](https://img.youtube.com/vi/VM2TW3zqA4U/sddefault.jpg)](https://www.youtube.com/watch?v=VM2TW3zqA4U)
+-   公開日: 2025-11-06
+-   視聴数: 6,414
+-   **いいね数: 278**
+-   出演者: 
