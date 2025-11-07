@@ -3,4 +3,4 @@
 -   公開日: 2023-12-13
 -   視聴数: 54,389
 -   **いいね数: 746**
--   出演者: 木下勝寿, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [木下勝寿](/rehacq_fan/people/木下勝寿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
