@@ -3,4 +3,4 @@
 -   公開日: 2023-06-15
 -   視聴数: 825,615
 -   **いいね数: 7,490**
--   出演者: 堀江貴文, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
+-   出演者: [堀江貴文](/rehacq_fan/people/堀江貴文 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
