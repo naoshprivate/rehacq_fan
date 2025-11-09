@@ -1,6 +1,6 @@
 ### [【ひろゆき緊急配信】トランプ関税でアメリカ終焉...？お金どう守る？【西田亮介vs高橋弘樹】](https://www.youtube.com/watch?v=TUGkH8QEzqw)
 [![](https://img.youtube.com/vi/TUGkH8QEzqw/sddefault.jpg)](https://www.youtube.com/watch?v=TUGkH8QEzqw)
 -   公開日: 2025-04-08
--   視聴数: 537,290
--   **いいね数: 5,187**
+-   視聴数: 537,322
+-   **いいね数: 5,186**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
