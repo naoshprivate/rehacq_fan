@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【高橋弘樹vsウソの歴史】徳川家康うんこ漏らし事件...正しい歴史の見方とは？【山本浩司vsReHacQ】](/rehacq_fan/ids/CKWYm81vFTY "wikilink")
     -   公開日: 2025-11-09
-    -   視聴数: 47,706
-    -   **いいね数: 666**
+    -   視聴数: 61,865
+    -   **いいね数: 845**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CKWYm81vFTY/hqdefault.jpg)](https://www.youtube.com/watch?v=CKWYm81vFTY)
 1.  [【西村ゆかvs太田光代】ひろゆき＆爆笑問題太田光の妻が語るクセつよ夫の本当の顔とは！？【ReHacQ新番組「クセつよ夫の妻たち」】](/rehacq_fan/ids/qaBmI5DXbLk "wikilink")
     -   公開日: 2025-11-09
-    -   視聴数: 75,021
-    -   **いいね数: 1,249**
+    -   視聴数: 91,363
+    -   **いいね数: 1,495**
     -   出演者: 
     - [![](https://img.youtube.com/vi/qaBmI5DXbLk/hqdefault.jpg)](https://www.youtube.com/watch?v=qaBmI5DXbLk)
 1.  [【後藤達也vs堀江貴文】「日本人ファーストだ！」ホリエモンはなぜ炎上するのか【ReHacQ高橋弘樹】](/rehacq_fan/ids/mQQ99VmmFL0 "wikilink")
     -   公開日: 2025-11-08
-    -   視聴数: 318,042
-    -   **いいね数: 4,115**
+    -   視聴数: 341,678
+    -   **いいね数: 4,325**
     -   出演者: [堀江貴文](/rehacq_fan/people/堀江貴文 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/mQQ99VmmFL0/hqdefault.jpg)](https://www.youtube.com/watch?v=mQQ99VmmFL0)
 1.  [【西田亮介vs東京新聞のドン】高市政権をどう監視する？ネット社会でも新聞に勝機アリ？【ReHacQ】](/rehacq_fan/ids/5DfHt2Wz02k "wikilink")
     -   公開日: 2025-11-08
-    -   視聴数: 40,737
-    -   **いいね数: 383**
+    -   視聴数: 43,347
+    -   **いいね数: 394**
     -   出演者: 菅沼堅吾, [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
     - [![](https://img.youtube.com/vi/5DfHt2Wz02k/hqdefault.jpg)](https://www.youtube.com/watch?v=5DfHt2Wz02k)
 1.  [【身体の警告サイン】プロが教える！深層の癒着を“剥がす”メンテ術とは！？【田中渓＆榊原睦也＆ReHacQ前田夢有】](/rehacq_fan/ids/pTEJ0WP9VlQ "wikilink")
     -   公開日: 2025-11-08
-    -   視聴数: 55,697
-    -   **いいね数: 818**
+    -   視聴数: 58,035
+    -   **いいね数: 847**
     -   出演者: コウタ先生, 前田夢有, 榊原睦也, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/pTEJ0WP9VlQ/hqdefault.jpg)](https://www.youtube.com/watch?v=pTEJ0WP9VlQ)
 
@@ -40,8 +40,8 @@
     - [![](https://img.youtube.com/vi/Txv2Y31DRpA/hqdefault.jpg)](https://www.youtube.com/watch?v=Txv2Y31DRpA)
 1.  [【高橋弘樹vs藤田文武】緊急出演！日本維新の会・共同代表…連立誕生の舞台裏！高市早苗総理でどう日本変わる？【ReHacQ】](/rehacq_fan/ids/TYMAm0xqIv8 "wikilink")
     -   公開日: 2025-10-22
-    -   視聴数: 574,567
-    -   **いいね数: 10,180**
+    -   視聴数: 582,017
+    -   **いいね数: 10,196**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/TYMAm0xqIv8/hqdefault.jpg)](https://www.youtube.com/watch?v=TYMAm0xqIv8)
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
@@ -76,11 +76,11 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 25, 視聴数: 2,693,597, いいね数: 42,239
+-   動画数: 25, 視聴数: 2,781,416, いいね数: 43,238
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,129,584, いいね数: 320,705
+-   動画数: 102, 視聴数: 21,150,404, いいね数: 320,838
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -88,15 +88,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,837,140, いいね数: 250,865
+-   動画数: 64, 視聴数: 13,837,172, いいね数: 250,865
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,613,450, いいね数: 359,890
+-   動画数: 76, 視聴数: 20,615,222, いいね数: 359,885
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,348,515, いいね数: 301,661
+-   動画数: 78, 視聴数: 16,351,031, いいね数: 301,691
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -144,15 +144,15 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,561,683, いいね数: 141,560
+-   動画数: 31, 視聴数: 10,561,787, いいね数: 141,561
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,607,078, いいね数: 81,956
+-   動画数: 29, 視聴数: 6,609,804, いいね数: 81,962
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,423,479, いいね数: 98,783
+-   動画数: 34, 視聴数: 9,424,342, いいね数: 98,790
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,903,181, いいね数: 141,156
 
 ---
-2025-11-10 13:00
+2025-11-10 20:00
