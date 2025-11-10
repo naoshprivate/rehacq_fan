@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】福島市長選ネット討論会 【高橋弘樹】](https://www.youtube.com/watch?v=zkabHqLIuvU)
 [![](https://img.youtube.com/vi/zkabHqLIuvU/sddefault.jpg)](https://www.youtube.com/watch?v=zkabHqLIuvU)
 -   公開日: 2025-11-07
--   視聴数: 46,792
--   **いいね数: 641**
+-   視聴数: 47,275
+-   **いいね数: 646**
 -   出演者: 木幡浩, 馬場雄基, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 髙橋翔
