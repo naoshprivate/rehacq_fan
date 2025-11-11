@@ -157,8 +157,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【石丸伸二vs会見入れなかったジャーナリスト】前代未聞の激論…なぜ？取材会見時のジャーナリスト制限に関して【ひろゆきvs横田一vs西田亮介vs箕輪厚介vs高橋弘樹ReHacQ】](/rehacq_fan/ids/23N6ICQ55-c "wikilink")
     -   公開日: 2025-01-16
-    -   視聴数: 1,450,543
-    -   **いいね数: 25,047**
+    -   視聴数: 1,452,482
+    -   **いいね数: 25,044**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
@@ -367,7 +367,7 @@
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), 東谷義和
 1.  [【石破総理が緊急出演】楽しい日本とは？103万の壁は？SNS規制は？夫婦別姓は？総理が本音激白【ReHacQ高橋弘樹】](/rehacq_fan/ids/k2jbKFIP--s "wikilink")
     -   公開日: 2025-01-26
-    -   視聴数: 1,089,004
+    -   視聴数: 1,092,623
     -   **いいね数: 17,998**
     -   出演者: [石破茂](/rehacq_fan/people/石破茂 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】第一部…大激論！議席0「再生の道」の真意は？第二部…「あつまれ！落選の森」候補者vs石丸代表！衝撃の真実【ReHacQ西田亮介】](/rehacq_fan/ids/tg3vnK5st1E "wikilink")
@@ -447,8 +447,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
-    -   視聴数: 958,609
-    -   **いいね数: 15,839**
+    -   視聴数: 966,036
+    -   **いいね数: 15,888**
     -   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【支持率下げてやる！】会見前の音声配信が大炎上！マスメディアの政治報道のあり方とは？【石田健vs西田亮介vs石丸伸二vs須賀川拓vsReHacQ】](/rehacq_fan/ids/0BV-ZkN2Q8o "wikilink")
     -   公開日: 2025-10-08
@@ -487,8 +487,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
-    -   視聴数: 921,142
-    -   **いいね数: 15,224**
+    -   視聴数: 921,420
+    -   **いいね数: 15,227**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【兵庫県知事を刑事告発…なぜ？】告発者・郷原信郎vs否定的・福永活也…弁護士同士の激論【公職選挙法とは…ReHacQ】](/rehacq_fan/ids/EmOGwtR3x6I "wikilink")
     -   公開日: 2024-12-07
