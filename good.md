@@ -92,8 +92,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
-    -   視聴数: 772,796
-    -   **いいね数: 28,043**
+    -   視聴数: 773,019
+    -   **いいね数: 28,041**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](/rehacq_fan/ids/qemKsOkKAYM "wikilink")
     -   公開日: 2023-08-01

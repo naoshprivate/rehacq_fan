@@ -1,6 +1,6 @@
 ### [【SEOは必要ない】Googleを“味方”にする「売れる本質」とは？【木下勝寿＆成田修造＆ReHacQ】](https://www.youtube.com/watch?v=YOm51_oPEZc)
 [![](https://img.youtube.com/vi/YOm51_oPEZc/sddefault.jpg)](https://www.youtube.com/watch?v=YOm51_oPEZc)
 -   公開日: 2025-11-11
--   視聴数: 1,333
--   **いいね数: 51**
+-   視聴数: 1,865
+-   **いいね数: 71**
 -   出演者: 
