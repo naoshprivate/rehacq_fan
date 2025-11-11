@@ -1,6 +1,6 @@
-### [【生配信】国民民主党・玉木代表定例会見 11月11日（火）【ReHacQ】](https://www.youtube.com/watch?v=t7c3kHlirdc)
+### [【生配信・国民民主党】経済対策取りまとめ申し入れへ 議員定数削減は選挙制度改革が先決…与党との連携は？【ReHacQ記者会見 11月11日(火)】](https://www.youtube.com/watch?v=t7c3kHlirdc)
 [![](https://img.youtube.com/vi/t7c3kHlirdc/sddefault.jpg)](https://www.youtube.com/watch?v=t7c3kHlirdc)
 -   公開日: 2025-11-11
--   視聴数: 6,319
--   **いいね数: 100**
+-   視聴数: 12,051
+-   **いいね数: 143**
 -   出演者: 

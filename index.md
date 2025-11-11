@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【生配信】国民民主党・玉木代表定例会見 11月11日（火）【ReHacQ】](/rehacq_fan/ids/t7c3kHlirdc "wikilink")
+1.  [【SEOは必要ない】Googleを“味方”にする「売れる本質」とは？【木下勝寿＆成田修造＆ReHacQ】](/rehacq_fan/ids/YOm51_oPEZc "wikilink")
     -   公開日: 2025-11-11
-    -   視聴数: 6,319
-    -   **いいね数: 100**
+    -   視聴数: 1
+    -   **いいね数: 20**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/YOm51_oPEZc/hqdefault.jpg)](https://www.youtube.com/watch?v=YOm51_oPEZc)
+1.  [【生配信・国民民主党】経済対策取りまとめ申し入れへ 議員定数削減は選挙制度改革が先決…与党との連携は？【ReHacQ記者会見 11月11日(火)】](/rehacq_fan/ids/t7c3kHlirdc "wikilink")
+    -   公開日: 2025-11-11
+    -   視聴数: 12,051
+    -   **いいね数: 143**
     -   出演者: 
     - [![](https://img.youtube.com/vi/t7c3kHlirdc/hqdefault.jpg)](https://www.youtube.com/watch?v=t7c3kHlirdc)
 1.  [【高橋弘樹vs国民民主の外交エース】なぜ国民民主党に…？夫婦で議員×子育てのリアルを激白！【ReHacQvs深作ヘスス】](/rehacq_fan/ids/hsyju3UIq8c "wikilink")
     -   公開日: 2025-11-10
-    -   視聴数: 59,590
-    -   **いいね数: 1,724**
+    -   視聴数: 69,967
+    -   **いいね数: 1,973**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hsyju3UIq8c/hqdefault.jpg)](https://www.youtube.com/watch?v=hsyju3UIq8c)
-1.  [【高橋弘樹vs辞め共同通信】衝撃のラスト！上長が社内抗争で失脚...エース記者が語る退職直前の悲劇とは【ReHacQ】](/rehacq_fan/ids/MsLKBszjZDE "wikilink")
+1.  [【高橋弘樹vs辞め共同通信】衝撃のラスト...！社内抗争の果てに上長失脚...エース記者が語る退職直前の悲劇【ReHacQ】](/rehacq_fan/ids/MsLKBszjZDE "wikilink")
     -   公開日: 2025-11-10
-    -   視聴数: 38,123
-    -   **いいね数: 764**
+    -   視聴数: 48,166
+    -   **いいね数: 935**
     -   出演者: 
     - [![](https://img.youtube.com/vi/MsLKBszjZDE/hqdefault.jpg)](https://www.youtube.com/watch?v=MsLKBszjZDE)
 1.  [【高橋弘樹vsウソの歴史】徳川家康うんこ漏らし事件...正しい歴史の見方とは？【山本浩司vsReHacQ】](/rehacq_fan/ids/CKWYm81vFTY "wikilink")
     -   公開日: 2025-11-09
-    -   視聴数: 76,940
-    -   **いいね数: 1,010**
+    -   視聴数: 81,662
+    -   **いいね数: 1,081**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CKWYm81vFTY/hqdefault.jpg)](https://www.youtube.com/watch?v=CKWYm81vFTY)
-1.  [【西村ゆかvs太田光代】ひろゆき＆爆笑問題太田光の妻が語るクセつよ夫の本当の顔とは！？【ReHacQ新番組「クセつよ夫の妻たち」】](/rehacq_fan/ids/qaBmI5DXbLk "wikilink")
-    -   公開日: 2025-11-09
-    -   視聴数: 113,758
-    -   **いいね数: 1,697**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/qaBmI5DXbLk/hqdefault.jpg)](https://www.youtube.com/watch?v=qaBmI5DXbLk)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,15 +76,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 28, 視聴数: 2,972,884, いいね数: 46,581
+-   動画数: 28, 視聴数: 3,044,725, いいね数: 47,537
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,323,311, いいね数: 322,574
+-   動画数: 102, 視聴数: 21,324,195, いいね数: 322,578
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,077,850, いいね数: 261,899
+-   動画数: 87, 視聴数: 15,082,209, いいね数: 261,969
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -92,7 +92,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,620,999, いいね数: 359,963
+-   動画数: 76, 視聴数: 20,621,659, いいね数: 359,968
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -104,15 +104,15 @@
 
 #### [2025年04月](videos/202504 "wikilink")
 
--   動画数: 58, 視聴数: 21,789,810, いいね数: 344,381
+-   動画数: 58, 視聴数: 21,793,043, いいね数: 344,396
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,495,802, いいね数: 252,838
+-   動画数: 61, 視聴数: 14,501,780, いいね数: 252,876
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,258,773, いいね数: 298,150
+-   動画数: 47, 視聴数: 16,262,151, いいね数: 298,174
 
 #### [2025年01月](videos/202501 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,904,530, いいね数: 141,155
 
 ---
-2025-11-11 13:00
+2025-11-11 20:00
