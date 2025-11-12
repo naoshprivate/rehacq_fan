@@ -3,4 +3,4 @@
 -   公開日: 2025-10-04
 -   視聴数: 188,144
 -   **いいね数: 2,757**
--   出演者: 辻田真佐憲, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

@@ -3,4 +3,4 @@
 -   公開日: 2025-10-12
 -   視聴数: 188,539
 -   **いいね数: 2,710**
--   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 太田光代
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [太田光代](/rehacq_fan/people/太田光代 "wikilink")
