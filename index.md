@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【猪瀬直樹vs辻田真佐憲】激論！歴史認識とは？戦争の責任とは？「あの戦争」から問う日本人の「背骨」【ReHacQ戦場ジャーナリスト須賀川拓】](/rehacq_fan/ids/shSKvPW1Ks4 "wikilink")
+    -   公開日: 2025-11-12
+    -   視聴数: 3
+    -   **いいね数: 15**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/shSKvPW1Ks4/hqdefault.jpg)](https://www.youtube.com/watch?v=shSKvPW1Ks4)
 1.  [【マイクロソフトで最年少部長vs須賀川拓】日本マイクロソフトを衝撃退社...なぜ？27歳で最年少部長に！愛する会社辞めAIで起業するワケとは【ReHacQ】](/rehacq_fan/ids/LipHyNR8_Q8 "wikilink")
     -   公開日: 2025-11-12
-    -   視聴数: 1
-    -   **いいね数: 9**
+    -   視聴数: 1,756
+    -   **いいね数: 40**
     -   出演者: 
     - [![](https://img.youtube.com/vi/LipHyNR8_Q8/hqdefault.jpg)](https://www.youtube.com/watch?v=LipHyNR8_Q8)
 1.  [【生配信・日本維新の会】議員定数削減に向け実務者協議会稼働！しんぶん赤旗記者の名刺 画像削除は「するつもりない」…なぜ？【ReHacQ記者会見 11月12日(水)】](/rehacq_fan/ids/Wl_MQcDUVrU "wikilink")
     -   公開日: 2025-11-12
-    -   視聴数: 29,191
-    -   **いいね数: 529**
+    -   視聴数: 31,274
+    -   **いいね数: 558**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Wl_MQcDUVrU/hqdefault.jpg)](https://www.youtube.com/watch?v=Wl_MQcDUVrU)
 1.  [【高橋弘樹vsしんぶん赤旗日曜版編集長】緊急生配信！スクープ連発…しんぶん赤旗とは？【ReHacQvs山本豊彦】](/rehacq_fan/ids/JNsfk2qp0BY "wikilink")
     -   公開日: 2025-11-11
-    -   視聴数: 206,047
-    -   **いいね数: 2,829**
+    -   視聴数: 208,597
+    -   **いいね数: 2,857**
     -   出演者: 
     - [![](https://img.youtube.com/vi/JNsfk2qp0BY/hqdefault.jpg)](https://www.youtube.com/watch?v=JNsfk2qp0BY)
 1.  [【SEOは必要ない】Googleを“味方”にする「売れる本質」とは？【木下勝寿＆成田修造＆ReHacQ】](/rehacq_fan/ids/YOm51_oPEZc "wikilink")
     -   公開日: 2025-11-11
-    -   視聴数: 13,665
-    -   **いいね数: 163**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/YOm51_oPEZc/hqdefault.jpg)](https://www.youtube.com/watch?v=YOm51_oPEZc)
-1.  [【生配信・国民民主党】経済対策取りまとめ申し入れへ 議員定数削減は選挙制度改革が先決…与党との連携は？【ReHacQ記者会見 11月11日(火)】](/rehacq_fan/ids/t7c3kHlirdc "wikilink")
-    -   公開日: 2025-11-11
-    -   視聴数: 16,152
+    -   視聴数: 13,979
     -   **いいね数: 167**
     -   出演者: 
-    - [![](https://img.youtube.com/vi/t7c3kHlirdc/hqdefault.jpg)](https://www.youtube.com/watch?v=t7c3kHlirdc)
+    - [![](https://img.youtube.com/vi/YOm51_oPEZc/hqdefault.jpg)](https://www.youtube.com/watch?v=YOm51_oPEZc)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 31, 視聴数: 3,392,807, いいね数: 52,186
+-   動画数: 32, 視聴数: 3,435,866, いいね数: 52,651
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,859,773, いいね数: 250,988
+-   動画数: 64, 視聴数: 13,860,874, いいね数: 250,990
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -176,27 +176,27 @@
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,253,172, いいね数: 171,326
+-   動画数: 33, 視聴数: 12,253,523, いいね数: 171,329
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,432,931, いいね数: 86,435
+-   動画数: 27, 視聴数: 6,434,518, いいね数: 86,441
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,519,652, いいね数: 127,932
+-   動画数: 33, 視聴数: 11,520,836, いいね数: 127,932
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,492,175, いいね数: 140,494
+-   動画数: 30, 視聴数: 11,492,244, いいね数: 140,494
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,778,417, いいね数: 95,076
+-   動画数: 27, 視聴数: 7,778,571, いいね数: 95,076
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,306,219, いいね数: 112,113
+-   動画数: 24, 視聴数: 7,306,504, いいね数: 112,113
 
 #### [2023年04月](videos/202304 "wikilink")
 
@@ -204,7 +204,7 @@
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,904,836, いいね数: 141,161
+-   動画数: 14, 視聴数: 7,905,021, いいね数: 141,160
 
 ---
-2025-11-12 20:00
+2025-11-12 21:00

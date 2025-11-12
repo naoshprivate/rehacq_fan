@@ -92,8 +92,8 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
-    -   視聴数: 1,829,167
-    -   **いいね数: 23,709**
+    -   視聴数: 1,829,357
+    -   **いいね数: 23,710**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【後藤達也vs森永卓郎】人類史上最大のバブルで日経平均の今後は？全てを暴露【新NISA】](/rehacq_fan/ids/iDPwEX2A73Y "wikilink")
     -   公開日: 2024-07-18
@@ -342,8 +342,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,107,655
-    -   **いいね数: 12,533**
+    -   視聴数: 1,107,993
+    -   **いいね数: 12,532**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
@@ -427,8 +427,8 @@
     -   出演者: [田中渓](/rehacq_fan/people/田中渓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,012,480
-    -   **いいね数: 15,583**
+    -   視聴数: 1,012,565
+    -   **いいね数: 15,585**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】なぜ大学辞め独立メディアを？【哲学とは何か】](/rehacq_fan/ids/w-ToOG5rMTc "wikilink")
     -   公開日: 2023-10-01
