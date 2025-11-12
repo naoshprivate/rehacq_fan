@@ -1,6 +1,6 @@
 ### [【石丸市長と因縁】熊高議員が突然川の中へ…なぜ？秘境の村の秘密【島根と広島県境！ポツンと一軒家】](https://www.youtube.com/watch?v=cOarpsul3CU)
 [![](https://img.youtube.com/vi/cOarpsul3CU/sddefault.jpg)](https://www.youtube.com/watch?v=cOarpsul3CU)
 -   公開日: 2024-02-25
--   視聴数: 488,236
--   **いいね数: 7,135**
+-   視聴数: 488,351
+-   **いいね数: 7,139**
 -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
