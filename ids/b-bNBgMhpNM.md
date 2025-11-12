@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】兵庫県知事選挙【候補者7人vs高橋弘樹】](https://www.youtube.com/watch?v=b-bNBgMhpNM)
 [![](https://img.youtube.com/vi/b-bNBgMhpNM/sddefault.jpg)](https://www.youtube.com/watch?v=b-bNBgMhpNM)
 -   公開日: 2024-11-01
--   視聴数: 1,541,817
--   **いいね数: 32,447**
+-   視聴数: 1,542,123
+-   **いいね数: 32,444**
 -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
