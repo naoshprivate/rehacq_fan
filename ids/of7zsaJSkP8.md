@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/of7zsaJSkP8/sddefault.jpg)](https://www.youtube.com/watch?v=of7zsaJSkP8)
 -   公開日: 2024-07-05
 -   視聴数: 17,325
--   **いいね数: 314**
+-   **いいね数: 313**
 -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
