@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【山之内すず】大激論！商品をバズらせ︎ブランドを作る方法とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/iS5GN9qivu8 "wikilink")
+    -   公開日: 2025-11-13
+    -   視聴数: 3
+    -   **いいね数: 2**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/iS5GN9qivu8/hqdefault.jpg)](https://www.youtube.com/watch?v=iS5GN9qivu8)
 1.  [【猪瀬直樹vs辻田真佐憲】激論！歴史認識とは？戦争の責任とは？「あの戦争」から問う日本人の「背骨」【ReHacQ戦場ジャーナリスト須賀川拓】](/rehacq_fan/ids/shSKvPW1Ks4 "wikilink")
     -   公開日: 2025-11-12
-    -   視聴数: 29,823
-    -   **いいね数: 514**
+    -   視聴数: 41,933
+    -   **いいね数: 673**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/shSKvPW1Ks4/hqdefault.jpg)](https://www.youtube.com/watch?v=shSKvPW1Ks4)
 1.  [【マイクロソフトで最年少部長vs須賀川拓】日本マイクロソフトを衝撃退社...なぜ？27歳で最年少部長に！愛する会社辞めAIで起業するワケとは【ReHacQ】](/rehacq_fan/ids/LipHyNR8_Q8 "wikilink")
     -   公開日: 2025-11-12
-    -   視聴数: 15,186
-    -   **いいね数: 172**
+    -   視聴数: 22,040
+    -   **いいね数: 240**
     -   出演者: 佐々木莉英, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/LipHyNR8_Q8/hqdefault.jpg)](https://www.youtube.com/watch?v=LipHyNR8_Q8)
 1.  [【生配信・日本維新の会】議員定数削減に向け実務者協議会稼働！しんぶん赤旗記者の名刺 画像削除は「するつもりない」…なぜ？【ReHacQ記者会見 11月12日(水)】](/rehacq_fan/ids/Wl_MQcDUVrU "wikilink")
     -   公開日: 2025-11-12
-    -   視聴数: 37,714
-    -   **いいね数: 609**
+    -   視聴数: 38,706
+    -   **いいね数: 618**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink")
     - [![](https://img.youtube.com/vi/Wl_MQcDUVrU/hqdefault.jpg)](https://www.youtube.com/watch?v=Wl_MQcDUVrU)
 1.  [【高橋弘樹vsしんぶん赤旗日曜版編集長】緊急生配信！スクープ連発…しんぶん赤旗とは？【ReHacQvs山本豊彦】](/rehacq_fan/ids/JNsfk2qp0BY "wikilink")
     -   公開日: 2025-11-11
-    -   視聴数: 221,039
-    -   **いいね数: 2,972**
+    -   視聴数: 224,876
+    -   **いいね数: 3,038**
     -   出演者: 山本豊彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/JNsfk2qp0BY/hqdefault.jpg)](https://www.youtube.com/watch?v=JNsfk2qp0BY)
-1.  [【SEOは必要ない】Googleを“味方”にする「売れる本質」とは？【木下勝寿＆成田修造＆ReHacQ】](/rehacq_fan/ids/YOm51_oPEZc "wikilink")
-    -   公開日: 2025-11-11
-    -   視聴数: 15,719
-    -   **いいね数: 186**
-    -   出演者: [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [木下勝寿](/rehacq_fan/people/木下勝寿 "wikilink")
-    - [![](https://img.youtube.com/vi/YOm51_oPEZc/hqdefault.jpg)](https://www.youtube.com/watch?v=YOm51_oPEZc)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -76,7 +76,7 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 33, 視聴数: 3,530,151, いいね数: 53,882
+-   動画数: 33, 視聴数: 3,558,773, いいね数: 54,263
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,124,152, いいね数: 262,310
+-   動画数: 87, 視聴数: 15,125,227, いいね数: 262,312
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -128,15 +128,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,411,153, いいね数: 340,739
+-   動画数: 72, 視聴数: 22,414,968, いいね数: 340,744
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,582,791, いいね数: 220,459
+-   動画数: 50, 視聴数: 14,583,124, いいね数: 220,462
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,877,892, いいね数: 324,958
+-   動画数: 43, 視聴数: 19,877,920, いいね数: 324,958
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -207,4 +207,4 @@
 -   動画数: 14, 視聴数: 7,908,111, いいね数: 141,162
 
 ---
-2025-11-13 07:00
+2025-11-13 12:00
