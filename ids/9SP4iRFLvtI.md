@@ -1,6 +1,6 @@
 ### [【GDP拡大の実現へ】積極財政は景気回復の切り札となるか？【永濱利廣＆木野内栄治＆森本智子＆ReHacQ】](https://www.youtube.com/watch?v=9SP4iRFLvtI)
 [![](https://img.youtube.com/vi/9SP4iRFLvtI/sddefault.jpg)](https://www.youtube.com/watch?v=9SP4iRFLvtI)
 -   公開日: 2025-11-14
--   視聴数: 5,473
--   **いいね数: 188**
+-   視聴数: 9,086
+-   **いいね数: 230**
 -   出演者: 
