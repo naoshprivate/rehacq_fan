@@ -1,6 +1,6 @@
 ### [【後藤達也×テスタ×井村俊哉】投資家忘年会まったり2023　生配信【あつまれ！経済の森】](https://www.youtube.com/watch?v=qbkB7JR4ut4)
 [![](https://img.youtube.com/vi/qbkB7JR4ut4/sddefault.jpg)](https://www.youtube.com/watch?v=qbkB7JR4ut4)
 -   公開日: 2023-12-09
--   視聴数: 623,125
--   **いいね数: 5,743**
+-   視聴数: 623,243
+-   **いいね数: 5,744**
 -   出演者: [テスタ](/rehacq_fan/people/テスタ "wikilink"), [井村俊哉](/rehacq_fan/people/井村俊哉 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
