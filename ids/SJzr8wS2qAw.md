@@ -1,6 +1,6 @@
 ### [【後藤達也vs円安】経済界に課題山積...景気を良くするには…【元日銀理事門間一夫】](https://www.youtube.com/watch?v=SJzr8wS2qAw)
 [![](https://img.youtube.com/vi/SJzr8wS2qAw/sddefault.jpg)](https://www.youtube.com/watch?v=SJzr8wS2qAw)
 -   公開日: 2025-09-04
--   視聴数: 194,819
--   **いいね数: 2,728**
+-   視聴数: 195,232
+-   **いいね数: 2,729**
 -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
