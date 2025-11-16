@@ -1,31 +1,31 @@
+1.  [【ひろゆきvs維新前代表】衝撃告白！自維連立政権なぜ閣外協力に？【ReHacQvs馬場伸幸】](/rehacq_fan/ids/ob8We7PdNSY "wikilink")
+    -   公開日: 2025-11-16
+    -   視聴数: 9,375
+    -   **いいね数: 288**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ob8We7PdNSY/hqdefault.jpg)](https://www.youtube.com/watch?v=ob8We7PdNSY)
 1.  [【野村泰紀vsノーベル経済学賞2025】創造的破壊！イノベーションで成長し続ける条件とは？【村上愛花vs伊神満vsReHacQ】](/rehacq_fan/ids/JG5zJ9kaBKA "wikilink")
     -   公開日: 2025-11-16
-    -   視聴数: 2,689
-    -   **いいね数: 123**
+    -   視聴数: 5,591
+    -   **いいね数: 158**
     -   出演者: 
     - [![](https://img.youtube.com/vi/JG5zJ9kaBKA/hqdefault.jpg)](https://www.youtube.com/watch?v=JG5zJ9kaBKA)
 1.  [【後藤達也vs永濱利廣】高市政権の財政政策どう決める？民間議員が激白【ReHacQvs経済財政諮問会議】](/rehacq_fan/ids/iMmKnzC3lDc "wikilink")
     -   公開日: 2025-11-15
-    -   視聴数: 59,225
-    -   **いいね数: 1,062**
+    -   視聴数: 61,158
+    -   **いいね数: 1,084**
     -   出演者: 
     - [![](https://img.youtube.com/vi/iMmKnzC3lDc/hqdefault.jpg)](https://www.youtube.com/watch?v=iMmKnzC3lDc)
 1.  [【高橋弘樹vs辞めマッキンゼー】東大卒グローバルエリートが衝撃退社...なぜ？エボラ緊急対策リーダー務め、3大感染症の終息に挑むワケとは？【ReHacQ】](/rehacq_fan/ids/Wckd-30gJZY "wikilink")
     -   公開日: 2025-11-15
-    -   視聴数: 36,114
-    -   **いいね数: 472**
+    -   視聴数: 36,977
+    -   **いいね数: 483**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Wckd-30gJZY/hqdefault.jpg)](https://www.youtube.com/watch?v=Wckd-30gJZY)
 1.  [【GDP拡大の実現へ】積極財政は景気回復の切り札となるか？【永濱利廣＆木野内栄治＆森本智子＆ReHacQ】](/rehacq_fan/ids/9SP4iRFLvtI "wikilink")
     -   公開日: 2025-11-14
-    -   視聴数: 40,864
-    -   **いいね数: 736**
+    -   視聴数: 41,142
+    -   **いいね数: 740**
     -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/9SP4iRFLvtI/hqdefault.jpg)](https://www.youtube.com/watch?v=9SP4iRFLvtI)
-1.  [【権藤博vs森永康平】指導者が学ぶべき人材育成や組織作りの方法とは？チームを38年振りの優勝＆日本一に導いた名将の手腕【ReHacQ】](/rehacq_fan/ids/NChbcwNU7xE "wikilink")
-    -   公開日: 2025-11-14
-    -   視聴数: 30,637
-    -   **いいね数: 574**
-    -   出演者: 森永康平, 権藤博
-    - [![](https://img.youtube.com/vi/NChbcwNU7xE/hqdefault.jpg)](https://www.youtube.com/watch?v=NChbcwNU7xE)
 
