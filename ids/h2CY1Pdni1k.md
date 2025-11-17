@@ -1,6 +1,6 @@
 ### [【東京大学vs ReHacQ】社会不適合ですが何か？生きづらさの哲学【ひろゆきもびっくり】](https://www.youtube.com/watch?v=h2CY1Pdni1k)
 [![](https://img.youtube.com/vi/h2CY1Pdni1k/sddefault.jpg)](https://www.youtube.com/watch?v=h2CY1Pdni1k)
 -   公開日: 2024-01-30
--   視聴数: 274,860
--   **いいね数: 3,965**
+-   視聴数: 275,072
+-   **いいね数: 3,969**
 -   出演者: 梶谷真司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
