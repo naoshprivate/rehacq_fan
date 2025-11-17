@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【ひろゆきvs維新前代表】衝撃告白！自維連立政権なぜ閣外協力に？【ReHacQvs馬場伸幸】](/rehacq_fan/ids/ob8We7PdNSY "wikilink")
+1.  [【食の迷信を捨てよ】最適化して“科学的根拠” で食事する方法とは？【河村真木子＆濱谷陸太＆ReHacQ】](/rehacq_fan/ids/brhAYJi_qM "wikilink")
+    -   公開日: 2025-11-17
+    -   視聴数: 5
+    -   **いいね数: 6**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/_brhAYJi_qM/hqdefault.jpg)](https://www.youtube.com/watch?v=_brhAYJi_qM)
+1.  [【ひろゆきvs維新前代表】衝撃スクープ！自民と維新の本当の関係！？【ReHacQvs馬場伸幸】](/rehacq_fan/ids/ob8We7PdNSY "wikilink")
     -   公開日: 2025-11-16
-    -   視聴数: 106,412
-    -   **いいね数: 1,663**
+    -   視聴数: 136,951
+    -   **いいね数: 2,055**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ob8We7PdNSY/hqdefault.jpg)](https://www.youtube.com/watch?v=ob8We7PdNSY)
 1.  [【野村泰紀vsノーベル経済学賞2025】創造的破壊！イノベーションで成長し続ける条件とは？【村上愛花vs伊神満vsReHacQ】](/rehacq_fan/ids/JG5zJ9kaBKA "wikilink")
     -   公開日: 2025-11-16
-    -   視聴数: 23,637
-    -   **いいね数: 334**
+    -   視聴数: 27,181
+    -   **いいね数: 389**
     -   出演者: 
     - [![](https://img.youtube.com/vi/JG5zJ9kaBKA/hqdefault.jpg)](https://www.youtube.com/watch?v=JG5zJ9kaBKA)
 1.  [【後藤達也vs永濱利廣】高市政権の財政政策どう決める？民間議員が激白【ReHacQvs経済財政諮問会議】](/rehacq_fan/ids/iMmKnzC3lDc "wikilink")
     -   公開日: 2025-11-15
-    -   視聴数: 74,863
-    -   **いいね数: 1,265**
+    -   視聴数: 82,329
+    -   **いいね数: 1,371**
     -   出演者: 
     - [![](https://img.youtube.com/vi/iMmKnzC3lDc/hqdefault.jpg)](https://www.youtube.com/watch?v=iMmKnzC3lDc)
 1.  [【高橋弘樹vs辞めマッキンゼー】東大卒グローバルエリートが衝撃退社...なぜ？エボラ緊急対策リーダー務め、3大感染症の終息に挑むワケとは？【ReHacQ】](/rehacq_fan/ids/Wckd-30gJZY "wikilink")
     -   公開日: 2025-11-15
-    -   視聴数: 43,665
-    -   **いいね数: 573**
+    -   視聴数: 46,743
+    -   **いいね数: 608**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Wckd-30gJZY/hqdefault.jpg)](https://www.youtube.com/watch?v=Wckd-30gJZY)
-1.  [【GDP拡大の実現へ】積極財政は景気回復の切り札となるか？【永濱利廣＆木野内栄治＆森本智子＆ReHacQ】](/rehacq_fan/ids/9SP4iRFLvtI "wikilink")
-    -   公開日: 2025-11-14
-    -   視聴数: 43,095
-    -   **いいね数: 782**
-    -   出演者: [木野内栄治](/rehacq_fan/people/木野内栄治 "wikilink"), [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
-    - [![](https://img.youtube.com/vi/9SP4iRFLvtI/hqdefault.jpg)](https://www.youtube.com/watch?v=9SP4iRFLvtI)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,15 +70,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 43, 視聴数: 4,537,536, いいね数: 66,623
+-   動画数: 43, 視聴数: 4,590,192, いいね数: 67,329
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,684,910, いいね数: 325,636
+-   動画数: 102, 視聴数: 21,684,913, いいね数: 325,636
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,291,451, いいね数: 263,364
+-   動画数: 87, 視聴数: 15,291,791, いいね数: 263,362
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -86,7 +86,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,694,444, いいね数: 360,585
+-   動画数: 76, 視聴数: 20,694,874, いいね数: 360,585
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -122,7 +122,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,432,946, いいね数: 340,842
+-   動画数: 72, 視聴数: 22,436,428, いいね数: 340,847
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,915,374, いいね数: 141,180
 
 ---
-2025-11-17 13:00
+2025-11-17 20:00
