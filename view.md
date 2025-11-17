@@ -107,8 +107,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【岡田斗司夫vs後藤達也】ひろゆきとホリエモンも尊敬！価値観が変わる「評価経済社会」とは【緊急出演】](/rehacq_fan/ids/oHDV4qfKJSw "wikilink")
     -   公開日: 2024-08-08
-    -   視聴数: 1,788,712
-    -   **いいね数: 26,784**
+    -   視聴数: 1,792,124
+    -   **いいね数: 26,807**
     -   出演者: 岡田斗司夫, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
@@ -162,8 +162,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スーツ登場！】YouTubeでの勝ち方ぶっちゃけ＆おすすめ旅行術・スポット紹介【趣味を持つには？】](/rehacq_fan/ids/CepOZXVtsCo "wikilink")
     -   公開日: 2023-10-25
-    -   視聴数: 1,446,474
-    -   **いいね数: 21,299**
+    -   視聴数: 1,447,749
+    -   **いいね数: 21,306**
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【後藤達也vsインデックスファンド】パックン式！世界最強の「投資思考術」とは【アメリカ株】](/rehacq_fan/ids/xcbxnXpIizM "wikilink")
     -   公開日: 2023-12-07
@@ -322,8 +322,8 @@
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs国民民主党】衝撃的!日本倍増計画とは?【玉木雄一郎の野望 episode2】](/rehacq_fan/ids/EYKExpig3-4 "wikilink")
     -   公開日: 2023-05-28
-    -   視聴数: 1,123,214
-    -   **いいね数: 18,587**
+    -   視聴数: 1,123,431
+    -   **いいね数: 18,589**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【石丸伸二vs西田亮介】「再生の道」存在意義は？改革か無意味か…箕輪厚介も激論【ReHacQ】](/rehacq_fan/ids/Lws5rbO6AYo "wikilink")
     -   公開日: 2025-04-23
@@ -455,6 +455,11 @@
     -   視聴数: 966,229
     -   **いいね数: 16,608**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 石田健, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
+1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
+    -   公開日: 2025-05-13
+    -   視聴数: 950,296
+    -   **いいね数: 6,936**
+    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs兵庫県議】斎藤知事の側近が告白…なぜ辞職せず？【高橋弘樹】](/rehacq_fan/ids/V2AJCMmVW2I "wikilink")
     -   公開日: 2024-09-19
     -   視聴数: 948,944
@@ -465,11 +470,6 @@
     -   視聴数: 947,132
     -   **いいね数: 17,031**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs東大気象学者】防げ地球滅亡！地球温暖化真の犯人は…【ReHacQ】](/rehacq_fan/ids/JxdSFPP3_Bg "wikilink")
-    -   公開日: 2025-05-13
-    -   視聴数: 945,359
-    -   **いいね数: 6,909**
-    -   出演者: 渡部雅浩, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
     -   公開日: 2025-03-06
     -   視聴数: 942,610
