@@ -1,6 +1,6 @@
 ### [【節約ふゆこ絶句】最強クレジットカードは？130枚クレカ持つ男が徹底解説【ReHacQ】](https://www.youtube.com/watch?v=pwdhvW7qUEY)
 [![](https://img.youtube.com/vi/pwdhvW7qUEY/sddefault.jpg)](https://www.youtube.com/watch?v=pwdhvW7qUEY)
 -   公開日: 2025-05-18
--   視聴数: 135,853
--   **いいね数: 1,069**
+-   視聴数: 136,078
+-   **いいね数: 1,070**
 -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 菊地崇仁
