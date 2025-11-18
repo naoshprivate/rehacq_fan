@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/JNNqlIhO0qI/sddefault.jpg)](https://www.youtube.com/watch?v=JNNqlIhO0qI)
 -   公開日: 2024-12-05
 -   視聴数: 34,643
--   **いいね数: 833**
+-   **いいね数: 832**
 -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
