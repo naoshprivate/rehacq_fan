@@ -7,8 +7,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一が激怒！独裁か民主か【西田亮介の思い】](/rehacq_fan/ids/eOz1CzMBmuQ "wikilink")
     -   公開日: 2023-11-25
-    -   視聴数: 3,282,194
-    -   **いいね数: 25,878**
+    -   視聴数: 3,285,225
+    -   **いいね数: 25,879**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs石丸伸二】緊急生配信②経済、TOKYO、そして民主主義の行方【元三菱東京UFJアナリスト】](/rehacq_fan/ids/zZ13VzNu83s "wikilink")
     -   公開日: 2024-07-10
@@ -32,8 +32,8 @@
     -   出演者: 山崎元, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs鈴木宗男②】ウクライナ侵攻で激論！鈴木宗男、衝撃の動機【注意してご覧ください。】](/rehacq_fan/ids/qemKsOkKAYM "wikilink")
     -   公開日: 2023-08-01
-    -   視聴数: 2,490,957
-    -   **いいね数: 27,227**
+    -   視聴数: 2,491,373
+    -   **いいね数: 27,228**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【成田悠輔が絶賛】6歳でもわかる!?天才物理学者のガチ授業【野村泰紀】](/rehacq_fan/ids/jyAZpcjzxFU "wikilink")
     -   公開日: 2024-02-17
@@ -52,7 +52,7 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs鈴木宗男】ウクライナ侵攻に持論…ロシアの思惑は？【日本維新の会・副代表】](/rehacq_fan/ids/Thz0fKoe98c "wikilink")
     -   公開日: 2023-07-23
-    -   視聴数: 2,201,603
+    -   視聴数: 2,202,059
     -   **いいね数: 19,638**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 鈴木宗男
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
@@ -147,8 +147,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs立憲民主党】米山隆一の野望【落選４回…なぜ政治家に？】](/rehacq_fan/ids/Ue3JGrtEO3Y "wikilink")
     -   公開日: 2023-11-19
-    -   視聴数: 1,471,767
-    -   **いいね数: 9,079**
+    -   視聴数: 1,473,553
+    -   **いいね数: 9,084**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
@@ -285,16 +285,16 @@
     -   視聴数: 1,189,012
     -   **いいね数: 10,516**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [土田しん](/rehacq_fan/people/土田しん "wikilink"), 小西ひろゆき, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
+    -   公開日: 2023-08-20
+    -   視聴数: 1,152,493
+    -   **いいね数: 6,965**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
     -   視聴数: 1,151,011
     -   **いいね数: 21,050**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs小西洋之】改憲の論点は？…「サルと同じ」発言の真相【なんで更迭されたんですか？】](/rehacq_fan/ids/h11UzRqjXyM "wikilink")
-    -   公開日: 2023-08-20
-    -   視聴数: 1,149,271
-    -   **いいね数: 6,960**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
     -   視聴数: 1,140,376
@@ -477,8 +477,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [河野龍太郎](/rehacq_fan/people/河野龍太郎 "wikilink")
 1.  [【ひろゆきvs公明党】創価学会は納得？公明党の存在意義とは？徹底議論…【党宣伝局長が参戦！】](/rehacq_fan/ids/nd1_O8GADYw "wikilink")
     -   公開日: 2023-09-03
-    -   視聴数: 927,796
-    -   **いいね数: 10,691**
+    -   視聴数: 927,985
+    -   **いいね数: 10,693**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink")
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
     -   公開日: 2023-10-07
