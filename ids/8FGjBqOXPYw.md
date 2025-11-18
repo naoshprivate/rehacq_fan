@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/8FGjBqOXPYw/sddefault.jpg)](https://www.youtube.com/watch?v=8FGjBqOXPYw)
 -   公開日: 2024-11-23
 -   視聴数: 140,121
--   **いいね数: 1,948**
+-   **いいね数: 1,947**
 -   出演者: 小谷哲男, [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
