@@ -1,6 +1,6 @@
 ### [【食の迷信を捨てよ】最適化して“科学的根拠” で食事する方法とは？【河村真木子＆濱谷陸太＆ReHacQ】](https://www.youtube.com/watch?v=_brhAYJi_qM)
 [![](https://img.youtube.com/vi/_brhAYJi_qM/sddefault.jpg)](https://www.youtube.com/watch?v=_brhAYJi_qM)
 -   公開日: 2025-11-17
--   視聴数: 49,758
--   **いいね数: 596**
+-   視聴数: 50,563
+-   **いいね数: 603**
 -   出演者: 
