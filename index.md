@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【猪瀬直樹vs辻田真佐憲】憲法改正で全て崩壊？国防とは 靖国とは…？２人が評価する日本の戦後から見えた課題【須賀川拓ReHacQ戦場ジャーナリスト】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 7,043
-    -   **いいね数: 207**
+    -   視聴数: 12,296
+    -   **いいね数: 238**
     -   出演者: 
     - [![](https://img.youtube.com/vi/b1HuPDtz93M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
 1.  [【辞めマイクロソフトvs須賀川拓】27歳で最年少部長...なぜ辞めた？女性らしさを武器にしない仕事術とは？【ReHacQ】](/rehacq_fan/ids/hmEbfFok5i8 "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 6,154
-    -   **いいね数: 89**
+    -   視聴数: 8,304
+    -   **いいね数: 96**
     -   出演者: 
     - [![](https://img.youtube.com/vi/hmEbfFok5i8/hqdefault.jpg)](https://www.youtube.com/watch?v=hmEbfFok5i8)
 1.  [【生配信・国民民主党】日中関係緊迫への懸念を表明 「メディアの皆さんにお願いしたいのはですね…」【ReHacQ記者会見 11月18日(火)】](/rehacq_fan/ids/jlISUmbmQw0 "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 15,407
-    -   **いいね数: 188**
+    -   視聴数: 15,900
+    -   **いいね数: 193**
     -   出演者: 
     - [![](https://img.youtube.com/vi/jlISUmbmQw0/hqdefault.jpg)](https://www.youtube.com/watch?v=jlISUmbmQw0)
 1.  [【石丸伸二vs現代人の悩み】社会に潜む「呪い」とは...なぜ日本の幸福度は低い【鈴木祐vsReHacQ】](/rehacq_fan/ids/CB67CXBz9FE "wikilink")
     -   公開日: 2025-11-17
-    -   視聴数: 138,178
-    -   **いいね数: 6,100**
+    -   視聴数: 140,007
+    -   **いいね数: 6,125**
     -   出演者: 
     - [![](https://img.youtube.com/vi/CB67CXBz9FE/hqdefault.jpg)](https://www.youtube.com/watch?v=CB67CXBz9FE)
 1.  [【食の迷信を捨てよ】最適化して“科学的根拠” で食事する方法とは？【河村真木子＆濱谷陸太＆ReHacQ】](/rehacq_fan/ids/brhAYJi_qM "wikilink")
     -   公開日: 2025-11-17
-    -   視聴数: 48,391
-    -   **いいね数: 587**
+    -   視聴数: 49,758
+    -   **いいね数: 596**
     -   出演者: 
     - [![](https://img.youtube.com/vi/_brhAYJi_qM/hqdefault.jpg)](https://www.youtube.com/watch?v=_brhAYJi_qM)
 
@@ -40,8 +40,8 @@
     - [![](https://img.youtube.com/vi/Txv2Y31DRpA/hqdefault.jpg)](https://www.youtube.com/watch?v=Txv2Y31DRpA)
 1.  [【高橋弘樹vs藤田文武】緊急出演！日本維新の会・共同代表…連立誕生の舞台裏！高市早苗総理でどう日本変わる？【ReHacQ】](/rehacq_fan/ids/TYMAm0xqIv8 "wikilink")
     -   公開日: 2025-10-22
-    -   視聴数: 585,753
-    -   **いいね数: 10,201**
+    -   視聴数: 589,300
+    -   **いいね数: 10,205**
     -   出演者: [藤田文武](/rehacq_fan/people/藤田文武 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/TYMAm0xqIv8/hqdefault.jpg)](https://www.youtube.com/watch?v=TYMAm0xqIv8)
 1.  [【石丸伸二vsひろゆき】高市早苗が首相に指名！自維連立政権発足へ…日本どうなる！？まったり雑談【ReHacQ高橋弘樹vs西田亮介vs土田しんvs音喜多駿vs小西ひろゆき】](/rehacq_fan/ids/FLpXxsuYKls "wikilink")
@@ -70,11 +70,11 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 48, 視聴数: 4,976,503, いいね数: 76,183
+-   動画数: 48, 視聴数: 4,993,955, いいね数: 76,286
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,736,520, いいね数: 325,992
+-   動画数: 102, 視聴数: 21,748,805, いいね数: 326,083
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,907,665, いいね数: 251,303
+-   動画数: 64, 視聴数: 13,907,699, いいね数: 251,303
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -90,7 +90,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,426,095, いいね数: 302,453
+-   動画数: 78, 視聴数: 16,427,784, いいね数: 302,480
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -142,15 +142,15 @@
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,656,766, いいね数: 82,640
+-   動画数: 29, 視聴数: 6,658,579, いいね数: 82,645
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,435,684, いいね数: 98,877
+-   動画数: 34, 視聴数: 9,436,890, いいね数: 98,882
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,179,941, いいね数: 110,365
+-   動画数: 44, 視聴数: 9,181,174, いいね数: 110,374
 
 #### [2024年02月](videos/202402 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,916,592, いいね数: 141,188
 
 ---
-2025-11-19 00:00
+2025-11-19 01:00

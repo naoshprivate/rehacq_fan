@@ -1,6 +1,6 @@
 ### [【ひろゆきvs太田光代】「離婚直前に…」なぜ？妻から見た夫、爆笑問題太田光とは【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=GFMP7ekVVo8)
 [![](https://img.youtube.com/vi/GFMP7ekVVo8/sddefault.jpg)](https://www.youtube.com/watch?v=GFMP7ekVVo8)
 -   公開日: 2025-10-05
--   視聴数: 442,249
--   **いいね数: 4,820**
+-   視聴数: 446,668
+-   **いいね数: 4,858**
 -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [太田光代](/rehacq_fan/people/太田光代 "wikilink")
