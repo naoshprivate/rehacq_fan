@@ -3,4 +3,4 @@
 -   公開日: 2025-10-02
 -   視聴数: 376,305
 -   **いいね数: 6,094**
--   出演者: 丸川珠代, [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 伊藤菜々, 東修平, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 門ひろこ, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: 丸川珠代, [伊佐進一](/rehacq_fan/people/伊佐進一 "wikilink"), 伊藤菜々, [東修平](/rehacq_fan/people/東修平 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 門ひろこ, [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

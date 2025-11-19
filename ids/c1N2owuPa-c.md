@@ -3,4 +3,4 @@
 -   公開日: 2024-09-30
 -   視聴数: 103,132
 -   **いいね数: 1,318**
--   出演者: 伊神満, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [伊神満](/rehacq_fan/people/伊神満 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
