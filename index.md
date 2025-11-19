@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】日本維新の会・藤田共同代表定例会見 11月19日（水）【ReHacQ】](/rehacq_fan/ids/GNZZozea_GM "wikilink")
+    -   公開日: 2025-11-19
+    -   視聴数: 13,316
+    -   **いいね数: 203**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/GNZZozea_GM/hqdefault.jpg)](https://www.youtube.com/watch?v=GNZZozea_GM)
 1.  [【猪瀬直樹vs辻田真佐憲】憲法改正で全て崩壊？国防とは 靖国とは…？２人が評価する日本の戦後から見えた課題【須賀川拓ReHacQ戦場ジャーナリスト】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 32,790
-    -   **いいね数: 464**
+    -   視聴数: 40,195
+    -   **いいね数: 552**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/b1HuPDtz93M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
 1.  [【辞めマイクロソフトvs須賀川拓】27歳で最年少部長...なぜ辞めた？女性らしさを武器にしない仕事術とは？【ReHacQ】](/rehacq_fan/ids/hmEbfFok5i8 "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 16,263
-    -   **いいね数: 156**
+    -   視聴数: 19,302
+    -   **いいね数: 197**
     -   出演者: 佐々木莉英, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/hmEbfFok5i8/hqdefault.jpg)](https://www.youtube.com/watch?v=hmEbfFok5i8)
 1.  [【生配信・国民民主党】日中関係緊迫への懸念を表明 「メディアの皆さんにお願いしたいのはですね…」【ReHacQ記者会見 11月18日(火)】](/rehacq_fan/ids/jlISUmbmQw0 "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 17,740
-    -   **いいね数: 211**
+    -   視聴数: 18,417
+    -   **いいね数: 216**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/jlISUmbmQw0/hqdefault.jpg)](https://www.youtube.com/watch?v=jlISUmbmQw0)
 1.  [【石丸伸二vs現代人の悩み】社会に潜む「呪い」とは...なぜ日本の幸福度は低い【鈴木祐vsReHacQ】](/rehacq_fan/ids/CB67CXBz9FE "wikilink")
     -   公開日: 2025-11-17
-    -   視聴数: 150,360
-    -   **いいね数: 6,337**
+    -   視聴数: 156,418
+    -   **いいね数: 6,495**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 鈴木祐
     - [![](https://img.youtube.com/vi/CB67CXBz9FE/hqdefault.jpg)](https://www.youtube.com/watch?v=CB67CXBz9FE)
-1.  [【食の迷信を捨てよ】最適化して“科学的根拠” で食事する方法とは？【河村真木子＆濱谷陸太＆ReHacQ】](/rehacq_fan/ids/brhAYJi_qM "wikilink")
-    -   公開日: 2025-11-17
-    -   視聴数: 55,362
-    -   **いいね数: 648**
-    -   出演者: [河村真木子](/rehacq_fan/people/河村真木子 "wikilink"), 濱谷陸太
-    - [![](https://img.youtube.com/vi/_brhAYJi_qM/hqdefault.jpg)](https://www.youtube.com/watch?v=_brhAYJi_qM)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,19 +70,19 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 48, 視聴数: 5,050,675, いいね数: 76,954
+-   動画数: 49, 視聴数: 5,089,908, いいね数: 77,543
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,780,464, いいね数: 326,373
+-   動画数: 102, 視聴数: 21,787,331, いいね数: 326,485
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,370,922, いいね数: 263,848
+-   動画数: 87, 視聴数: 15,370,972, いいね数: 263,846
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,907,952, いいね数: 251,303
+-   動画数: 64, 視聴数: 13,909,593, いいね数: 251,311
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 15,128,326, いいね数: 195,865
+-   動画数: 63, 視聴数: 15,134,727, いいね数: 195,925
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -142,23 +142,23 @@
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,658,579, いいね数: 82,645
+-   動画数: 29, 視聴数: 6,658,589, いいね数: 82,645
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,436,890, いいね数: 98,882
+-   動画数: 34, 視聴数: 9,437,026, いいね数: 98,881
 
 #### [2024年03月](videos/202403 "wikilink")
 
--   動画数: 44, 視聴数: 9,181,177, いいね数: 110,374
+-   動画数: 44, 視聴数: 9,181,516, いいね数: 110,374
 
 #### [2024年02月](videos/202402 "wikilink")
 
--   動画数: 34, 視聴数: 15,317,511, いいね数: 188,561
+-   動画数: 34, 視聴数: 15,317,705, いいね数: 188,561
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,338,855, いいね数: 118,541
+-   動画数: 30, 視聴数: 9,338,918, いいね数: 118,543
 
 #### [2023年12月](videos/202312 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,916,660, いいね数: 141,190
 
 ---
-2025-11-19 13:00
+2025-11-19 20:00
