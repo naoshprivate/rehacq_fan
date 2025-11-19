@@ -412,8 +412,8 @@
     -   出演者: 暇空茜, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
     -   公開日: 2025-03-08
-    -   視聴数: 861,356
-    -   **いいね数: 15,855**
+    -   視聴数: 863,041
+    -   **いいね数: 15,872**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vsみうらじゅん】損するのが楽しい！ゆるキャラ産みの親…67歳で見つけた幸福論【ReHacQ】](/rehacq_fan/ids/RwjSzGvyEoA "wikilink")
     -   公開日: 2025-06-10
