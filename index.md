@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【高橋弘樹vs元キャリア官僚】千葉市長が激白！なぜ東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](/rehacq_fan/ids/M-DzobdcVOQ "wikilink")
+    -   公開日: 2025-11-19
+    -   視聴数: 1,728
+    -   **いいね数: 114**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/M-DzobdcVOQ/hqdefault.jpg)](https://www.youtube.com/watch?v=M-DzobdcVOQ)
+1.  [【高橋弘樹vs辞めTwitter】Twitter辞めBeRealに転職…なぜ？SNS立ち上げ屋が転職して企業を渡り歩くワケ…目指すSNS世界とは？【ReHacQ】](/rehacq_fan/ids/AIT5yqWebtk "wikilink")
+    -   公開日: 2025-11-19
+    -   視聴数: 4
+    -   **いいね数: 5**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/AIT5yqWebtk/hqdefault.jpg)](https://www.youtube.com/watch?v=AIT5yqWebtk)
 1.  [【生配信】日本維新の会・藤田共同代表定例会見 11月19日（水）【ReHacQ】](/rehacq_fan/ids/GNZZozea_GM "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 13,316
-    -   **いいね数: 203**
+    -   視聴数: 14,546
+    -   **いいね数: 220**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GNZZozea_GM/hqdefault.jpg)](https://www.youtube.com/watch?v=GNZZozea_GM)
 1.  [【猪瀬直樹vs辻田真佐憲】憲法改正で全て崩壊？国防とは 靖国とは…？２人が評価する日本の戦後から見えた課題【須賀川拓ReHacQ戦場ジャーナリスト】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 40,195
-    -   **いいね数: 552**
+    -   視聴数: 41,138
+    -   **いいね数: 562**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/b1HuPDtz93M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
 1.  [【辞めマイクロソフトvs須賀川拓】27歳で最年少部長...なぜ辞めた？女性らしさを武器にしない仕事術とは？【ReHacQ】](/rehacq_fan/ids/hmEbfFok5i8 "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 19,302
-    -   **いいね数: 197**
+    -   視聴数: 19,782
+    -   **いいね数: 200**
     -   出演者: 佐々木莉英, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/hmEbfFok5i8/hqdefault.jpg)](https://www.youtube.com/watch?v=hmEbfFok5i8)
-1.  [【生配信・国民民主党】日中関係緊迫への懸念を表明 「メディアの皆さんにお願いしたいのはですね…」【ReHacQ記者会見 11月18日(火)】](/rehacq_fan/ids/jlISUmbmQw0 "wikilink")
-    -   公開日: 2025-11-18
-    -   視聴数: 18,417
-    -   **いいね数: 216**
-    -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
-    - [![](https://img.youtube.com/vi/jlISUmbmQw0/hqdefault.jpg)](https://www.youtube.com/watch?v=jlISUmbmQw0)
-1.  [【石丸伸二vs現代人の悩み】社会に潜む「呪い」とは...なぜ日本の幸福度は低い【鈴木祐vsReHacQ】](/rehacq_fan/ids/CB67CXBz9FE "wikilink")
-    -   公開日: 2025-11-17
-    -   視聴数: 156,418
-    -   **いいね数: 6,495**
-    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 鈴木祐
-    - [![](https://img.youtube.com/vi/CB67CXBz9FE/hqdefault.jpg)](https://www.youtube.com/watch?v=CB67CXBz9FE)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,23 +70,23 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 49, 視聴数: 5,089,908, いいね数: 77,543
+-   動画数: 50, 視聴数: 5,116,364, いいね数: 78,078
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,787,331, いいね数: 326,485
+-   動画数: 102, 視聴数: 21,787,346, いいね数: 326,485
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,370,972, いいね数: 263,846
+-   動画数: 87, 視聴数: 15,372,159, いいね数: 263,860
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,909,593, いいね数: 251,311
+-   動画数: 64, 視聴数: 13,909,707, いいね数: 251,309
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,710,760, いいね数: 360,645
+-   動画数: 76, 視聴数: 20,714,070, いいね数: 360,713
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年05月](videos/202505 "wikilink")
 
--   動画数: 63, 視聴数: 15,134,727, いいね数: 195,925
+-   動画数: 63, 視聴数: 15,139,802, いいね数: 195,961
 
 #### [2025年04月](videos/202504 "wikilink")
 
@@ -162,19 +162,19 @@
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,396,990, いいね数: 120,853
+-   動画数: 30, 視聴数: 9,397,079, いいね数: 120,857
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,222,636, いいね数: 142,347
+-   動画数: 25, 視聴数: 13,222,662, いいね数: 142,345
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,266,463, いいね数: 171,439
+-   動画数: 33, 視聴数: 12,266,471, いいね数: 171,439
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,437,827, いいね数: 86,460
+-   動画数: 27, 視聴数: 6,437,835, いいね数: 86,460
 
 #### [2023年08月](videos/202308 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,916,660, いいね数: 141,190
 
 ---
-2025-11-19 20:00
+2025-11-19 21:00
