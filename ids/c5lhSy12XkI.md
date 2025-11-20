@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs川原伸晃】植物はあざとい!? 知られざる超越的能力…園芸二重スパイとは…？【ReHacQ園芸】](https://www.youtube.com/watch?v=c5lhSy12XkI)
 [![](https://img.youtube.com/vi/c5lhSy12XkI/sddefault.jpg)](https://www.youtube.com/watch?v=c5lhSy12XkI)
 -   公開日: 2025-11-20
--   視聴数: 9,312
--   **いいね数: 191**
+-   視聴数: 10,994
+-   **いいね数: 203**
 -   出演者: 

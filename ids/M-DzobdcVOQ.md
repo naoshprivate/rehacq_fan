@@ -1,6 +1,6 @@
-### [【高橋弘樹vs元キャリア官僚】千葉市長が激白！なぜ東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](https://www.youtube.com/watch?v=M-DzobdcVOQ)
+### [【高橋弘樹vs千葉市長】緊急スクープ！マリンスタジアムがドーム化！幕張の未来像を赤裸々告白！東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](https://www.youtube.com/watch?v=M-DzobdcVOQ)
 [![](https://img.youtube.com/vi/M-DzobdcVOQ/sddefault.jpg)](https://www.youtube.com/watch?v=M-DzobdcVOQ)
 -   公開日: 2025-11-19
--   視聴数: 61,538
--   **いいね数: 758**
+-   視聴数: 62,306
+-   **いいね数: 763**
 -   出演者: 
