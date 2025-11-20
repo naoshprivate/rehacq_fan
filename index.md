@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【高橋弘樹vs川原伸晃】植物はあざとい!? 知られざる超越的能力…園芸二重スパイとは…？【ReHacQ園芸】](/rehacq_fan/ids/c5lhSy12XkI "wikilink")
     -   公開日: 2025-11-20
-    -   視聴数: 1,773
-    -   **いいね数: 75**
+    -   視聴数: 2,893
+    -   **いいね数: 127**
     -   出演者: 
     - [![](https://img.youtube.com/vi/c5lhSy12XkI/hqdefault.jpg)](https://www.youtube.com/watch?v=c5lhSy12XkI)
 1.  [【高橋弘樹vs辞めTwitter】Twitter辞めBeRealに転職…なぜ？SNS立ち上げ屋が転職して企業を渡り歩くワケ…目指すSNS世界とは？【ReHacQ】](/rehacq_fan/ids/AIT5yqWebtk "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 21,591
-    -   **いいね数: 222**
+    -   視聴数: 22,293
+    -   **いいね数: 227**
     -   出演者: 
     - [![](https://img.youtube.com/vi/AIT5yqWebtk/hqdefault.jpg)](https://www.youtube.com/watch?v=AIT5yqWebtk)
 1.  [【高橋弘樹vs元キャリア官僚】千葉市長が激白！なぜ東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](/rehacq_fan/ids/M-DzobdcVOQ "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 57,483
-    -   **いいね数: 727**
+    -   視聴数: 58,682
+    -   **いいね数: 731**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M-DzobdcVOQ/hqdefault.jpg)](https://www.youtube.com/watch?v=M-DzobdcVOQ)
 1.  [【生配信・日本維新の会】中国外交官の態度は“戦略の一環” 立憲岡田議員の台湾有事質疑「若輩者から僭越ですが…」【ReHacQ記者会見 11月19日(水)】](/rehacq_fan/ids/GNZZozea_GM "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 20,679
-    -   **いいね数: 292**
+    -   視聴数: 20,919
+    -   **いいね数: 293**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GNZZozea_GM/hqdefault.jpg)](https://www.youtube.com/watch?v=GNZZozea_GM)
 1.  [【なぜ日中開戦？】真実の歴史とは？戦後80年…大激論【猪瀬直樹vs辻田真佐憲】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 49,291
-    -   **いいね数: 650**
+    -   視聴数: 50,012
+    -   **いいね数: 660**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/b1HuPDtz93M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
 
@@ -70,19 +70,19 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 52, 視聴数: 5,261,711, いいね数: 79,645
+-   動画数: 52, 視聴数: 5,279,574, いいね数: 79,853
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,921,691, いいね数: 327,467
+-   動画数: 102, 視聴数: 21,922,281, いいね数: 327,484
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,401,005, いいね数: 264,118
+-   動画数: 87, 視聴数: 15,401,048, いいね数: 264,117
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,922,841, いいね数: 251,385
+-   動画数: 64, 視聴数: 13,925,771, いいね数: 251,388
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -90,7 +90,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,446,624, いいね数: 302,676
+-   動画数: 78, 視聴数: 16,447,747, いいね数: 302,685
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -130,7 +130,7 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 19,931,621, いいね数: 325,480
+-   動画数: 43, 視聴数: 19,940,803, いいね数: 325,567
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -186,7 +186,7 @@
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,784,550, いいね数: 95,113
+-   動画数: 27, 視聴数: 7,784,556, いいね数: 95,113
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,919,008, いいね数: 141,190
 
 ---
-2025-11-20 21:00
+2025-11-20 22:00
