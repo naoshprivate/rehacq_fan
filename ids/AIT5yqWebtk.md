@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs辞めTwitter】Twitter辞めBeRealに転職…なぜ？SNS立ち上げ屋が転職して企業を渡り歩くワケ…目指すSNS世界とは？【ReHacQ】](https://www.youtube.com/watch?v=AIT5yqWebtk)
 [![](https://img.youtube.com/vi/AIT5yqWebtk/sddefault.jpg)](https://www.youtube.com/watch?v=AIT5yqWebtk)
 -   公開日: 2025-11-19
--   視聴数: 20,901
--   **いいね数: 216**
+-   視聴数: 21,591
+-   **いいね数: 222**
 -   出演者: 
