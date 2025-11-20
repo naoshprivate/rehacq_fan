@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【高橋弘樹vs川原伸晃】植物はあざとい!? 知られざる超越的能力…園芸二重スパイとは…？【ReHacQ園芸】](/rehacq_fan/ids/c5lhSy12XkI "wikilink")
+    -   公開日: 2025-11-20
+    -   視聴数: 5
+    -   **いいね数: 3**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/c5lhSy12XkI/hqdefault.jpg)](https://www.youtube.com/watch?v=c5lhSy12XkI)
 1.  [【高橋弘樹vs辞めTwitter】Twitter辞めBeRealに転職…なぜ？SNS立ち上げ屋が転職して企業を渡り歩くワケ…目指すSNS世界とは？【ReHacQ】](/rehacq_fan/ids/AIT5yqWebtk "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 16,631
-    -   **いいね数: 183**
+    -   視聴数: 20,901
+    -   **いいね数: 216**
     -   出演者: 
     - [![](https://img.youtube.com/vi/AIT5yqWebtk/hqdefault.jpg)](https://www.youtube.com/watch?v=AIT5yqWebtk)
 1.  [【高橋弘樹vs元キャリア官僚】千葉市長が激白！なぜ東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](/rehacq_fan/ids/M-DzobdcVOQ "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 49,152
-    -   **いいね数: 618**
+    -   視聴数: 56,384
+    -   **いいね数: 716**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M-DzobdcVOQ/hqdefault.jpg)](https://www.youtube.com/watch?v=M-DzobdcVOQ)
-1.  [【生配信】日本維新の会・藤田共同代表定例会見 11月19日（水）【ReHacQ】](/rehacq_fan/ids/GNZZozea_GM "wikilink")
+1.  [【生配信・日本維新の会】中国外交官の態度は“戦略の一環” 立憲岡田議員の台湾有事質疑「若輩者から僭越ですが…」【ReHacQ記者会見 11月19日(水)】](/rehacq_fan/ids/GNZZozea_GM "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 19,671
-    -   **いいね数: 273**
+    -   視聴数: 20,532
+    -   **いいね数: 285**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GNZZozea_GM/hqdefault.jpg)](https://www.youtube.com/watch?v=GNZZozea_GM)
-1.  [【猪瀬直樹vs辻田真佐憲】憲法改正で全て崩壊？国防とは 靖国とは…？２人が評価する日本の戦後から見えた課題【須賀川拓ReHacQ戦場ジャーナリスト】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
+1.  [【なぜ日中開戦？】真実の歴史とは？戦後80年…大激論【猪瀬直樹vs辻田真佐憲】](/rehacq_fan/ids/b1HuPDtz93M "wikilink")
     -   公開日: 2025-11-18
-    -   視聴数: 46,978
-    -   **いいね数: 614**
+    -   視聴数: 48,872
+    -   **いいね数: 645**
     -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
     - [![](https://img.youtube.com/vi/b1HuPDtz93M/hqdefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
-1.  [【辞めマイクロソフトvs須賀川拓】27歳で最年少部長...なぜ辞めた？女性らしさを武器にしない仕事術とは？【ReHacQ】](/rehacq_fan/ids/hmEbfFok5i8 "wikilink")
-    -   公開日: 2025-11-18
-    -   視聴数: 22,556
-    -   **いいね数: 223**
-    -   出演者: 佐々木莉英, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/hmEbfFok5i8/hqdefault.jpg)](https://www.youtube.com/watch?v=hmEbfFok5i8)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -70,23 +70,23 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 51, 視聴数: 5,224,980, いいね数: 79,163
+-   動画数: 51, 視聴数: 5,247,195, いいね数: 79,445
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,913,827, いいね数: 327,293
+-   動画数: 102, 視聴数: 21,921,572, いいね数: 327,467
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,379,432, いいね数: 263,954
+-   動画数: 87, 視聴数: 15,379,433, いいね数: 263,954
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 64, 視聴数: 13,919,062, いいね数: 251,366
+-   動画数: 64, 視聴数: 13,920,746, いいね数: 251,374
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,718,073, いいね数: 360,742
+-   動画数: 76, 視聴数: 20,737,604, いいね数: 360,901
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -118,15 +118,15 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,123,019, いいね数: 379,596
+-   動画数: 38, 視聴数: 22,123,369, いいね数: 379,600
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,451,251, いいね数: 340,908
+-   動画数: 72, 視聴数: 22,454,941, いいね数: 340,918
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,609,423, いいね数: 220,603
+-   動画数: 50, 視聴数: 14,612,725, いいね数: 220,611
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -201,4 +201,4 @@
 -   動画数: 14, 視聴数: 7,919,008, いいね数: 141,190
 
 ---
-2025-11-20 13:00
+2025-11-20 20:00

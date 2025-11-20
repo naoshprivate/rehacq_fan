@@ -1,6 +1,6 @@
-### [【猪瀬直樹vs辻田真佐憲】憲法改正で全て崩壊？国防とは 靖国とは…？２人が評価する日本の戦後から見えた課題【須賀川拓ReHacQ戦場ジャーナリスト】](https://www.youtube.com/watch?v=b1HuPDtz93M)
+### [【なぜ日中開戦？】真実の歴史とは？戦後80年…大激論【猪瀬直樹vs辻田真佐憲】](https://www.youtube.com/watch?v=b1HuPDtz93M)
 [![](https://img.youtube.com/vi/b1HuPDtz93M/sddefault.jpg)](https://www.youtube.com/watch?v=b1HuPDtz93M)
 -   公開日: 2025-11-18
--   視聴数: 46,978
--   **いいね数: 614**
+-   視聴数: 48,872
+-   **いいね数: 645**
 -   出演者: [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink"), [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink")
