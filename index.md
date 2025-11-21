@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【永濱利廣vs片岡剛士】日本成長戦略会議メンバーに聞く！重点投資の17分野と20兆円財政出動の狙いとは？【ReHacQvs日本成長戦略会議】](/rehacq_fan/ids/38EwhAFYnqw "wikilink")
+    -   公開日: 2025-11-21
+    -   視聴数: 4,415
+    -   **いいね数: 140**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/38EwhAFYnqw/hqdefault.jpg)](https://www.youtube.com/watch?v=38EwhAFYnqw)
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 55,154
-    -   **いいね数: 3,182**
+    -   視聴数: 72,712
+    -   **いいね数: 3,884**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GyXP2lnWGiQ/hqdefault.jpg)](https://www.youtube.com/watch?v=GyXP2lnWGiQ)
 1.  [【生配信】立憲民主党・野田代表定例会見 11月21日（金）【ReHacQ】](/rehacq_fan/ids/6bWEm04o-8A "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 6,779
-    -   **いいね数: 40**
+    -   視聴数: 6,976
+    -   **いいね数: 41**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6bWEm04o-8A/hqdefault.jpg)](https://www.youtube.com/watch?v=6bWEm04o-8A)
 1.  [【高橋弘樹vs川原伸晃】植物はあざとい!? 知られざる超越的能力…園芸二重スパイとは…？【ReHacQ園芸】](/rehacq_fan/ids/c5lhSy12XkI "wikilink")
     -   公開日: 2025-11-20
-    -   視聴数: 23,911
-    -   **いいね数: 412**
+    -   視聴数: 24,261
+    -   **いいね数: 417**
     -   出演者: 
     - [![](https://img.youtube.com/vi/c5lhSy12XkI/hqdefault.jpg)](https://www.youtube.com/watch?v=c5lhSy12XkI)
 1.  [【高橋弘樹vs辞めTwitter】Twitter辞めBeRealに転職…なぜ？SNS立ち上げ屋が転職して企業を渡り歩くワケ…目指すSNS世界とは？【ReHacQ】](/rehacq_fan/ids/AIT5yqWebtk "wikilink")
     -   公開日: 2025-11-19
-    -   視聴数: 27,816
+    -   視聴数: 27,952
     -   **いいね数: 271**
     -   出演者: 
     - [![](https://img.youtube.com/vi/AIT5yqWebtk/hqdefault.jpg)](https://www.youtube.com/watch?v=AIT5yqWebtk)
-1.  [【高橋弘樹vs千葉市長】緊急スクープ！マリンスタジアムがドーム化！幕張の未来像を赤裸々告白！東京一極集中進む？千葉で暮らしてもらうには【ReHacQvs神谷俊一】](/rehacq_fan/ids/M-DzobdcVOQ "wikilink")
-    -   公開日: 2025-11-19
-    -   視聴数: 74,858
-    -   **いいね数: 940**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/M-DzobdcVOQ/hqdefault.jpg)](https://www.youtube.com/watch?v=M-DzobdcVOQ)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,15 +58,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 54, 視聴数: 5,460,563, いいね数: 84,182
+-   動画数: 55, 視聴数: 5,506,072, いいね数: 85,267
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,938,757, いいね数: 327,608
+-   動画数: 102, 視聴数: 21,939,188, いいね数: 327,605
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,415,061, いいね数: 264,216
+-   動画数: 87, 視聴数: 15,415,228, いいね数: 264,219
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -74,11 +74,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,743,894, いいね数: 360,950
+-   動画数: 76, 視聴数: 20,743,990, いいね数: 360,943
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,457,624, いいね数: 302,755
+-   動画数: 78, 視聴数: 16,458,835, いいね数: 302,771
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -102,15 +102,15 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,452,908, いいね数: 309,065
+-   動画数: 60, 視聴数: 18,452,918, いいね数: 309,063
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,124,308, いいね数: 379,605
+-   動画数: 38, 視聴数: 22,143,009, いいね数: 379,620
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,455,994, いいね数: 340,916
+-   動画数: 72, 視聴数: 22,456,804, いいね数: 340,914
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -189,4 +189,4 @@
 -   動画数: 14, 視聴数: 7,923,417, いいね数: 141,194
 
 ---
-2025-11-21 21:00
+2025-11-21 22:00
