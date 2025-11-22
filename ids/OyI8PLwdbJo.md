@@ -1,6 +1,6 @@
 ### [【ReHacQ討論会】新宿区ネット討論会【西田亮介】](https://www.youtube.com/watch?v=OyI8PLwdbJo)
 [![](https://img.youtube.com/vi/OyI8PLwdbJo/sddefault.jpg)](https://www.youtube.com/watch?v=OyI8PLwdbJo)
 -   公開日: 2025-06-19
--   視聴数: 158,969
--   **いいね数: 3,557**
+-   視聴数: 158,973
+-   **いいね数: 3,556**
 -   出演者: 
