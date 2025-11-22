@@ -1,6 +1,6 @@
 ### [【S&P500・日本株】円安時代に備える資産形成術とは【ゴールドマンサックスvs三菱UFJ銀行】](https://www.youtube.com/watch?v=nF6-5DJuWSg)
 [![](https://img.youtube.com/vi/nF6-5DJuWSg/sddefault.jpg)](https://www.youtube.com/watch?v=nF6-5DJuWSg)
 -   公開日: 2024-05-22
--   視聴数: 95,642
+-   視聴数: 95,644
 -   **いいね数: 1,114**
 -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), 田内学
