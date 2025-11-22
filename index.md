@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【権藤博vs森永康平】強い組織の作り方とは？38年振りの日本一に導いた凄腕マネージメント術【ReHacQ】](/rehacq_fan/ids/-lWF3zqKCXI "wikilink")
+    -   公開日: 2025-11-22
+    -   視聴数: 1,025
+    -   **いいね数: 54**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/-lWF3zqKCXI/hqdefault.jpg)](https://www.youtube.com/watch?v=-lWF3zqKCXI)
 1.  [【なぜ政党辞めたんですか？】NHK党を電撃離党…齊藤健一郎に全部聞いてみた【ReHacQ高橋弘樹】](/rehacq_fan/ids/WEub9eUwvJ4 "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 147,742
-    -   **いいね数: 2,195**
+    -   視聴数: 151,402
+    -   **いいね数: 2,236**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齊藤健一郎
     - [![](https://img.youtube.com/vi/WEub9eUwvJ4/hqdefault.jpg)](https://www.youtube.com/watch?v=WEub9eUwvJ4)
 1.  [【永濱利廣vs片岡剛士】日本成長戦略会議メンバーに聞く！重点投資の17分野と20兆円財政出動の狙いとは？【ReHacQvs日本成長戦略会議】](/rehacq_fan/ids/38EwhAFYnqw "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 34,969
-    -   **いいね数: 578**
+    -   視聴数: 35,633
+    -   **いいね数: 583**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 片岡剛士
     - [![](https://img.youtube.com/vi/38EwhAFYnqw/hqdefault.jpg)](https://www.youtube.com/watch?v=38EwhAFYnqw)
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 344,125
-    -   **いいね数: 11,091**
+    -   視聴数: 354,942
+    -   **いいね数: 11,322**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GyXP2lnWGiQ/hqdefault.jpg)](https://www.youtube.com/watch?v=GyXP2lnWGiQ)
-1.  [【生配信】立憲民主党・野田代表定例会見 11月21日（金）【ReHacQ】](/rehacq_fan/ids/6bWEm04o-8A "wikilink")
+1.  [【生配信・立憲民主党】台湾有事答弁「質問者批判は筋違い」非核三原則の是非は…？【ReHacQ記者会見 11月20日(金)】](/rehacq_fan/ids/6bWEm04o-8A "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 8,931
+    -   視聴数: 8,962
     -   **いいね数: 50**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/6bWEm04o-8A/hqdefault.jpg)](https://www.youtube.com/watch?v=6bWEm04o-8A)
-1.  [【高橋弘樹vs川原伸晃】植物はあざとい!? 知られざる超越的能力…園芸二重スパイとは…？【ReHacQ園芸】](/rehacq_fan/ids/c5lhSy12XkI "wikilink")
-    -   公開日: 2025-11-20
-    -   視聴数: 28,522
-    -   **いいね数: 461**
-    -   出演者: 川原伸晃, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/c5lhSy12XkI/hqdefault.jpg)](https://www.youtube.com/watch?v=c5lhSy12XkI)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -52,11 +52,11 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 56, 視聴数: 6,017,707, いいね数: 95,592
+-   動画数: 57, 視聴数: 6,045,415, いいね数: 96,093
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 21,959,007, いいね数: 327,687
+-   動画数: 102, 視聴数: 21,959,568, いいね数: 327,693
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -68,7 +68,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,744,783, いいね数: 360,951
+-   動画数: 76, 視聴数: 20,749,119, いいね数: 360,971
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -144,31 +144,31 @@
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,398,263, いいね数: 120,872
+-   動画数: 30, 視聴数: 9,398,309, いいね数: 120,872
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,228,941, いいね数: 142,411
+-   動画数: 25, 視聴数: 13,233,271, いいね数: 142,416
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,267,790, いいね数: 171,444
+-   動画数: 33, 視聴数: 12,268,084, いいね数: 171,445
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,438,954, いいね数: 86,467
+-   動画数: 27, 視聴数: 6,439,557, いいね数: 86,469
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,533,505, いいね数: 127,958
+-   動画数: 33, 視聴数: 11,540,621, いいね数: 127,977
 
 #### [2023年07月](videos/202307 "wikilink")
 
--   動画数: 30, 視聴数: 11,517,876, いいね数: 140,653
+-   動画数: 30, 視聴数: 11,518,629, いいね数: 140,655
 
 #### [2023年06月](videos/202306 "wikilink")
 
--   動画数: 27, 視聴数: 7,785,178, いいね数: 95,113
+-   動画数: 27, 視聴数: 7,785,365, いいね数: 95,111
 
 #### [2023年05月](videos/202305 "wikilink")
 
@@ -183,4 +183,4 @@
 -   動画数: 14, 視聴数: 7,923,990, いいね数: 141,199
 
 ---
-2025-11-22 20:00
+2025-11-22 21:00
