@@ -242,8 +242,8 @@
     -   出演者: 
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
-    -   視聴数: 1,284,504
-    -   **いいね数: 14,870**
+    -   視聴数: 1,290,014
+    -   **いいね数: 14,897**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき絶句…】温厚な玉木雄一郎が見たことない激怒！本音激白…財務省、選択的夫婦別姓、SNS規制！【ReHacQ高橋弘樹】](/rehacq_fan/ids/v6K85s-g9Oc "wikilink")
     -   公開日: 2025-02-05
@@ -467,8 +467,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
-    -   視聴数: 947,505
-    -   **いいね数: 17,030**
+    -   視聴数: 948,163
+    -   **いいね数: 17,032**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs日本経済の死角】なぜ日本人の給料上がらない？日本企業の収奪的システムとは？【河野龍太郎vsReHacQ】](/rehacq_fan/ids/0mVSxF0JYRs "wikilink")
     -   公開日: 2025-03-06
