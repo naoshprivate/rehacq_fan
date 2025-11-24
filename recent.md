@@ -1,31 +1,31 @@
 1.  [【40代から若返る！】体力は才能じゃない！筋トレより効く最強・体力習慣とは？【田中渓&澤木一貴】](/rehacq_fan/ids/5xS_xtpWvVg "wikilink")
     -   公開日: 2025-11-24
-    -   視聴数: 1,521
-    -   **いいね数: 71**
-    -   出演者: 
+    -   視聴数: 35,140
+    -   **いいね数: 709**
+    -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/5xS_xtpWvVg/hqdefault.jpg)](https://www.youtube.com/watch?v=5xS_xtpWvVg)
 1.  [【石丸伸二vs人生の無駄】なぜネガティブな言葉は信頼されるのか？必要な苦痛とは？【鈴木祐vsReHacQ】](/rehacq_fan/ids/LJzJnsYNu84 "wikilink")
     -   公開日: 2025-11-23
-    -   視聴数: 77,950
-    -   **いいね数: 4,135**
-    -   出演者: 
+    -   視聴数: 92,278
+    -   **いいね数: 4,583**
+    -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 鈴木祐
     - [![](https://img.youtube.com/vi/LJzJnsYNu84/hqdefault.jpg)](https://www.youtube.com/watch?v=LJzJnsYNu84)
 1.  [【東出昌大vs角幡唯介】 生きている実感を得たい...自由に生きる2人の最強幸福論！20代・30代・40代...人生のピークを迎える年齢とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/zclxqZwBp5M "wikilink")
     -   公開日: 2025-11-23
-    -   視聴数: 90,030
-    -   **いいね数: 1,752**
-    -   出演者: 
+    -   視聴数: 115,441
+    -   **いいね数: 2,146**
+    -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), 角幡唯介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/zclxqZwBp5M/hqdefault.jpg)](https://www.youtube.com/watch?v=zclxqZwBp5M)
 1.  [【堀江貴文vs茂木健一郎】受験は時代遅れ?日本の教育の今後はどうなる？【ReHacQ高橋弘樹vs竹内薫】](/rehacq_fan/ids/fAJzcvaEf3I "wikilink")
     -   公開日: 2025-11-22
-    -   視聴数: 109,448
-    -   **いいね数: 1,475**
-    -   出演者: 
+    -   視聴数: 122,359
+    -   **いいね数: 1,619**
+    -   出演者: [堀江貴文](/rehacq_fan/people/堀江貴文 "wikilink"), 竹内薫, 茂木健一郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/fAJzcvaEf3I/hqdefault.jpg)](https://www.youtube.com/watch?v=fAJzcvaEf3I)
 1.  [【権藤博vs森永康平】強い組織の作り方とは？38年振りの日本一に導いた凄腕マネージメント術【ReHacQ】](/rehacq_fan/ids/-lWF3zqKCXI "wikilink")
     -   公開日: 2025-11-22
-    -   視聴数: 15,424
-    -   **いいね数: 260**
-    -   出演者: 
+    -   視聴数: 16,599
+    -   **いいね数: 284**
+    -   出演者: [森永康平](/rehacq_fan/people/森永康平 "wikilink"), 権藤博
     - [![](https://img.youtube.com/vi/-lWF3zqKCXI/hqdefault.jpg)](https://www.youtube.com/watch?v=-lWF3zqKCXI)
 

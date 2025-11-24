@@ -3,4 +3,4 @@
 -   公開日: 2025-04-19
 -   視聴数: 714,934
 -   **いいね数: 6,200**
--   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), 森永康平
+-   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), [森永康平](/rehacq_fan/people/森永康平 "wikilink")
