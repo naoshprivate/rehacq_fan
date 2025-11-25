@@ -1,6 +1,6 @@
-### [【生配信】国民民主党・玉木代表定例会見 11月25日（火）【ReHacQ】](https://www.youtube.com/watch?v=d0ZuGPiNcGo)
+### [【生配信・国民民主党】総合経済対策「21.3兆円は誇張、減税項目は2点のみ」過大表現に苦言【ReHacQ記者会見 11月25日(火)】](https://www.youtube.com/watch?v=d0ZuGPiNcGo)
 [![](https://img.youtube.com/vi/d0ZuGPiNcGo/sddefault.jpg)](https://www.youtube.com/watch?v=d0ZuGPiNcGo)
 -   公開日: 2025-11-25
--   視聴数: 8,954
--   **いいね数: 126**
+-   視聴数: 9,312
+-   **いいね数: 131**
 -   出演者: 
