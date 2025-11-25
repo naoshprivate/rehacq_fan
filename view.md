@@ -92,7 +92,7 @@
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
-    -   視聴数: 1,829,665
+    -   視聴数: 1,829,761
     -   **いいね数: 23,707**
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
@@ -342,8 +342,8 @@
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs東出昌大】夏の夜！まったり雑談【アフリカ旅】](/rehacq_fan/ids/yfbTb_WzSTM "wikilink")
     -   公開日: 2023-08-20
-    -   視聴数: 1,108,561
-    -   **いいね数: 12,532**
+    -   視聴数: 1,108,893
+    -   **いいね数: 12,531**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
@@ -432,8 +432,8 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), 東浩紀
 1.  [【石丸伸二vsメディア】なぜ揉める？安芸高田市長と本音雑談【㊙︎ゲストも登場】](/rehacq_fan/ids/3rx30yJXsLs "wikilink")
     -   公開日: 2023-10-01
-    -   視聴数: 1,012,718
-    -   **いいね数: 15,586**
+    -   視聴数: 1,012,773
+    -   **いいね数: 15,587**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也が絶句】日本を停滞させた真の元凶とは...?トップエコノミストが暴露【ReHacQvs河野龍太郎】](/rehacq_fan/ids/QPmOX-9hDpY "wikilink")
     -   公開日: 2025-02-27
