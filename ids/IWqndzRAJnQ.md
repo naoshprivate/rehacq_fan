@@ -1,6 +1,6 @@
 ### [【Google賞金4.5億】睡眠革命！「朝型がいい」はウソ!?最新研究【柳沢正史】](https://www.youtube.com/watch?v=IWqndzRAJnQ)
 [![](https://img.youtube.com/vi/IWqndzRAJnQ/sddefault.jpg)](https://www.youtube.com/watch?v=IWqndzRAJnQ)
 -   公開日: 2023-11-07
--   視聴数: 2,103,122
--   **いいね数: 26,203**
+-   視聴数: 2,147,410
+-   **いいね数: 26,488**
 -   出演者: [柳沢正史](/rehacq_fan/people/柳沢正史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
