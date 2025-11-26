@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/zclxqZwBp5M/sddefault.jpg)](https://www.youtube.com/watch?v=zclxqZwBp5M)
 -   公開日: 2025-11-23
 -   視聴数: 194,971
--   **いいね数: 3,104**
+-   **いいね数: 3,125**
 -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), 角幡唯介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
