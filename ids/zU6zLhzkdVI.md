@@ -1,6 +1,6 @@
 ### [【藤井サチvs再生の道】東京都議選2025！代表者インタビュー【石丸伸二】](https://www.youtube.com/watch?v=zU6zLhzkdVI)
 [![](https://img.youtube.com/vi/zU6zLhzkdVI/sddefault.jpg)](https://www.youtube.com/watch?v=zU6zLhzkdVI)
 -   公開日: 2025-06-20
--   視聴数: 379,179
--   **いいね数: 17,310**
+-   視聴数: 379,330
+-   **いいね数: 17,309**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
