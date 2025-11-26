@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsスーツ】人生ってなんだろう？まったり雑談【ReHacQ生配信】](https://www.youtube.com/watch?v=C4Mo2hRnUac)
 [![](https://img.youtube.com/vi/C4Mo2hRnUac/sddefault.jpg)](https://www.youtube.com/watch?v=C4Mo2hRnUac)
 -   公開日: 2025-10-21
--   視聴数: 752,568
--   **いいね数: 10,342**
+-   視聴数: 757,278
+-   **いいね数: 10,383**
 -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
