@@ -1,6 +1,6 @@
-### [【高橋弘樹vs首相官邸クリエイター】電通エースが官邸に出向…なぜ辞めた？安倍・菅・岸田元総理に提言…東京モーターショーでの衝撃事件【ReHacQ】](https://www.youtube.com/watch?v=VSd-qIT5XMc)
+### [【安倍、菅、岸田総理を支えた男】衝撃告白！首相官邸クリエイティブディレクター…なぜ辞めた？電通の元エース【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=VSd-qIT5XMc)
 [![](https://img.youtube.com/vi/VSd-qIT5XMc/sddefault.jpg)](https://www.youtube.com/watch?v=VSd-qIT5XMc)
 -   公開日: 2025-11-27
--   視聴数: 11,535
--   **いいね数: 230**
+-   視聴数: 16,509
+-   **いいね数: 279**
 -   出演者: 
