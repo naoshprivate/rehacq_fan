@@ -1,6 +1,6 @@
 ### [【まったり緊急生配信】ReHacQから大切なお知らせ【石丸伸二vs高橋弘樹】](https://www.youtube.com/watch?v=zDAKjPXYH9g)
 [![](https://img.youtube.com/vi/zDAKjPXYH9g/sddefault.jpg)](https://www.youtube.com/watch?v=zDAKjPXYH9g)
 -   公開日: 2025-11-26
--   視聴数: 281,137
--   **いいね数: 10,071**
+-   視聴数: 285,155
+-   **いいね数: 10,153**
 -   出演者: 
