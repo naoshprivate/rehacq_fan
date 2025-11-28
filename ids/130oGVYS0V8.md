@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs元借金10億バックパッカー】理想の世界を作りたい！旅して目にした世界の現実とは？立憲民主党広報イチオシエースが参戦！【ReHacQvs川原田英世】](https://www.youtube.com/watch?v=130oGVYS0V8)
 [![](https://img.youtube.com/vi/130oGVYS0V8/sddefault.jpg)](https://www.youtube.com/watch?v=130oGVYS0V8)
 -   公開日: 2025-11-25
--   視聴数: 19,072
+-   視聴数: 19,078
 -   **いいね数: 140**
 -   出演者: 
