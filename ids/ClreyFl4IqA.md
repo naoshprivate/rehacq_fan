@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/ClreyFl4IqA/sddefault.jpg)](https://www.youtube.com/watch?v=ClreyFl4IqA)
 -   公開日: 2025-11-28
 -   視聴数: 1
--   **いいね数: 19**
+-   **いいね数: 26**
 -   出演者: 
