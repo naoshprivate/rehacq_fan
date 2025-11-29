@@ -1,6 +1,6 @@
 ### [【5年で資産1億円！天才投資家】元会社員が爆速で資産を増やした投資法とは？【ReHacQ】](https://www.youtube.com/watch?v=gcIr1IsHHVk)
 [![](https://img.youtube.com/vi/gcIr1IsHHVk/sddefault.jpg)](https://www.youtube.com/watch?v=gcIr1IsHHVk)
 -   公開日: 2025-08-14
--   視聴数: 124,332
--   **いいね数: 1,167**
+-   視聴数: 124,472
+-   **いいね数: 1,168**
 -   出演者: kenmo, みくかぶ

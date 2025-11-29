@@ -1,30 +1,30 @@
 1.  [【堀江貴文vs日本の教育】ホリエモン日本の教育に吠える！なぜ日本人は学ばなくなる？【ReHacQ高橋弘樹vs茂木健一郎vs竹内薫】](/rehacq_fan/ids/kPnYHyD2FfY "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 4
-    -   **いいね数: 13**
+    -   視聴数: 6,323
+    -   **いいね数: 214**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kPnYHyD2FfY/hqdefault.jpg)](https://www.youtube.com/watch?v=kPnYHyD2FfY)
 1.  [【一生モノの体力講座】90 代もできるカンタン 3 種目で最強の体づくり【田中渓&澤木一貴】](/rehacq_fan/ids/ClreyFl4IqA "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 13,250
-    -   **いいね数: 384**
+    -   視聴数: 14,721
+    -   **いいね数: 400**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/ClreyFl4IqA/hqdefault.jpg)](https://www.youtube.com/watch?v=ClreyFl4IqA)
 1.  [【円安はピーク？】米国信用不安 × 日本債券売り…転換点は“月末”か？【永濱利廣＆丸山義正＆森本智子】](/rehacq_fan/ids/iAJb6E4j1sY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 60,105
-    -   **いいね数: 608**
+    -   視聴数: 61,028
+    -   **いいね数: 612**
     -   出演者: 丸山義正, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/iAJb6E4j1sY/hqdefault.jpg)](https://www.youtube.com/watch?v=iAJb6E4j1sY)
 1.  [【中国vs国防】高市発言の波紋…中国人の本音vs日本の防衛とは？神保謙×周来友が激論！【ReHacQ戦場ジャーナリスト須賀川】](/rehacq_fan/ids/BoN67BM4xN0 "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 67,041
-    -   **いいね数: 684**
+    -   視聴数: 67,742
+    -   **いいね数: 683**
     -   出演者: 周来友, 神保謙, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/BoN67BM4xN0/hqdefault.jpg)](https://www.youtube.com/watch?v=BoN67BM4xN0)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 11月28日（金）【ReHacQ】](/rehacq_fan/ids/cBXJJTlMacY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 9,553
+    -   視聴数: 9,595
     -   **いいね数: 43**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/cBXJJTlMacY/hqdefault.jpg)](https://www.youtube.com/watch?v=cBXJJTlMacY)
