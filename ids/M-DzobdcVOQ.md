@@ -3,4 +3,4 @@
 -   公開日: 2025-11-19
 -   視聴数: 99,326
 -   **いいね数: 1,208**
--   出演者: 神谷俊一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [神谷俊一](/rehacq_fan/people/神谷俊一 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

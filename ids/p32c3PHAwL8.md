@@ -3,4 +3,4 @@
 -   公開日: 2025-11-24
 -   視聴数: 145,153
 -   **いいね数: 2,251**
--   出演者: 
+-   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東修平](/rehacq_fan/people/東修平 "wikilink"), [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink")
