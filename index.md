@@ -1,31 +1,31 @@
 # 最近の動画
 1.  [【堀江貴文vs日本の教育】ホリエモン日本の教育に吠える！なぜ日本人は学ばなくなる？【ReHacQ高橋弘樹vs茂木健一郎vs竹内薫】](/rehacq_fan/ids/kPnYHyD2FfY "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 6,323
-    -   **いいね数: 214**
+    -   視聴数: 12,524
+    -   **いいね数: 396**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kPnYHyD2FfY/hqdefault.jpg)](https://www.youtube.com/watch?v=kPnYHyD2FfY)
 1.  [【一生モノの体力講座】90 代もできるカンタン 3 種目で最強の体づくり【田中渓&澤木一貴】](/rehacq_fan/ids/ClreyFl4IqA "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 14,721
-    -   **いいね数: 400**
+    -   視聴数: 16,207
+    -   **いいね数: 420**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/ClreyFl4IqA/hqdefault.jpg)](https://www.youtube.com/watch?v=ClreyFl4IqA)
 1.  [【円安はピーク？】米国信用不安 × 日本債券売り…転換点は“月末”か？【永濱利廣＆丸山義正＆森本智子】](/rehacq_fan/ids/iAJb6E4j1sY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 61,028
-    -   **いいね数: 612**
+    -   視聴数: 61,929
+    -   **いいね数: 623**
     -   出演者: 丸山義正, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/iAJb6E4j1sY/hqdefault.jpg)](https://www.youtube.com/watch?v=iAJb6E4j1sY)
 1.  [【中国vs国防】高市発言の波紋…中国人の本音vs日本の防衛とは？神保謙×周来友が激論！【ReHacQ戦場ジャーナリスト須賀川】](/rehacq_fan/ids/BoN67BM4xN0 "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 67,742
-    -   **いいね数: 683**
+    -   視聴数: 68,476
+    -   **いいね数: 688**
     -   出演者: 周来友, 神保謙, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/BoN67BM4xN0/hqdefault.jpg)](https://www.youtube.com/watch?v=BoN67BM4xN0)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見 11月28日（金）【ReHacQ】](/rehacq_fan/ids/cBXJJTlMacY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 9,595
+    -   視聴数: 9,651
     -   **いいね数: 43**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/cBXJJTlMacY/hqdefault.jpg)](https://www.youtube.com/watch?v=cBXJJTlMacY)
@@ -34,8 +34,8 @@
 ## 最近の人気動画
 1.  [【高橋弘樹vs小泉進次郎】まったり緊急生配信！防衛大臣は何やっているんですか？【ReHacQ】](/rehacq_fan/ids/GyXP2lnWGiQ "wikilink")
     -   公開日: 2025-11-21
-    -   視聴数: 540,179
-    -   **いいね数: 14,984**
+    -   視聴数: 637,950
+    -   **いいね数: 16,185**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GyXP2lnWGiQ/hqdefault.jpg)](https://www.youtube.com/watch?v=GyXP2lnWGiQ)
 
@@ -52,27 +52,27 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 77, 視聴数: 8,306,316, いいね数: 136,274
+-   動画数: 77, 視聴数: 8,425,122, いいね数: 137,780
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,388,565, いいね数: 330,628
+-   動画数: 102, 視聴数: 22,388,606, いいね数: 330,629
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,667,420, いいね数: 265,696
+-   動画数: 87, 視聴数: 15,667,481, いいね数: 265,696
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,395,170, いいね数: 260,753
+-   動画数: 65, 視聴数: 14,395,832, いいね数: 260,760
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,829,084, いいね数: 361,525
+-   動画数: 76, 視聴数: 20,829,345, いいね数: 361,526
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,519,855, いいね数: 303,272
+-   動画数: 78, 視聴数: 16,520,817, いいね数: 303,272
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -148,19 +148,19 @@
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,286,665, いいね数: 142,757
+-   動画数: 25, 視聴数: 13,286,807, いいね数: 142,758
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,276,214, いいね数: 171,481
+-   動画数: 33, 視聴数: 12,276,584, いいね数: 171,489
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,442,874, いいね数: 86,483
+-   動画数: 27, 視聴数: 6,444,252, いいね数: 86,491
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,550,580, いいね数: 128,010
+-   動画数: 33, 視聴数: 11,551,819, いいね数: 128,012
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -183,4 +183,4 @@
 -   動画数: 14, 視聴数: 7,934,918, いいね数: 141,203
 
 ---
-2025-11-29 21:00
+2025-11-29 22:00
