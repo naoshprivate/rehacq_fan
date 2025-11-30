@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs本郷和人】東京大学史料編纂所の真実！歴史のわずか「３年」に研究者人生30年をかけた男【ReHacQ教養】](https://www.youtube.com/watch?v=uAIFFxmhEYg)
 [![](https://img.youtube.com/vi/uAIFFxmhEYg/sddefault.jpg)](https://www.youtube.com/watch?v=uAIFFxmhEYg)
 -   公開日: 2025-08-06
--   視聴数: 163,468
--   **いいね数: 2,557**
+-   視聴数: 164,600
+-   **いいね数: 2,567**
 -   出演者: 本郷和人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
