@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ひろゆきvs蓮舫】蓮舫ブチギレ？なぜ…税のムダは見直せる？【ReHacQ】](/rehacq_fan/ids/k0cjikBMNHI "wikilink")
+    -   公開日: 2025-11-30
+    -   視聴数: 3
+    -   **いいね数: 79**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/k0cjikBMNHI/hqdefault.jpg)](https://www.youtube.com/watch?v=k0cjikBMNHI)
+1.  [【高橋弘樹vs辞め電通】「既得権益側になりたくない」衝撃理由！首相官邸なぜ辞めた？総理3代の背中を見て学んだこととは？【ReHacQ】](/rehacq_fan/ids/bFCV4pm6pJY "wikilink")
+    -   公開日: 2025-11-30
+    -   視聴数: 9,332
+    -   **いいね数: 257**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/bFCV4pm6pJY/hqdefault.jpg)](https://www.youtube.com/watch?v=bFCV4pm6pJY)
 1.  [【堀江貴文vs日本の教育】ホリエモン日本の教育に吠える！なぜ日本人は学ばなくなる？【ReHacQ高橋弘樹vs茂木健一郎vs竹内薫】](/rehacq_fan/ids/kPnYHyD2FfY "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 101,280
-    -   **いいね数: 1,567**
+    -   視聴数: 138,567
+    -   **いいね数: 1,976**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kPnYHyD2FfY/hqdefault.jpg)](https://www.youtube.com/watch?v=kPnYHyD2FfY)
 1.  [【一生モノの体力講座】90 代もできるカンタン 3 種目で最強の体づくり【田中渓&澤木一貴】](/rehacq_fan/ids/ClreyFl4IqA "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 28,366
-    -   **いいね数: 635**
+    -   視聴数: 34,824
+    -   **いいね数: 756**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/ClreyFl4IqA/hqdefault.jpg)](https://www.youtube.com/watch?v=ClreyFl4IqA)
 1.  [【円安はピーク？】米国信用不安 × 日本債券売り…転換点は“月末”か？【永濱利廣＆丸山義正＆森本智子】](/rehacq_fan/ids/iAJb6E4j1sY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 69,666
-    -   **いいね数: 692**
+    -   視聴数: 73,856
+    -   **いいね数: 725**
     -   出演者: 丸山義正, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/iAJb6E4j1sY/hqdefault.jpg)](https://www.youtube.com/watch?v=iAJb6E4j1sY)
-1.  [【中国vs国防】高市発言の波紋…中国人の本音vs日本の防衛とは？神保謙×周来友が激論！【ReHacQ戦場ジャーナリスト須賀川】](/rehacq_fan/ids/BoN67BM4xN0 "wikilink")
-    -   公開日: 2025-11-28
-    -   視聴数: 73,812
-    -   **いいね数: 707**
-    -   出演者: 周来友, 神保謙, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
-    - [![](https://img.youtube.com/vi/BoN67BM4xN0/hqdefault.jpg)](https://www.youtube.com/watch?v=BoN67BM4xN0)
-1.  [【生配信・立憲民主党】立憲の台湾を巡る対中スタンスは⁉︎与党過半数確保について「緊張感変わらない」【ReHacQ記者会見 11月28日(金)】](/rehacq_fan/ids/cBXJJTlMacY "wikilink")
-    -   公開日: 2025-11-28
-    -   視聴数: 10,049
-    -   **いいね数: 44**
-    -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
-    - [![](https://img.youtube.com/vi/cBXJJTlMacY/hqdefault.jpg)](https://www.youtube.com/watch?v=cBXJJTlMacY)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -52,15 +52,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 77, 視聴数: 8,592,626, いいね数: 139,859
+-   動画数: 78, 視聴数: 8,678,998, いいね数: 140,894
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,393,574, いいね数: 330,656
+-   動画数: 102, 視聴数: 22,393,772, いいね数: 330,659
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,673,616, いいね数: 265,724
+-   動画数: 87, 視聴数: 15,674,408, いいね数: 265,720
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -104,19 +104,19 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,525,900, いいね数: 341,203
+-   動画数: 72, 視聴数: 22,532,484, いいね数: 341,211
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,654,478, いいね数: 220,833
+-   動画数: 50, 視聴数: 14,654,933, いいね数: 220,835
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,008,854, いいね数: 326,139
+-   動画数: 43, 視聴数: 20,009,525, いいね数: 326,149
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,833,929, いいね数: 290,865
+-   動画数: 44, 視聴数: 15,835,357, いいね数: 290,862
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -183,4 +183,4 @@
 -   動画数: 14, 視聴数: 7,938,525, いいね数: 141,198
 
 ---
-2025-11-30 13:00
+2025-11-30 20:00
