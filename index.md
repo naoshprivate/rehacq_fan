@@ -1,31 +1,31 @@
 # 最近の動画
 1.  [【堀江貴文vs日本の教育】ホリエモン日本の教育に吠える！なぜ日本人は学ばなくなる？【ReHacQ高橋弘樹vs茂木健一郎vs竹内薫】](/rehacq_fan/ids/kPnYHyD2FfY "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 95,038
-    -   **いいね数: 1,494**
+    -   視聴数: 101,280
+    -   **いいね数: 1,567**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kPnYHyD2FfY/hqdefault.jpg)](https://www.youtube.com/watch?v=kPnYHyD2FfY)
 1.  [【一生モノの体力講座】90 代もできるカンタン 3 種目で最強の体づくり【田中渓&澤木一貴】](/rehacq_fan/ids/ClreyFl4IqA "wikilink")
     -   公開日: 2025-11-29
-    -   視聴数: 27,315
-    -   **いいね数: 615**
+    -   視聴数: 28,366
+    -   **いいね数: 635**
     -   出演者: 澤木一貴, [田中渓](/rehacq_fan/people/田中渓 "wikilink")
     - [![](https://img.youtube.com/vi/ClreyFl4IqA/hqdefault.jpg)](https://www.youtube.com/watch?v=ClreyFl4IqA)
 1.  [【円安はピーク？】米国信用不安 × 日本債券売り…転換点は“月末”か？【永濱利廣＆丸山義正＆森本智子】](/rehacq_fan/ids/iAJb6E4j1sY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 69,178
-    -   **いいね数: 687**
+    -   視聴数: 69,666
+    -   **いいね数: 692**
     -   出演者: 丸山義正, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/iAJb6E4j1sY/hqdefault.jpg)](https://www.youtube.com/watch?v=iAJb6E4j1sY)
 1.  [【中国vs国防】高市発言の波紋…中国人の本音vs日本の防衛とは？神保謙×周来友が激論！【ReHacQ戦場ジャーナリスト須賀川】](/rehacq_fan/ids/BoN67BM4xN0 "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 73,360
-    -   **いいね数: 706**
+    -   視聴数: 73,812
+    -   **いいね数: 707**
     -   出演者: 周来友, 神保謙, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/BoN67BM4xN0/hqdefault.jpg)](https://www.youtube.com/watch?v=BoN67BM4xN0)
 1.  [【生配信・立憲民主党】立憲の台湾を巡る対中スタンスは⁉︎与党過半数確保について「緊張感変わらない」【ReHacQ記者会見 11月28日(金)】](/rehacq_fan/ids/cBXJJTlMacY "wikilink")
     -   公開日: 2025-11-28
-    -   視聴数: 10,046
+    -   視聴数: 10,049
     -   **いいね数: 44**
     -   出演者: [野田佳彦](/rehacq_fan/people/野田佳彦 "wikilink")
     - [![](https://img.youtube.com/vi/cBXJJTlMacY/hqdefault.jpg)](https://www.youtube.com/watch?v=cBXJJTlMacY)
@@ -52,15 +52,15 @@
 ## 時系列データ
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 77, 視聴数: 8,580,261, いいね数: 139,721
+-   動画数: 77, 視聴数: 8,592,626, いいね数: 139,859
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,393,568, いいね数: 330,656
+-   動画数: 102, 視聴数: 22,393,574, いいね数: 330,656
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,673,520, いいね数: 265,721
+-   動画数: 87, 視聴数: 15,673,616, いいね数: 265,724
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -68,7 +68,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,834,604, いいね数: 361,584
+-   動画数: 76, 視聴数: 20,835,104, いいね数: 361,589
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -104,7 +104,7 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,520,724, いいね数: 341,207
+-   動画数: 72, 視聴数: 22,525,900, いいね数: 341,203
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -183,4 +183,4 @@
 -   動画数: 14, 視聴数: 7,938,525, いいね数: 141,198
 
 ---
-2025-11-30 12:00
+2025-11-30 13:00
