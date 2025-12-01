@@ -82,8 +82,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26
-    -   視聴数: 2,077,436
-    -   **いいね数: 29,874**
+    -   視聴数: 2,110,361
+    -   **いいね数: 29,956**
     -   出演者: [高市早苗](/rehacq_fan/people/高市早苗 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
@@ -162,8 +162,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [横田一](/rehacq_fan/people/横田一 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs泉 前明石市長】172億はどこから？退任直前…赤裸々告白【市町村のやるべき事】](/rehacq_fan/ids/WyDR8GuPC_k "wikilink")
     -   公開日: 2023-05-06
-    -   視聴数: 1,464,691
-    -   **いいね数: 20,512**
+    -   視聴数: 1,464,739
+    -   **いいね数: 20,510**
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】毎年20%がクビ！激烈…エリート投資銀行の生存者とは？【ReHacQキャリア】](/rehacq_fan/ids/SEqkSNRqrUE "wikilink")
     -   公開日: 2025-01-06
@@ -442,8 +442,8 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆき「賠償金払う…」】なぜ今？踏み倒した賠償金…支払う日本縦断旅【ReHacQ】](/rehacq_fan/ids/18Lb1U5pt0k "wikilink")
     -   公開日: 2025-05-18
-    -   視聴数: 996,676
-    -   **いいね数: 9,583**
+    -   視聴数: 997,391
+    -   **いいね数: 9,588**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【なぜ日本は戦争をした？】終戦80年…大東亜戦争か太平洋戦争か…右派と左派の分断はなぜ？真の日本近現代史とは？【辻田真佐憲vsReHacQ高橋弘樹】](/rehacq_fan/ids/TRuYLYqTUDU "wikilink")
     -   公開日: 2025-08-09
