@@ -237,8 +237,8 @@
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【カルロス•ゴーン独占取材】日産に激怒！追浜閉鎖…元幹部への苦言…国外脱出の全貌とは？【ReHacQ須賀川拓】](/rehacq_fan/ids/loEb4IWVkAs "wikilink")
     -   公開日: 2025-08-07
-    -   視聴数: 1,029,052
-    -   **いいね数: 20,394**
+    -   視聴数: 1,030,128
+    -   **いいね数: 20,399**
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
