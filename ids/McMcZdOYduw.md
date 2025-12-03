@@ -1,6 +1,6 @@
 ### [【生配信】参政党・記者会見 12月3日（水）【ReHacQ】](https://www.youtube.com/watch?v=McMcZdOYduw)
 [![](https://img.youtube.com/vi/McMcZdOYduw/sddefault.jpg)](https://www.youtube.com/watch?v=McMcZdOYduw)
 -   公開日: 2025-12-03
--   視聴数: 34,098
--   **いいね数: 1,444**
+-   視聴数: 39,375
+-   **いいね数: 1,494**
 -   出演者: 
