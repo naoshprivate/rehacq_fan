@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs辞めフジテレビ】フジ・エースアナウンサーが電撃退社！退職後は仕事が0…なぜ？フジ問題渦中に退社の真相とは？【ReHacQ】](https://www.youtube.com/watch?v=XtMndTouq34)
 [![](https://img.youtube.com/vi/XtMndTouq34/sddefault.jpg)](https://www.youtube.com/watch?v=XtMndTouq34)
 -   公開日: 2025-12-03
--   視聴数: 27,335
--   **いいね数: 423**
+-   視聴数: 35,195
+-   **いいね数: 468**
 -   出演者: 
