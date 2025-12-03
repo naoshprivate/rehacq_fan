@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs東大教授】日本の格差はなぜ止まらない？ 市場が生む“見えない分断”とは？【ReHacQ教養】](https://www.youtube.com/watch?v=GDQfJXtbzsk)
 [![](https://img.youtube.com/vi/GDQfJXtbzsk/sddefault.jpg)](https://www.youtube.com/watch?v=GDQfJXtbzsk)
 -   公開日: 2025-12-03
--   視聴数: 12,037
--   **いいね数: 219**
+-   視聴数: 14,610
+-   **いいね数: 245**
 -   出演者: 
