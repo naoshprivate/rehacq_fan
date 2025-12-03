@@ -1,31 +1,31 @@
 1.  [【高橋弘樹vs立憲広報イチオシエース】衝撃告白！秘書時代に見た闇の「パーティー券」現場とは…北海道の再起！町は残存？集約？【ReHacQvs川原田英世】](/rehacq_fan/ids/qQqqsETeKTA "wikilink")
     -   公開日: 2025-12-02
-    -   視聴数: 23,695
-    -   **いいね数: 205**
+    -   視聴数: 24,709
+    -   **いいね数: 215**
     -   出演者: 川原田英世, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/qQqqsETeKTA/hqdefault.jpg)](https://www.youtube.com/watch?v=qQqqsETeKTA)
 1.  [【利上げ決断か？】日銀・植田総裁動く…Xデーは12月19日？【前田和馬＆宮嶋貴之＆森本智子】](/rehacq_fan/ids/zjrNcOendmc "wikilink")
     -   公開日: 2025-12-02
-    -   視聴数: 28,696
-    -   **いいね数: 233**
+    -   視聴数: 29,147
+    -   **いいね数: 235**
     -   出演者: 前田和馬, 宮嶋貴之, [森本智子](/rehacq_fan/people/森本智子 "wikilink")
     - [![](https://img.youtube.com/vi/zjrNcOendmc/hqdefault.jpg)](https://www.youtube.com/watch?v=zjrNcOendmc)
 1.  [【生配信】国民民主党・玉木代表定例会見 12月02日（火）【ReHacQ】](/rehacq_fan/ids/RgnwpEBAK18 "wikilink")
     -   公開日: 2025-12-02
-    -   視聴数: 13,225
-    -   **いいね数: 185**
+    -   視聴数: 13,299
+    -   **いいね数: 186**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/RgnwpEBAK18/hqdefault.jpg)](https://www.youtube.com/watch?v=RgnwpEBAK18)
 1.  [【言論統制vs安全保障】防衛か挑発か？中国の内側と外側…阿古東大教授・莫邦富が激論【ReHacQ戦場ジャーナリスト須賀川】](/rehacq_fan/ids/fiHhkSBjYE0 "wikilink")
     -   公開日: 2025-12-01
-    -   視聴数: 60,681
-    -   **いいね数: 649**
+    -   視聴数: 60,955
+    -   **いいね数: 654**
     -   出演者: 莫邦富, 阿古智子, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/fiHhkSBjYE0/hqdefault.jpg)](https://www.youtube.com/watch?v=fiHhkSBjYE0)
 1.  [【東出昌大vs角幡唯介】「諦めてきたものがある」衝撃告白！極地探検家が陥る中年の危機とは？東出「旅をしなくなってきた...」なぜ？【ReHacQ高橋弘樹】](/rehacq_fan/ids/fI9MWqFyl3s "wikilink")
     -   公開日: 2025-12-01
-    -   視聴数: 131,375
-    -   **いいね数: 1,974**
+    -   視聴数: 132,650
+    -   **いいね数: 1,991**
     -   出演者: [東出昌大](/rehacq_fan/people/東出昌大 "wikilink"), 角幡唯介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/fI9MWqFyl3s/hqdefault.jpg)](https://www.youtube.com/watch?v=fI9MWqFyl3s)
 
