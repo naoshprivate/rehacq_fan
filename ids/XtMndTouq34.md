@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/XtMndTouq34/sddefault.jpg)](https://www.youtube.com/watch?v=XtMndTouq34)
 -   公開日: 2025-12-03
 -   視聴数: 1
--   **いいね数: 1**
+-   **いいね数: 14**
 -   出演者: 
