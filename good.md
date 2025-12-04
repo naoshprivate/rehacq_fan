@@ -402,8 +402,8 @@
     -   出演者: [辻田真佐憲](/rehacq_fan/people/辻田真佐憲 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【彦根市長・石丸伸二の事件簿①】藤井サチが禁句…「嬉しかったですか？」【面白すぎる彦根城】](/rehacq_fan/ids/0p6zOpzlS34 "wikilink")
     -   公開日: 2024-08-11
-    -   視聴数: 806,256
-    -   **いいね数: 16,086**
+    -   視聴数: 806,405
+    -   **いいね数: 16,089**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【東出昌大vs石丸伸二】幸せとは？キャリア捨て…異質な道選んだ2人の幸福論！ちょいズレキャリア塾【ReHacQ高橋弘樹】](/rehacq_fan/ids/K-27iBFVXfo "wikilink")
     -   公開日: 2025-03-08
