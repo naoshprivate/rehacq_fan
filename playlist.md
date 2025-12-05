@@ -1803,8 +1803,8 @@
 # プレイリスト (140): ライブ
 1.  [【生配信・参政党】和田政宗元参院議員 参政党政調会長補佐に就任へ「神谷代表の言葉が心を動かした」【ReHacQ記者会見 12月03日(水)】](/rehacq_fan/ids/McMcZdOYduw "wikilink")
     -   公開日: 2025-12-03
-    -   視聴数: 54,424
-    -   **いいね数: 1,636**
+    -   視聴数: 54,716
+    -   **いいね数: 1,638**
     -   出演者: 
 1.  [【生配信】参政党・記者会見 9月8日（月）【ReHacQ】](/rehacq_fan/ids/wfxy8kaWJY0 "wikilink")
     -   公開日: 2025-09-08
@@ -1853,8 +1853,8 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ReHacQ生配信】大激論！平成生まれの議員で...日本の未来話し合ってみた【立憲・水沼秀幸vs国民・森ようすけvs維新・新実彰平vs自民・大空幸空vsみらい・安野貴博】](/rehacq_fan/ids/uWcy3kCV-3E "wikilink")
     -   公開日: 2025-08-06
-    -   視聴数: 335,183
-    -   **いいね数: 5,157**
+    -   視聴数: 335,809
+    -   **いいね数: 5,158**
     -   出演者: にいみ彰平, 大空こうき, [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink"), 森ようすけ, 水沼ひでゆき
 1.  [【国民民主党&維新&日本保守党】初当選！国会で何やるんですか？【山田吉彦&新実彰平&北村晴男&ReHacQ高橋弘樹】](/rehacq_fan/ids/AcxQZHnuzMc "wikilink")
     -   公開日: 2025-08-02
@@ -3764,128 +3764,128 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 黒岩祐治
 1.  [【ひろゆきvsMIT】どうする円安時代!?日本での働き方と幸せになるには【ボビーvs安野貴博】](/rehacq_fan/ids/H5IVSMGIoyg "wikilink")
     -   公開日: 2024-08-30
-    -   視聴数: 577,480
-    -   **いいね数: 7,483**
+    -   視聴数: 577,690
+    -   **いいね数: 7,482**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ボビーオロゴン, [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), 菊池信之介
 1.  [【ひろゆきvs斎藤幸平②】共演NGの２人…リベラルの本質とは？【リハックマ感動】](/rehacq_fan/ids/VTG4_sQ-QvM "wikilink")
     -   公開日: 2024-08-23
-    -   視聴数: 502,919
-    -   **いいね数: 8,656**
+    -   視聴数: 504,385
+    -   **いいね数: 8,678**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvsボビーオロゴン】「テレ東に珍しい円満退社」！テレビ辞め…海外へ通貨上場！【安野貴博】](/rehacq_fan/ids/1Zaz_fCpfPY "wikilink")
     -   公開日: 2024-08-19
-    -   視聴数: 267,032
-    -   **いいね数: 2,746**
+    -   視聴数: 267,165
+    -   **いいね数: 2,747**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink")
 1.  [【ひろゆきvs斎藤幸平】絶対NG！リベラルの真の敵は誰？【東京大学准教授・マルクス主義者】](/rehacq_fan/ids/gpoohY5z6MI "wikilink")
     -   公開日: 2024-08-16
-    -   視聴数: 1,426,245
-    -   **いいね数: 13,484**
+    -   視聴数: 1,432,928
+    -   **いいね数: 13,517**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs泉房穂】財務省に政治家が勝てぬ訳【石丸伸二についても激論】](/rehacq_fan/ids/9458J_0AOB8 "wikilink")
     -   公開日: 2024-08-12
-    -   視聴数: 320,363
-    -   **いいね数: 3,376**
+    -   視聴数: 320,425
+    -   **いいね数: 3,377**
     -   出演者: [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvsボビー・オロゴン】一夫多妻制？男女平等のあり方…アフリカから見た「滑稽な日本」論【リテラシー持ってご覧ください】](/rehacq_fan/ids/wL9l_wH2yk4 "wikilink")
     -   公開日: 2024-08-11
-    -   視聴数: 828,152
-    -   **いいね数: 12,968**
+    -   視聴数: 828,631
+    -   **いいね数: 12,971**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), ボビーオロゴン
 1.  [【ひろゆきvsボビー・オロゴン】兄弟34人！父のスパルタ教育とは？【ガチの一夫多妻制】](/rehacq_fan/ids/hvJ0lBxFILU "wikilink")
     -   公開日: 2024-08-04
-    -   視聴数: 1,061,162
-    -   **いいね数: 15,969**
+    -   視聴数: 1,061,995
+    -   **いいね数: 15,974**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆきvs泉房穂】「泉代表は…」立憲民主党の課題とは？【電話一本で大串博志】](/rehacq_fan/ids/nPmeOleX-6g "wikilink")
     -   公開日: 2024-07-28
-    -   視聴数: 171,285
+    -   視聴数: 171,295
     -   **いいね数: 1,605**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 大串博志, [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvs立憲民主党】石丸伸二をどう分析？都知事選の責任者が激白【泉房穂vs大串博志】](/rehacq_fan/ids/aH2KwXtn3kk "wikilink")
     -   公開日: 2024-07-21
-    -   視聴数: 406,247
+    -   視聴数: 406,256
     -   **いいね数: 3,274**
     -   出演者: [泉房穂](/rehacq_fan/people/泉房穂 "wikilink")
 1.  [【ひろゆきvsデヴィ夫人】腑抜け！政治家に激怒したワケ【緊迫議論】](/rehacq_fan/ids/HdeI6hcv7JA "wikilink")
     -   公開日: 2024-06-30
-    -   視聴数: 647,889
-    -   **いいね数: 10,786**
+    -   視聴数: 648,123
+    -   **いいね数: 10,785**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【ひろゆきvsデヴィ夫人】激怒‥国家観なき政治家は去れ？！ガチ放談【リハックマ】](/rehacq_fan/ids/XJbgK1m8j2Q "wikilink")
     -   公開日: 2024-06-23
-    -   視聴数: 2,057,554
-    -   **いいね数: 23,203**
+    -   視聴数: 2,058,400
+    -   **いいね数: 23,207**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
 1.  [【ひろゆきvs島田秀平】話術がすべて！怪談師の引込む話し方【リハックマ】](/rehacq_fan/ids/9UVvD82zjas "wikilink")
     -   公開日: 2024-06-16
-    -   視聴数: 228,982
-    -   **いいね数: 4,225**
+    -   視聴数: 229,265
+    -   **いいね数: 4,230**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 島田秀平
 1.  [【ひろゆきvs島田秀平】「占いの真実」とは？…手相の裏側【リハックマ…占い結果に愕然】](/rehacq_fan/ids/DQc_3si6xLU "wikilink")
     -   公開日: 2024-06-08
-    -   視聴数: 600,667
-    -   **いいね数: 6,981**
+    -   視聴数: 601,390
+    -   **いいね数: 6,993**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【ひろゆきvs川邊健太郎】大炎上！ネット世論はどこへ？【松本人志問題vs川上量生】](/rehacq_fan/ids/RbPcci9CocU "wikilink")
     -   公開日: 2024-05-11
-    -   視聴数: 213,629
+    -   視聴数: 213,664
     -   **いいね数: 2,091**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink")
 1.  [【小西洋之vs 音喜多駿】立憲と維新！生でガチ議論【リハックマvs西田亮介】](/rehacq_fan/ids/3OxEiAdoKJc "wikilink")
     -   公開日: 2024-05-07
-    -   視聴数: 203,421
-    -   **いいね数: 1,547**
+    -   視聴数: 203,510
+    -   **いいね数: 1,548**
     -   出演者: 
 1.  [【ひろゆきvs川邊健太郎vs川上量生】ネット炎上！プラットフォームの責任者座談会【LINEヤフーvsニコ動vs２ちゃんねる】](/rehacq_fan/ids/uB4BGvhrdY "wikilink")
     -   公開日: 2024-05-05
-    -   視聴数: 175,911
+    -   視聴数: 175,963
     -   **いいね数: 2,189**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [川邊健太郎](/rehacq_fan/people/川邊健太郎 "wikilink")
 1.  [【ひろゆきvs日本維新の会】馬場伸幸は総理の器か？ガチ激論【西田亮介&高橋弘樹】](/rehacq_fan/ids/2SncrbObhq4 "wikilink")
     -   公開日: 2024-04-14
-    -   視聴数: 197,994
-    -   **いいね数: 1,945**
+    -   視聴数: 198,029
+    -   **いいね数: 1,944**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink")
 1.  [【ひろゆきvs日本維新】馬場代表、ガチ激論！万博は？政治と金は？【西田亮介】](/rehacq_fan/ids/qlp63A4R5a4 "wikilink")
     -   公開日: 2024-04-11
-    -   視聴数: 260,804
+    -   視聴数: 260,843
     -   **いいね数: 2,232**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】戦犯は誰だ！自民党長期政権許した野党とは！【維新•馬場代表が乱入】](/rehacq_fan/ids/WIaZ1hhnWRU "wikilink")
     -   公開日: 2024-04-07
-    -   視聴数: 429,910
+    -   視聴数: 429,989
     -   **いいね数: 4,209**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [馬場伸幸](/rehacq_fan/people/馬場伸幸 "wikilink")
 1.  [【ひろゆきvs玉木雄一郎】立憲民主党と共闘あるか？東京15区の混乱はなぜ？【乙武・アンジャッシュ渡部…誤爆】](/rehacq_fan/ids/9fb7xGatFGA "wikilink")
     -   公開日: 2024-03-31
-    -   視聴数: 634,417
+    -   視聴数: 634,496
     -   **いいね数: 6,251**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs太田房江】岸田総理と木原誠二さんが…裏側暴露！自民党・政治と金改革【西田亮介】](/rehacq_fan/ids/-9sAy5kOyKA "wikilink")
     -   公開日: 2024-03-25
-    -   視聴数: 310,634
-    -   **いいね数: 3,333**
+    -   視聴数: 310,715
+    -   **いいね数: 3,332**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [太田房江](/rehacq_fan/people/太田房江 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs自民党】決意の激白！自民党を変えるには？太田房江【西田亮介びっくり】](/rehacq_fan/ids/EVu6KxgwPXo "wikilink")
     -   公開日: 2024-03-18
-    -   視聴数: 185,341
+    -   視聴数: 185,358
     -   **いいね数: 1,858**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [太田房江](/rehacq_fan/people/太田房江 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【ひろゆきvs検察】正義とは何か？世論で逮捕、有罪なワケ【悲しいトカゲの尻尾切り】](/rehacq_fan/ids/8p2Sis0p1vI "wikilink")
     -   公開日: 2024-02-05
-    -   視聴数: 206,858
+    -   視聴数: 206,911
     -   **いいね数: 2,484**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 郷原信郎
 1.  [【ひろゆきvs郷原信郎】検察の裏…安倍派裏金事件の真相とは？【西田亮介】](/rehacq_fan/ids/FY7omsAJpf8 "wikilink")
     -   公開日: 2024-01-29
-    -   視聴数: 323,471
+    -   視聴数: 323,493
     -   **いいね数: 3,728**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), 郷原信郎
 1.  [【ひろゆきvs自民党】罰則が必要!?政治と金【なぜ逮捕されない？】](/rehacq_fan/ids/Mi_sfW6lH4E "wikilink")
     -   公開日: 2024-01-14
-    -   視聴数: 238,248
-    -   **いいね数: 2,426**
+    -   視聴数: 238,274
+    -   **いいね数: 2,427**
     -   出演者: 萱野稔人
 1.  [【ひろゆきvs石破茂】緊急参戦！自民党と金…なぜ？【萱野稔人】](/rehacq_fan/ids/amYtP_ij2ms "wikilink")
     -   公開日: 2024-01-07
