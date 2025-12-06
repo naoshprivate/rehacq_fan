@@ -3,4 +3,4 @@
 -   公開日: 2025-09-05
 -   視聴数: 83,209
 -   **いいね数: 1,382**
--   出演者: 前田雄大, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [前田雄大](/rehacq_fan/people/前田雄大 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

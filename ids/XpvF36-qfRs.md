@@ -3,4 +3,4 @@
 -   公開日: 2025-09-18
 -   視聴数: 55,840
 -   **いいね数: 1,006**
--   出演者: 国光あやの, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [国光あやの](/rehacq_fan/people/国光あやの "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
