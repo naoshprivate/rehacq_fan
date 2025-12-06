@@ -171,8 +171,8 @@
     -   出演者: [平将明](/rehacq_fan/people/平将明 "wikilink"), [松尾豊](/rehacq_fan/people/松尾豊 "wikilink")
 1.  [【無所属連合vs高橋弘樹】無所属連合代表にNG無し質問！【ReHacQvsうつみさとる】](/rehacq_fan/ids/fABllBX-34 "wikilink")
     -   公開日: 2025-07-13
-    -   視聴数: 184,311
-    -   **いいね数: 6,830**
+    -   視聴数: 184,326
+    -   **いいね数: 6,828**
     -   出演者: うつみさとる, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】再生の道にNG無し質問！※本編は30:31~になります【ReHacQvs再生の道】](/rehacq_fan/ids/KihRlwlSPCI "wikilink")
     -   公開日: 2025-07-12
@@ -591,22 +591,22 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ReHacQ VS 就職氷河期世代支援】年金貰えないは本当か？支援の必要性はデータを基に検討せよ！【海老原嗣生vs永濱利廣】](/rehacq_fan/ids/CDQkiBIi5q8 "wikilink")
     -   公開日: 2025-05-12
-    -   視聴数: 149,974
-    -   **いいね数: 1,746**
+    -   視聴数: 150,047
+    -   **いいね数: 1,747**
     -   出演者: [海老原嗣生](/rehacq_fan/people/海老原嗣生 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [S＆P500とオルカンだけは危険？トリプル安に惑わされるな、新たな選択肢オルタナティブ投資とは？](/rehacq_fan/ids/ew0Qj-tINYE "wikilink")
     -   公開日: 2025-05-11
-    -   視聴数: 44,405
+    -   視聴数: 44,414
     -   **いいね数: 320**
     -   出演者: [横川楓](/rehacq_fan/people/横川楓 "wikilink"), 河北博光
 1.  [【テスタVS節約オタクふゆこ】資産1億円を目指す戦略とは？100億円稼ぐ天才投資家に習う投資法_個別株/インデックス/デイトレ/S&P500【ReHacQ】](/rehacq_fan/ids/kTNPEvtN-rw "wikilink")
     -   公開日: 2025-05-10
-    -   視聴数: 484,178
-    -   **いいね数: 5,087**
+    -   視聴数: 486,184
+    -   **いいね数: 5,106**
     -   出演者: [ふゆこ](/rehacq_fan/people/ふゆこ "wikilink"), [テスタ](/rehacq_fan/people/テスタ "wikilink")
 1.  [【マーケット総括】トヨタ決算に注目集まる中…米関税交渉に進展は？【肉乃小路ニクヨvs永濱利廣vs森本智子】](/rehacq_fan/ids/akRF38q112M "wikilink")
     -   公開日: 2025-05-09
-    -   視聴数: 59,672
+    -   視聴数: 59,683
     -   **いいね数: 911**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), [肉乃小路ニクヨ](/rehacq_fan/people/肉乃小路ニクヨ "wikilink")
 1.  [【成田修造vs川上量生】日本教育の失敗！？受験勉強は必要か？【ZEN大学vsHR高等学院】](/rehacq_fan/ids/C35yDssKRyA "wikilink")
@@ -1803,8 +1803,8 @@
 # プレイリスト (140): ライブ
 1.  [【生配信・参政党】和田政宗元参院議員 参政党政調会長補佐に就任へ「神谷代表の言葉が心を動かした」【ReHacQ記者会見 12月03日(水)】](/rehacq_fan/ids/McMcZdOYduw "wikilink")
     -   公開日: 2025-12-03
-    -   視聴数: 55,551
-    -   **いいね数: 1,644**
+    -   視聴数: 55,611
+    -   **いいね数: 1,645**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink")
 1.  [【生配信】参政党・記者会見 9月8日（月）【ReHacQ】](/rehacq_fan/ids/wfxy8kaWJY0 "wikilink")
     -   公開日: 2025-09-08
@@ -3594,8 +3594,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), 林下清志
 1.  [【ひろゆきvs埼玉県知事】激論！埼玉は住みやすい？魅力を引き出す秘策とは？【ReHacQ高橋弘樹vs斎藤幸平】](/rehacq_fan/ids/ioJUyuvTb6k "wikilink")
     -   公開日: 2025-07-05
-    -   視聴数: 174,532
-    -   **いいね数: 2,137**
+    -   視聴数: 174,719
+    -   **いいね数: 2,139**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 大野元裕, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs埼玉県知事】クルド人問題…埼玉の未来…人口減少どうする？大野元裕が激白【ReHacQ高橋弘樹vs斎藤幸平】](/rehacq_fan/ids/P4fSrMP3Kcc "wikilink")
     -   公開日: 2025-06-29
@@ -4241,102 +4241,102 @@
     -   出演者: 福田浩士
 1.  [【ReHacQvsインド②】日本の人材不足を救う秘策【賃金に影響!?】](/rehacq_fan/ids/yQUc5qvwqhc "wikilink")
     -   公開日: 2024-03-12
-    -   視聴数: 22,903
+    -   視聴数: 22,904
     -   **いいね数: 338**
     -   出演者: 片桐常弥, 鈴木隆史, [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
 1.  [【東大の天才vsReHacQ】ChatGPTの裏技！AI使うコツは「洗脳」【最新論文】](/rehacq_fan/ids/pE_A6X6sgoY "wikilink")
     -   公開日: 2024-03-05
-    -   視聴数: 46,719
+    -   視聴数: 46,720
     -   **いいね数: 613**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvsインド】ANAとジェトロはインドで何を企てている！？【人材獲得競争が勃発】](/rehacq_fan/ids/BuVEkvDyKHk "wikilink")
     -   公開日: 2024-03-05
-    -   視聴数: 36,186
+    -   視聴数: 36,194
     -   **いいね数: 599**
     -   出演者: 片桐常弥, 鈴木隆史, [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
 1.  [【Google &東大松尾研の天才】ガチ議論！AI使いこなす裏技とは？【プロンプト入門】](/rehacq_fan/ids/MblAcX9u9s0 "wikilink")
     -   公開日: 2024-02-29
-    -   視聴数: 81,839
+    -   視聴数: 81,843
     -   **いいね数: 1,295**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQvs東京大学】超AI時代到来！人間を超えた人工知能で未来はどうなる？【ひろゆきもびっくり・AI松尾研】](/rehacq_fan/ids/7OfuqX0WAag "wikilink")
     -   公開日: 2024-02-27
-    -   視聴数: 100,923
+    -   視聴数: 100,973
     -   **いいね数: 2,060**
     -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【松尾豊も大注目】生成AIでホワイトカラーの仕事が激変？【ひろゆきも仰天】](/rehacq_fan/ids/rtQfoUSt1o4 "wikilink")
     -   公開日: 2024-02-13
-    -   視聴数: 215,401
-    -   **いいね数: 2,529**
+    -   視聴数: 215,491
+    -   **いいね数: 2,531**
     -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スイーツ業界に革命】リアル店舗とECサイトを繋ぐ経営戦略とは？【ライバルなし】](/rehacq_fan/ids/IZBQjtHYAj0 "wikilink")
     -   公開日: 2024-01-29
-    -   視聴数: 18,976
+    -   視聴数: 18,979
     -   **いいね数: 254**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 髙橋優貴
 1.  [【異業界への挑戦】日本最大級！ケーキ通販サイトの運用術【Cake.jp】](/rehacq_fan/ids/dgomaWAZtyQ "wikilink")
     -   公開日: 2024-01-22
-    -   視聴数: 28,027
+    -   視聴数: 28,030
     -   **いいね数: 303**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 髙橋優貴
 1.  [【超入門ChatGPT】ビジネス活用術＆AIで変わる未来【オリジナルChatGPTが誰でも作れる「GPTs」とは？】](/rehacq_fan/ids/Yz_ONELr2Ps "wikilink")
     -   公開日: 2024-01-15
-    -   視聴数: 61,126
+    -   視聴数: 61,127
     -   **いいね数: 863**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【ChatGPT活用大全】イチから分かる生成AI入門【スペシャリストが使い方伝授】](/rehacq_fan/ids/9_R9seBxytw "wikilink")
     -   公開日: 2024-01-08
-    -   視聴数: 107,371
+    -   視聴数: 107,376
     -   **いいね数: 1,529**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【創業５年半で上場】急成長支える驚異の企業文化とは？【平均年齢20代の人材活用術】](/rehacq_fan/ids/5eAZ_0__FP4 "wikilink")
     -   公開日: 2024-01-03
-    -   視聴数: 89,412
+    -   視聴数: 89,438
     -   **いいね数: 1,259**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [片石貴](/rehacq_fan/people/片石貴 "wikilink")
 1.  [【AI×自動運転】開発の裏側を公開！自動運転事業5つの柱とは？【加藤真平】](/rehacq_fan/ids/q0k0hRhFEGQ "wikilink")
     -   公開日: 2023-12-22
-    -   視聴数: 62,170
-    -   **いいね数: 1,065**
+    -   視聴数: 62,208
+    -   **いいね数: 1,066**
     -   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔の飲み友達】東大准教授の安泰捨て…起業のワケ【真のユニコーン目指す】](/rehacq_fan/ids/m7KwPX9J0l4 "wikilink")
     -   公開日: 2023-12-15
-    -   視聴数: 100,346
+    -   視聴数: 100,361
     -   **いいね数: 1,360**
     -   出演者: 加藤真平, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【Z世代投資家】社会課題をビジネスで解決できるワケ【京都で起業のメリットとは？】](/rehacq_fan/ids/lIck3irpps4 "wikilink")
     -   公開日: 2023-12-11
-    -   視聴数: 37,540
+    -   視聴数: 37,559
     -   **いいね数: 540**
     -   出演者: 中村多伽, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【京大在学中に起業】社会課題解決のプレーヤー増やす壮大な試み【最年少女性代表】](/rehacq_fan/ids/ZeyIx8lWgzw "wikilink")
     -   公開日: 2023-12-04
-    -   視聴数: 39,637
+    -   視聴数: 39,649
     -   **いいね数: 628**
     -   出演者: 中村多伽, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ユニクロ執行役員】最年少で出世！ビジネスパーソンのための問題解決術【柳井正の側近】](/rehacq_fan/ids/03VeCNQwcIk "wikilink")
     -   公開日: 2023-11-27
-    -   視聴数: 58,494
+    -   視聴数: 58,503
     -   **いいね数: 936**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 神保拓也
 1.  [【元ユニクロ執行役員】けんすう驚愕！無料悩み相談ビジネス【トーチングとは？】](/rehacq_fan/ids/eP_PrxokPI4 "wikilink")
     -   公開日: 2023-11-20
-    -   視聴数: 52,974
+    -   視聴数: 52,978
     -   **いいね数: 701**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 神保拓也
 1.  [【成田悠輔のガチ親友】ハーバードと東大！違いとは？【けんすう衝撃】](/rehacq_fan/ids/uf0IWgWW2Rk "wikilink")
     -   公開日: 2023-11-13
-    -   視聴数: 60,363
+    -   視聴数: 60,366
     -   **いいね数: 870**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小林亮介
 1.  [【成田悠輔のガチ友人】ハーバード式！世界で戦うための教育法【下北沢駅前で小田急と寮運営】](/rehacq_fan/ids/9mJ_1UwSxDs "wikilink")
     -   公開日: 2023-11-06
-    -   視聴数: 83,034
+    -   視聴数: 83,043
     -   **いいね数: 1,151**
     -   出演者: [けんすう](/rehacq_fan/people/けんすう "wikilink"), [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小林亮介
 1.  [【ビルゲイツ財団ともコラボ】デジタル民主主義って何？【政治変革の新手法】](/rehacq_fan/ids/hPVhHPK8Jb8 "wikilink")
     -   公開日: 2023-10-16
-    -   視聴数: 34,919
+    -   視聴数: 34,926
     -   **いいね数: 514**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 伊藤和真, [成田修造](/rehacq_fan/people/成田修造 "wikilink")
 1.  [【成田修造vs24歳社会起業家】国民と政治家つなげるプラットフォーム【行政の新たな仕組みどう作る？】](/rehacq_fan/ids/FDjEZ0hUJaA "wikilink")
