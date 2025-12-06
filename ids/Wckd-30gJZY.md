@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs辞めマッキンゼー】東大卒グローバルエリートが衝撃退社...なぜ？エボラ緊急対策リーダー務め、3大感染症の終息に挑むワケとは？【ReHacQ】](https://www.youtube.com/watch?v=Wckd-30gJZY)
 [![](https://img.youtube.com/vi/Wckd-30gJZY/sddefault.jpg)](https://www.youtube.com/watch?v=Wckd-30gJZY)
 -   公開日: 2025-11-15
--   視聴数: 66,000
--   **いいね数: 794**
+-   視聴数: 66,829
+-   **いいね数: 812**
 -   出演者: 馬渕俊介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
