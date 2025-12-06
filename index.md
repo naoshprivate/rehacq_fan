@@ -1,32 +1,32 @@
 # 最近の動画
-1.  [【ReHacQ討論会】伊東市長選ネット討論会 【高橋弘樹】](/rehacq_fan/ids/Of2eOvmxXQU "wikilink")
-    -   公開日: 2025-12-06
-    -   視聴数: 15,705
-    -   **いいね数: 326**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/Of2eOvmxXQU/hqdefault.jpg)](https://www.youtube.com/watch?v=Of2eOvmxXQU)
 1.  [【ひろゆきvs蓮舫②】地方の政治の闇暴露…公開されない謎の金とは…【ReHacQ高橋弘樹vs西田尚史】](/rehacq_fan/ids/iSSGz-HdJ5w "wikilink")
     -   公開日: 2025-12-06
     -   視聴数: 1
-    -   **いいね数: 6**
+    -   **いいね数: 16**
     -   出演者: 
     - [![](https://img.youtube.com/vi/iSSGz-HdJ5w/hqdefault.jpg)](https://www.youtube.com/watch?v=iSSGz-HdJ5w)
+1.  [【ReHacQ討論会】伊東市長選ネット討論会 【高橋弘樹】](/rehacq_fan/ids/Of2eOvmxXQU "wikilink")
+    -   公開日: 2025-12-06
+    -   視聴数: 23,287
+    -   **いいね数: 473**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Of2eOvmxXQU/hqdefault.jpg)](https://www.youtube.com/watch?v=Of2eOvmxXQU)
 1.  [【国光外務副大臣x西田亮介】「黙って投資しろ」から考える外交コミュニケーションの“面”と“裏”【太ひでし＆前田雄大＆ReHacQ須賀川】](/rehacq_fan/ids/oY234Hm49MI "wikilink")
     -   公開日: 2025-12-05
-    -   視聴数: 45,488
-    -   **いいね数: 487**
+    -   視聴数: 46,532
+    -   **いいね数: 506**
     -   出演者: [前田雄大](/rehacq_fan/people/前田雄大 "wikilink"), [国光あやの](/rehacq_fan/people/国光あやの "wikilink"), 太ひでし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/oY234Hm49MI/hqdefault.jpg)](https://www.youtube.com/watch?v=oY234Hm49MI)
 1.  [【“成長投資”の行方】高市政権の財政拡張と円安の“核心”を総点検！【馬渕磨理子＆藤代宏一＆会田卓司 】](/rehacq_fan/ids/8ReLC1lA548 "wikilink")
     -   公開日: 2025-12-05
-    -   視聴数: 35,293
-    -   **いいね数: 585**
+    -   視聴数: 35,898
+    -   **いいね数: 599**
     -   出演者: 会田卓司, [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
     - [![](https://img.youtube.com/vi/8ReLC1lA548/hqdefault.jpg)](https://www.youtube.com/watch?v=8ReLC1lA548)
 1.  [【生配信】公明党・斉藤鉄夫代表 定例記者会見　12月5日（金）【ReHacQ】](/rehacq_fan/ids/-G9hGQY9ewQ "wikilink")
     -   公開日: 2025-12-05
-    -   視聴数: 8,526
-    -   **いいね数: 295**
+    -   視聴数: 8,568
+    -   **いいね数: 296**
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
     - [![](https://img.youtube.com/vi/-G9hGQY9ewQ/hqdefault.jpg)](https://www.youtube.com/watch?v=-G9hGQY9ewQ)
 
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 15, 視聴数: 753,262, いいね数: 10,328
+-   動画数: 15, 視聴数: 763,649, いいね数: 10,515
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -66,11 +66,11 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,619,320, いいね数: 332,180
+-   動画数: 102, 視聴数: 22,621,785, いいね数: 332,211
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,871,632, いいね数: 266,791
+-   動画数: 87, 視聴数: 15,871,742, いいね数: 266,790
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -78,11 +78,11 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,897,637, いいね数: 362,016
+-   動画数: 76, 視聴数: 20,897,748, いいね数: 362,021
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,588,606, いいね数: 303,913
+-   動画数: 78, 視聴数: 16,589,002, いいね数: 303,910
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -94,7 +94,7 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,696,288, いいね数: 254,079
+-   動画数: 61, 視聴数: 14,705,022, いいね数: 254,167
 
 #### [2025年02月](videos/202502 "wikilink")
 
@@ -162,7 +162,7 @@
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,284,561, いいね数: 171,539
+-   動画数: 33, 視聴数: 12,284,566, いいね数: 171,539
 
 #### [2023年09月](videos/202309 "wikilink")
 
@@ -170,7 +170,7 @@
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,567,130, いいね数: 128,052
+-   動画数: 33, 視聴数: 11,567,165, いいね数: 128,054
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -182,15 +182,15 @@
 
 #### [2023年05月](videos/202305 "wikilink")
 
--   動画数: 24, 視聴数: 7,313,296, いいね数: 112,119
+-   動画数: 24, 視聴数: 7,313,306, いいね数: 112,118
 
 #### [2023年04月](videos/202304 "wikilink")
 
--   動画数: 28, 視聴数: 6,518,675, いいね数: 103,234
+-   動画数: 28, 視聴数: 6,518,932, いいね数: 103,239
 
 #### [2023年03月](videos/202303 "wikilink")
 
--   動画数: 14, 視聴数: 7,947,456, いいね数: 141,231
+-   動画数: 14, 視聴数: 7,947,463, いいね数: 141,229
 
 ---
-2025-12-06 20:00
+2025-12-06 21:00
