@@ -96,7 +96,7 @@
     -   出演者: [ギラッド・コーヘン](/rehacq_fan/people/ギラッド・コーヘン "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】夏の夜のまったり雑談【西田亮介vs宇佐美典也】](/rehacq_fan/ids/SHkI3HrdQJI "wikilink")
     -   公開日: 2025-07-26
-    -   視聴数: 283,399
+    -   視聴数: 283,501
     -   **いいね数: 3,749**
     -   出演者: [宇佐美典也](/rehacq_fan/people/宇佐美典也 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ生配信】チームみらい幹事長とまったり雑談【チームみらい高山さとしvs西田亮介】](/rehacq_fan/ids/4vBs3DL5S2w "wikilink")
@@ -216,12 +216,12 @@
     -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ討論会】兵庫選挙区ネット討論会【高橋弘樹】](/rehacq_fan/ids/Qm5ugBF67q4 "wikilink")
     -   公開日: 2025-07-06
-    -   視聴数: 463,861
-    -   **いいね数: 9,400**
+    -   視聴数: 463,889
+    -   **いいね数: 9,398**
     -   出演者: [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【ReHacQ討論会】愛知選挙区ネット討論会※音声クリア分はアプリにあります【柴田 阿弥】](/rehacq_fan/ids/-ScHuA8rLdI "wikilink")
     -   公開日: 2025-07-06
-    -   視聴数: 115,542
+    -   視聴数: 115,570
     -   **いいね数: 1,341**
     -   出演者: 
 1.  [【自民党議員が緊急出演】なぜ逮捕？群馬で大激震！巨額献金と地方政治の闇【高橋弘樹vs西田尚史vs川松真一朗】](/rehacq_fan/ids/UzD_RLFyYaY "wikilink")
@@ -881,72 +881,72 @@
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), 白井たかひろ
 1.  [【維新の会記者会見第２部】緊急生配信…情報提供なぜ？【兵庫維新の会代表・日本維新の会幹事長】](/rehacq_fan/ids/xn93hD3HOJY "wikilink")
     -   公開日: 2025-02-23
-    -   視聴数: 113,009
-    -   **いいね数: 899**
+    -   視聴数: 113,018
+    -   **いいね数: 898**
     -   出演者: [岩谷良平](/rehacq_fan/people/岩谷良平 "wikilink"), 金子道仁
 1.  [【維新の会記者会見放送事故版】緊急生配信…なぜ立花孝志氏に提供？【岸口・白井・増山県議】※完全版別にございます](/rehacq_fan/ids/ZMy5potpWoA "wikilink")
     -   公開日: 2025-02-23
-    -   視聴数: 317,277
-    -   **いいね数: 3,907**
+    -   視聴数: 317,288
+    -   **いいね数: 3,906**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), 白井たかひろ
 1.  [【ひろゆきvs丸川珠代】衝撃告白…丸川珠代がすべて語る！「政治と金」大激論！落選後メディア初！石丸伸二が絶句【高橋弘樹】ReHacQ](/rehacq_fan/ids/8xEcdo-AfM8 "wikilink")
     -   公開日: 2025-02-21
-    -   視聴数: 730,296
-    -   **いいね数: 12,203**
+    -   視聴数: 731,400
+    -   **いいね数: 12,201**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs都県議会議員】激論！どうなる地方議会の未来【緊急生配信】](/rehacq_fan/ids/5NWCvCutc8 "wikilink")
     -   公開日: 2025-02-21
-    -   視聴数: 678,600
-    -   **いいね数: 15,530**
+    -   視聴数: 680,953
+    -   **いいね数: 15,534**
     -   出演者: [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 関口健太郎
 1.  [【石丸伸二】選挙運動費用収支報告書について【緊急生配信】](/rehacq_fan/ids/hSTjyqoO60Y "wikilink")
     -   公開日: 2025-02-21
-    -   視聴数: 332,871
-    -   **いいね数: 10,446**
+    -   視聴数: 332,917
+    -   **いいね数: 10,444**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急生配信】兵庫県・百条委員会にて秘密会音声データ流出のすべて「私がやった…なぜなら」【日本維新の会・増山誠vsReHacQ高橋弘樹】](/rehacq_fan/ids/LyTuLE37l4A "wikilink")
     -   公開日: 2025-02-19
-    -   視聴数: 773,993
-    -   **いいね数: 28,040**
+    -   視聴数: 774,175
+    -   **いいね数: 28,030**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【地方で儲けろ！】民間が蜂起せよ！政府に頼らぬ真の地方創生とは？【ReHacQ】](/rehacq_fan/ids/VqSBfTEZ3vA "wikilink")
     -   公開日: 2025-02-18
-    -   視聴数: 43,835
-    -   **いいね数: 692**
+    -   視聴数: 44,027
+    -   **いいね数: 694**
     -   出演者: 嶋田俊平, 木下斉, [森本智子](/rehacq_fan/people/森本智子 "wikilink")
 1.  [【「石破総理へ…」本音激白】脱昭和が鍵！令和の「列島改造論」KPIを修正すべき？【ReHacQ…森本智子】](/rehacq_fan/ids/aDEt2s874eA "wikilink")
     -   公開日: 2025-02-17
-    -   視聴数: 65,022
+    -   視聴数: 65,061
     -   **いいね数: 824**
     -   出演者: 嶋田俊平, 木下斉, [森本智子](/rehacq_fan/people/森本智子 "wikilink")
 1.  [【トランプ関税vs習近平】米中経済戦争は激化？日本・投資への影響は？【元経産省官僚vs東大教授】](/rehacq_fan/ids/ZFuUNADUCRg "wikilink")
     -   公開日: 2025-02-12
-    -   視聴数: 59,852
+    -   視聴数: 59,853
     -   **いいね数: 773**
     -   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), 鈴木一人
 1.  [【NISAに大激震！】トランプ関税！日本経済は？中国対抗関税？世界経済の行方は？【ReHacQ】](/rehacq_fan/ids/b_-e-sECqos "wikilink")
     -   公開日: 2025-02-11
-    -   視聴数: 85,765
+    -   視聴数: 85,767
     -   **いいね数: 881**
     -   出演者: 福山章子, [野沢春日](/rehacq_fan/people/野沢春日 "wikilink"), 鈴木一人
 1.  [【激動AIウォッチ】ソフトバンク・孫正義なぜAI新会社設立？日本経済に恩恵は？【クリスタルインテリジェンスとは】](/rehacq_fan/ids/Ly-i2VEtupY "wikilink")
     -   公開日: 2025-02-07
-    -   視聴数: 72,383
+    -   視聴数: 72,445
     -   **いいね数: 851**
     -   出演者: [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [小林葵](/rehacq_fan/people/小林葵 "wikilink")
 1.  [【ReHacQ生配信】なぜ今注目？「就職氷河期」問題どう解決？【日本の難題vs須黒清華】](/rehacq_fan/ids/FXV6yHy2U2E "wikilink")
     -   公開日: 2025-02-06
-    -   視聴数: 70,521
+    -   視聴数: 70,538
     -   **いいね数: 901**
     -   出演者: [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 藤田孝典, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [【石丸新党・記者会見】文春記事への回答は？新党候補者の応募状況は？【ReHacQ】](/rehacq_fan/ids/6ahRaMRG95U "wikilink")
     -   公開日: 2025-02-06
-    -   視聴数: 399,641
+    -   視聴数: 399,658
     -   **いいね数: 11,393**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【NISAに影響は？】ChatGPTの危機？それとも？エヌビディア株への影響は？【アメリカVS中国】](/rehacq_fan/ids/Cof-6Py1c3Q "wikilink")
     -   公開日: 2025-01-31
-    -   視聴数: 191,297
+    -   視聴数: 191,307
     -   **いいね数: 2,762**
     -   出演者: [中島聡](/rehacq_fan/people/中島聡 "wikilink"), [小林葵](/rehacq_fan/people/小林葵 "wikilink"), [高口康太](/rehacq_fan/people/高口康太 "wikilink")
 1.  [【フジテレビ記者会見】中居正広氏トラブル真相は？異例の10時間会見【ReHacQ】](/rehacq_fan/ids/cJD7qxsdobk "wikilink")
@@ -3222,8 +3222,8 @@
     -   出演者: 石井玄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【辞めテレ東vs辞めニッポン放送】衝撃告白！ラジオ界のエース、電撃退社！衝撃給料【高橋弘樹vs石井玄ReHacQ】](/rehacq_fan/ids/2NAVCJ4aYUE "wikilink")
     -   公開日: 2025-02-08
-    -   視聴数: 365,917
-    -   **いいね数: 4,708**
+    -   視聴数: 366,169
+    -   **いいね数: 4,707**
     -   出演者: 石井玄, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めゴールドマン】年収1億円…行く人、行かない人違いは？【ReHacQ】](/rehacq_fan/ids/Ipck99H_vjU "wikilink")
     -   公開日: 2025-01-13
@@ -3247,58 +3247,58 @@
     -   出演者: 山本将裕, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日本の闇迫る男vs高橋弘樹】地面師から安倍政権、日本大学まで…ノンフィクション作家の矜持！新潮社辞めて現場で粘り続けるわけ【ReHacQvs森功】](/rehacq_fan/ids/1vDYHfwQoZI "wikilink")
     -   公開日: 2024-12-18
-    -   視聴数: 134,735
+    -   視聴数: 134,884
     -   **いいね数: 1,636**
     -   出演者: 森功, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【辞めTBSvs辞めテレ東】ガチ議論！webメディアの行方！衝撃とんかつ事件【「それSnowManにやらせて下さい」元D vs ReHacQ】](/rehacq_fan/ids/fsS0Jv4PVrY "wikilink")
     -   公開日: 2024-12-11
-    -   視聴数: 193,924
-    -   **いいね数: 3,053**
+    -   視聴数: 195,060
+    -   **いいね数: 3,070**
     -   出演者: [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs地面師の闇暴く男】積水ハウス事件…55億なぜ詐取？首謀者と被害者社長の謎【ReHacQ】](/rehacq_fan/ids/QvHHKJZn7d0 "wikilink")
     -   公開日: 2024-12-09
-    -   視聴数: 404,112
-    -   **いいね数: 3,707**
+    -   視聴数: 404,744
+    -   **いいね数: 3,709**
     -   出演者: 森功, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めTBS】前代未聞の退社理由…退社交渉なぜ録音？【「それSnow Manにやらせて下さい」ディレクターvsReHacQ】](/rehacq_fan/ids/-O8STCRcSPs "wikilink")
     -   公開日: 2024-12-07
-    -   視聴数: 818,096
-    -   **いいね数: 9,424**
+    -   視聴数: 822,556
+    -   **いいね数: 9,452**
     -   出演者: [大前プジョルジョ健太](/rehacq_fan/people/大前プジョルジョ健太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs藤田晋の元側近】衝撃！藤田ファンド責任者…伝説のハヤマリナイトとは？【ReHacQ】](/rehacq_fan/ids/JFojyNG3pcQ "wikilink")
     -   公開日: 2024-11-15
-    -   視聴数: 137,821
+    -   視聴数: 137,896
     -   **いいね数: 1,085**
     -   出演者: 坡山里帆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【辞めリコーの逆襲】「作り方」を作る！新時代のクリエイター思考！脱東京で成功のワケ【ReHacQ】](/rehacq_fan/ids/AJ-1tM4seM4 "wikilink")
     -   公開日: 2024-11-04
-    -   視聴数: 177,974
-    -   **いいね数: 3,209**
+    -   視聴数: 178,575
+    -   **いいね数: 3,215**
     -   出演者: おちゅり, 林裕介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞めLINEヤフー】エリートから転落！月収４万円…うつ病発症…からの年収数千万円！大逆転の訳【ReHacQvs辞めリコー】](/rehacq_fan/ids/A447j1X3yZ8 "wikilink")
     -   公開日: 2024-10-30
-    -   視聴数: 156,746
-    -   **いいね数: 2,458**
+    -   視聴数: 157,391
+    -   **いいね数: 2,462**
     -   出演者: おちゅり, 林裕介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【クルド人問題…市長秘書が激白】川口市で何が？講談社から来た男【ReHacQ高橋弘樹】](/rehacq_fan/ids/ha1-6O9uJK8 "wikilink")
     -   公開日: 2024-10-23
-    -   視聴数: 104,187
-    -   **いいね数: 1,433**
+    -   視聴数: 104,220
+    -   **いいね数: 1,434**
     -   出演者: 小見山祐紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞め講談社】ロスジェネの残滓と悲劇…なぜエリート捨て川口市長秘書に？【ReHacQ &川口クルド問題】](/rehacq_fan/ids/NcP1-X_STEQ "wikilink")
     -   公開日: 2024-10-15
-    -   視聴数: 100,455
+    -   視聴数: 100,487
     -   **いいね数: 1,269**
     -   出演者: 小見山祐紀, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞め電通】年収が人生最低に…「でも！！」いまが1番幸せなワケ【『耳をすませば』で起業！森本萌乃】](/rehacq_fan/ids/vO_kKj2e5Gg "wikilink")
     -   公開日: 2024-10-08
-    -   視聴数: 156,155
+    -   視聴数: 156,301
     -   **いいね数: 2,165**
     -   出演者: 森本萌乃, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞め電通】不眠症…耳をすませば見て、人生変わりました【ReHacQ】](/rehacq_fan/ids/7rF8MlFjunM "wikilink")
     -   公開日: 2024-10-01
-    -   視聴数: 173,542
-    -   **いいね数: 2,190**
+    -   視聴数: 173,714
+    -   **いいね数: 2,193**
     -   出演者: 森本萌乃, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【創価学会だけから脱却？】公明党の目指す未来とは？【石井啓一vs高橋弘樹】](/rehacq_fan/ids/5sBJekNot0Y "wikilink")
     -   公開日: 2024-09-24

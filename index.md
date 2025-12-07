@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【天才数学者秋山仁vs高橋弘樹】破天荒人生…カリスマの“頭の中”とそこから見える人生のヒントとは？【ReHacQ】](/rehacq_fan/ids/PepvPos4Hy0 "wikilink")
+    -   公開日: 2025-12-07
+    -   視聴数: 6,814
+    -   **いいね数: 345**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/PepvPos4Hy0/hqdefault.jpg)](https://www.youtube.com/watch?v=PepvPos4Hy0)
 1.  [【ひろゆきvs蓮舫②】地方の政治の闇暴露…公開されない謎の金とは…【ReHacQ高橋弘樹vs西田尚史】](/rehacq_fan/ids/iSSGz-HdJ5w "wikilink")
     -   公開日: 2025-12-06
-    -   視聴数: 60,011
-    -   **いいね数: 609**
+    -   視聴数: 75,497
+    -   **いいね数: 772**
     -   出演者: 
     - [![](https://img.youtube.com/vi/iSSGz-HdJ5w/hqdefault.jpg)](https://www.youtube.com/watch?v=iSSGz-HdJ5w)
 1.  [【ReHacQ討論会】伊東市長選ネット討論会 【高橋弘樹】](/rehacq_fan/ids/Of2eOvmxXQU "wikilink")
     -   公開日: 2025-12-06
-    -   視聴数: 84,730
-    -   **いいね数: 958**
+    -   視聴数: 96,186
+    -   **いいね数: 1,082**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Of2eOvmxXQU/hqdefault.jpg)](https://www.youtube.com/watch?v=Of2eOvmxXQU)
 1.  [【国光外務副大臣x西田亮介】「黙って投資しろ」から考える外交コミュニケーションの“面”と“裏”【太ひでし＆前田雄大＆ReHacQ須賀川】](/rehacq_fan/ids/oY234Hm49MI "wikilink")
     -   公開日: 2025-12-05
-    -   視聴数: 55,399
-    -   **いいね数: 649**
+    -   視聴数: 61,405
+    -   **いいね数: 726**
     -   出演者: [前田雄大](/rehacq_fan/people/前田雄大 "wikilink"), [国光あやの](/rehacq_fan/people/国光あやの "wikilink"), 太ひでし, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
     - [![](https://img.youtube.com/vi/oY234Hm49MI/hqdefault.jpg)](https://www.youtube.com/watch?v=oY234Hm49MI)
 1.  [【“成長投資”の行方】高市政権の財政拡張と円安の“核心”を総点検！【馬渕磨理子＆藤代宏一＆会田卓司 】](/rehacq_fan/ids/8ReLC1lA548 "wikilink")
     -   公開日: 2025-12-05
-    -   視聴数: 41,549
-    -   **いいね数: 671**
+    -   視聴数: 43,927
+    -   **いいね数: 705**
     -   出演者: 会田卓司, [藤代宏一](/rehacq_fan/people/藤代宏一 "wikilink"), [馬渕磨理子](/rehacq_fan/people/馬渕磨理子 "wikilink")
     - [![](https://img.youtube.com/vi/8ReLC1lA548/hqdefault.jpg)](https://www.youtube.com/watch?v=8ReLC1lA548)
-1.  [【生配信】公明党・斉藤鉄夫代表 定例記者会見　12月5日（金）【ReHacQ】](/rehacq_fan/ids/-G9hGQY9ewQ "wikilink")
-    -   公開日: 2025-12-05
-    -   視聴数: 8,778
-    -   **いいね数: 310**
-    -   出演者: [斉藤鉄夫](/rehacq_fan/people/斉藤鉄夫 "wikilink")
-    - [![](https://img.youtube.com/vi/-G9hGQY9ewQ/hqdefault.jpg)](https://www.youtube.com/watch?v=-G9hGQY9ewQ)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,15 +58,15 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 16, 視聴数: 913,302, いいね数: 11,955
+-   動画数: 17, 視聴数: 961,758, いいね数: 12,754
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 10,072,870, いいね数: 154,394
+-   動画数: 79, 視聴数: 10,073,027, いいね数: 154,395
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,723,590, いいね数: 332,880
+-   動画数: 102, 視聴数: 22,737,437, いいね数: 332,992
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -78,7 +78,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,903,486, いいね数: 362,110
+-   動画数: 76, 視聴数: 20,903,644, いいね数: 362,108
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -98,23 +98,23 @@
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,355,596, いいね数: 298,501
+-   動画数: 47, 視聴数: 16,359,883, いいね数: 298,490
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,816,132, いいね数: 292,804
+-   動画数: 48, 視聴数: 17,816,142, いいね数: 292,804
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,508,082, いいね数: 309,372
+-   動画数: 60, 視聴数: 18,514,459, いいね数: 309,419
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,218,398, いいね数: 379,749
+-   動画数: 38, 視聴数: 22,219,074, いいね数: 379,755
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,593,630, いいね数: 341,559
+-   動画数: 72, 視聴数: 22,594,658, いいね数: 341,567
 
 #### [2024年09月](videos/202409 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,950,203, いいね数: 141,231
 
 ---
-2025-12-07 13:00
+2025-12-07 20:00
