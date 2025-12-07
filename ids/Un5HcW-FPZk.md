@@ -1,6 +1,6 @@
-### [【高橋弘樹】11月振り返りまったり生配信【ReHacQ】](https://www.youtube.com/watch?v=Un5HcW-FPZk)
+### [【ReHacQ緊急生配信】BS朝日に激怒…なぜ？&榛葉幹事長にガチお願い&伊東市長選の裏側【箕輪厚介が生配信中にご乱心】](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 [![](https://img.youtube.com/vi/Un5HcW-FPZk/sddefault.jpg)](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 -   公開日: 2025-12-07
--   視聴数: 32,992
--   **いいね数: 888**
+-   視聴数: 48,442
+-   **いいね数: 969**
 -   出演者: 
