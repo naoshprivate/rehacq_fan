@@ -1,6 +1,6 @@
 ### [【石丸伸二vs地方再生】100億円で地方が変わる！？NewsPicks元CEOが見る日本の未来…地方でこそ外貨を！再生のリアルな条件【ReHacQ高橋弘樹・坂本大典】](https://www.youtube.com/watch?v=CmTOcYCF5sA)
 [![](https://img.youtube.com/vi/CmTOcYCF5sA/sddefault.jpg)](https://www.youtube.com/watch?v=CmTOcYCF5sA)
 -   公開日: 2025-12-08
--   視聴数: 12,060
--   **いいね数: 1,265**
+-   視聴数: 17,963
+-   **いいね数: 1,899**
 -   出演者: 
