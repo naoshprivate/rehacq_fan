@@ -37,7 +37,7 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
-    -   視聴数: 2,702,496
+    -   視聴数: 2,703,012
     -   **いいね数: 37,311**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【石丸伸二が緊急登場】激論!都知事選とメディアの功罪【西田亮介&高橋弘樹】](/rehacq_fan/ids/pvhzvC513uQ "wikilink")
@@ -460,6 +460,11 @@
     -   視聴数: 1,112,304
     -   **いいね数: 15,383**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
+    -   公開日: 2024-02-12
+    -   視聴数: 1,787,810
+    -   **いいね数: 15,340**
+    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ひろゆきvs西村ゆか】緊迫…離婚の可能性は？夫婦のカタチを考える【リハックマ絶句】](/rehacq_fan/ids/4G8qsbpfLNo "wikilink")
     -   公開日: 2024-02-20
     -   視聴数: 1,674,046
@@ -470,11 +475,6 @@
     -   視聴数: 736,952
     -   **いいね数: 15,311**
     -   出演者: [神谷宗幣](/rehacq_fan/people/神谷宗幣 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
-    -   公開日: 2024-02-12
-    -   視聴数: 1,783,227
-    -   **いいね数: 15,310**
-    -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【ReHacQ×年越し】大晦日！ベロベロ生テレビ【石丸伸二＆ひろゆき＆後藤達也】](/rehacq_fan/ids/kJ2-KHagA8s "wikilink")
     -   公開日: 2024-12-31
     -   視聴数: 923,217

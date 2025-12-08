@@ -17,7 +17,7 @@
     -   出演者: [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [緊急対談　川上量生、立花孝志【ReHacQ SP】](/rehacq_fan/ids/KPwDlYmzEIA "wikilink")
     -   公開日: 2023-03-21
-    -   視聴数: 2,702,496
+    -   視聴数: 2,703,012
     -   **いいね数: 37,311**
     -   出演者: [川上量生](/rehacq_fan/people/川上量生 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【後藤達也と新NISA】投資のシンプルな真実！赤裸々告白【S&P500とオルカン】](/rehacq_fan/ids/MXBsHbF603U "wikilink")
@@ -112,8 +112,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【ひろゆきvs西村ゆか】じつは事実婚が５年…明かされる夫婦の秘密【汐留事変】](/rehacq_fan/ids/qWJ9O7DF7ZI "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 1,783,227
-    -   **いいね数: 15,310**
+    -   視聴数: 1,787,810
+    -   **いいね数: 15,340**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [西村ゆか](/rehacq_fan/people/西村ゆか "wikilink")
 1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
     -   公開日: 2025-10-09
@@ -352,7 +352,7 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [東出昌大](/rehacq_fan/people/東出昌大 "wikilink")
 1.  [【ひろゆきvsシン・石破茂】ウクライナと中国…衝撃「国防の罠」【ReHacQs】](/rehacq_fan/ids/RUKBNEivcAw "wikilink")
     -   公開日: 2023-03-25
-    -   視聴数: 1,104,789
+    -   視聴数: 1,105,306
     -   **いいね数: 14,399**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石破茂](/rehacq_fan/people/石破茂 "wikilink")
 1.  [【ガーシーが謝罪】被害者・川上量生に直接…一体なぜ？参議院議員から急転逮捕…真相とは？【なぜN国から立候補？】](/rehacq_fan/ids/mt5tmXdLERs "wikilink")
