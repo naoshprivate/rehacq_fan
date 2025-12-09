@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【兵庫県知事選で新事実】フジテレビ番組で暴走コメント…なぜ止めず？アナウンサーの葛藤【高橋弘樹vs西岡孝洋】](/rehacq_fan/ids/5yS43XdsIfI "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 33,284
-    -   **いいね数: 878**
+    -   視聴数: 45,808
+    -   **いいね数: 1,076**
     -   出演者: 西岡孝洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5yS43XdsIfI/hqdefault.jpg)](https://www.youtube.com/watch?v=5yS43XdsIfI)
 1.  [【生配信】国民民主党・玉木代表定例会見 12月9日（火）【ReHacQ】](/rehacq_fan/ids/rLyNSWq0S_k "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 10,041
-    -   **いいね数: 136**
+    -   視聴数: 10,315
+    -   **いいね数: 137**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/rLyNSWq0S_k/hqdefault.jpg)](https://www.youtube.com/watch?v=rLyNSWq0S_k)
 1.  [【石丸伸二vsNewsPicks元CEO】神議論！日本は革命期へ…経済再生の狼煙とは？【ReHacQ高橋弘樹・坂本大典】](/rehacq_fan/ids/CmTOcYCF5sA "wikilink")
     -   公開日: 2025-12-08
-    -   視聴数: 136,814
-    -   **いいね数: 5,302**
+    -   視聴数: 139,335
+    -   **いいね数: 5,329**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/CmTOcYCF5sA/hqdefault.jpg)](https://www.youtube.com/watch?v=CmTOcYCF5sA)
 1.  [【高橋弘樹vs哲学史】"正義”とは何か？カント VS ケアの倫理　哲学で読み解く意思決定【ReHacQ教養】](/rehacq_fan/ids/GprKr9vJKDs "wikilink")
     -   公開日: 2025-12-08
-    -   視聴数: 17,980
-    -   **いいね数: 266**
+    -   視聴数: 18,320
+    -   **いいね数: 269**
     -   出演者: 斎藤哲也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GprKr9vJKDs/hqdefault.jpg)](https://www.youtube.com/watch?v=GprKr9vJKDs)
 1.  [【ReHacQ緊急生配信】BS朝日に激怒…なぜ？&榛葉幹事長にガチお願い&伊東市長選の裏側【箕輪厚介が生配信中にご乱心】](/rehacq_fan/ids/Un5HcW-FPZk "wikilink")
     -   公開日: 2025-12-07
-    -   視聴数: 297,809
-    -   **いいね数: 4,119**
+    -   視聴数: 299,759
+    -   **いいね数: 4,130**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Un5HcW-FPZk/hqdefault.jpg)](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 22, 視聴数: 1,668,276, いいね数: 25,883
+-   動画数: 22, 視聴数: 1,688,904, いいね数: 26,147
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -66,7 +66,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,756,619, いいね数: 333,182
+-   動画数: 102, 視聴数: 22,760,932, いいね数: 333,215
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -78,7 +78,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,920,281, いいね数: 362,272
+-   動画数: 76, 視聴数: 20,927,137, いいね数: 362,315
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -150,27 +150,27 @@
 
 #### [2024年01月](videos/202401 "wikilink")
 
--   動画数: 30, 視聴数: 9,358,912, いいね数: 118,722
+-   動画数: 30, 視聴数: 9,359,039, いいね数: 118,723
 
 #### [2023年12月](videos/202312 "wikilink")
 
--   動画数: 30, 視聴数: 9,431,175, いいね数: 121,133
+-   動画数: 30, 視聴数: 9,431,364, いいね数: 121,137
 
 #### [2023年11月](videos/202311 "wikilink")
 
--   動画数: 25, 視聴数: 13,307,767, いいね数: 142,847
+-   動画数: 25, 視聴数: 13,310,763, いいね数: 142,842
 
 #### [2023年10月](videos/202310 "wikilink")
 
--   動画数: 33, 視聴数: 12,286,045, いいね数: 171,552
+-   動画数: 33, 視聴数: 12,286,304, いいね数: 171,554
 
 #### [2023年09月](videos/202309 "wikilink")
 
--   動画数: 27, 視聴数: 6,449,391, いいね数: 86,524
+-   動画数: 27, 視聴数: 6,449,764, いいね数: 86,527
 
 #### [2023年08月](videos/202308 "wikilink")
 
--   動画数: 33, 視聴数: 11,568,946, いいね数: 128,066
+-   動画数: 33, 視聴数: 11,573,381, いいね数: 128,069
 
 #### [2023年07月](videos/202307 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,953,864, いいね数: 141,243
 
 ---
-2025-12-10 00:00
+2025-12-10 01:00
