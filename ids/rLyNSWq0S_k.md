@@ -1,6 +1,6 @@
 ### [【生配信】国民民主党・玉木代表定例会見 12月9日（火）【ReHacQ】](https://www.youtube.com/watch?v=rLyNSWq0S_k)
 [![](https://img.youtube.com/vi/rLyNSWq0S_k/sddefault.jpg)](https://www.youtube.com/watch?v=rLyNSWq0S_k)
 -   公開日: 2025-12-09
--   視聴数: 8,790
--   **いいね数: 129**
+-   視聴数: 9,314
+-   **いいね数: 131**
 -   出演者: 
