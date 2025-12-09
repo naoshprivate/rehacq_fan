@@ -1,6 +1,6 @@
 ### [【ReHacQ緊急生配信】BS朝日に激怒…なぜ？&榛葉幹事長にガチお願い&伊東市長選の裏側【箕輪厚介が生配信中にご乱心】](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 [![](https://img.youtube.com/vi/Un5HcW-FPZk/sddefault.jpg)](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 -   公開日: 2025-12-07
--   視聴数: 289,476
--   **いいね数: 4,037**
+-   視聴数: 291,331
+-   **いいね数: 4,054**
 -   出演者: 
