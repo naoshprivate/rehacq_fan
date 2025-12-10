@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】日本維新の会・藤田共同代表定例会見 12月10日（水）【ReHacQ】](/rehacq_fan/ids/mWHOjJvWNKI "wikilink")
+    -   公開日: 2025-12-10
+    -   視聴数: 6,943
+    -   **いいね数: 129**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/mWHOjJvWNKI/hqdefault.jpg)](https://www.youtube.com/watch?v=mWHOjJvWNKI)
 1.  [【兵庫県知事選で新事実】フジテレビ番組で暴走コメント…なぜ止めず？アナウンサーの葛藤【高橋弘樹vs西岡孝洋】](/rehacq_fan/ids/5yS43XdsIfI "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 139,909
-    -   **いいね数: 2,424**
+    -   視聴数: 176,713
+    -   **いいね数: 3,037**
     -   出演者: 西岡孝洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5yS43XdsIfI/hqdefault.jpg)](https://www.youtube.com/watch?v=5yS43XdsIfI)
 1.  [【生配信】国民民主党・玉木代表定例会見 12月9日（火）【ReHacQ】](/rehacq_fan/ids/rLyNSWq0S_k "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 11,320
-    -   **いいね数: 142**
+    -   視聴数: 11,537
+    -   **いいね数: 145**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/rLyNSWq0S_k/hqdefault.jpg)](https://www.youtube.com/watch?v=rLyNSWq0S_k)
 1.  [【石丸伸二vsNewsPicks元CEO】神議論！日本は革命期へ…経済再生の狼煙とは？【ReHacQ高橋弘樹・坂本大典】](/rehacq_fan/ids/CmTOcYCF5sA "wikilink")
     -   公開日: 2025-12-08
-    -   視聴数: 153,620
-    -   **いいね数: 5,646**
+    -   視聴数: 163,045
+    -   **いいね数: 5,830**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/CmTOcYCF5sA/hqdefault.jpg)](https://www.youtube.com/watch?v=CmTOcYCF5sA)
 1.  [【高橋弘樹vs哲学史】"正義”とは何か？カント VS ケアの倫理　哲学で読み解く意思決定【ReHacQ教養】](/rehacq_fan/ids/GprKr9vJKDs "wikilink")
     -   公開日: 2025-12-08
-    -   視聴数: 20,573
-    -   **いいね数: 312**
+    -   視聴数: 22,165
+    -   **いいね数: 332**
     -   出演者: 斎藤哲也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/GprKr9vJKDs/hqdefault.jpg)](https://www.youtube.com/watch?v=GprKr9vJKDs)
-1.  [【ReHacQ緊急生配信】BS朝日に激怒…なぜ？&榛葉幹事長にガチお願い&伊東市長選の裏側【箕輪厚介が生配信中にご乱心】](/rehacq_fan/ids/Un5HcW-FPZk "wikilink")
-    -   公開日: 2025-12-07
-    -   視聴数: 311,161
-    -   **いいね数: 4,233**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/Un5HcW-FPZk/hqdefault.jpg)](https://www.youtube.com/watch?v=Un5HcW-FPZk)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 22, 視聴数: 1,823,086, いいね数: 28,104
+-   動画数: 23, 視聴数: 1,891,155, いいね数: 29,235
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -66,23 +66,23 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,775,125, いいね数: 333,312
+-   動画数: 102, 視聴数: 22,776,793, いいね数: 333,348
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,975,126, いいね数: 267,353
+-   動画数: 87, 視聴数: 15,977,174, いいね数: 267,381
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,469,114, いいね数: 261,106
+-   動画数: 65, 視聴数: 14,472,041, いいね数: 261,119
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,935,591, いいね数: 362,317
+-   動画数: 76, 視聴数: 20,939,415, いいね数: 362,366
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,606,695, いいね数: 304,063
+-   動画数: 78, 視聴数: 16,606,700, いいね数: 304,062
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -94,23 +94,23 @@
 
 #### [2025年03月](videos/202503 "wikilink")
 
--   動画数: 61, 視聴数: 14,723,113, いいね数: 254,280
+-   動画数: 61, 視聴数: 14,726,566, いいね数: 254,281
 
 #### [2025年02月](videos/202502 "wikilink")
 
--   動画数: 47, 視聴数: 16,363,485, いいね数: 298,517
+-   動画数: 47, 視聴数: 16,368,270, いいね数: 298,525
 
 #### [2025年01月](videos/202501 "wikilink")
 
--   動画数: 48, 視聴数: 17,830,175, いいね数: 292,864
+-   動画数: 48, 視聴数: 17,835,442, いいね数: 292,910
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,524,062, いいね数: 309,436
+-   動画数: 60, 視聴数: 18,524,111, いいね数: 309,434
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,243,653, いいね数: 379,857
+-   動画数: 38, 視聴数: 22,243,771, いいね数: 379,857
 
 #### [2024年10月](videos/202410 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,954,312, いいね数: 141,245
 
 ---
-2025-12-10 13:00
+2025-12-10 20:00
