@@ -1,6 +1,6 @@
 ### [【天才数学者秋山仁vs高橋弘樹】破天荒人生…カリスマの“頭の中”とそこから見える人生のヒントとは？【ReHacQ】](https://www.youtube.com/watch?v=PepvPos4Hy0)
 [![](https://img.youtube.com/vi/PepvPos4Hy0/sddefault.jpg)](https://www.youtube.com/watch?v=PepvPos4Hy0)
 -   公開日: 2025-12-07
--   視聴数: 84,649
--   **いいね数: 1,610**
+-   視聴数: 84,978
+-   **いいね数: 1,620**
 -   出演者: 秋山仁, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
