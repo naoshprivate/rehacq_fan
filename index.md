@@ -1,14 +1,20 @@
 # 最近の動画
-1.  [【生配信】日本維新の会・藤田共同代表定例会見 12月10日（水）【ReHacQ】](/rehacq_fan/ids/mWHOjJvWNKI "wikilink")
+1.  [【高橋弘樹vs辞め社民党】副代表なぜ離党？「こういう歴史を…」心中激白【ReHacQvs新垣邦男】](/rehacq_fan/ids/5DZiHMPLgos "wikilink")
     -   公開日: 2025-12-10
-    -   視聴数: 6,943
-    -   **いいね数: 129**
+    -   視聴数: 4,747
+    -   **いいね数: 80**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/5DZiHMPLgos/hqdefault.jpg)](https://www.youtube.com/watch?v=5DZiHMPLgos)
+1.  [【生配信・日本維新の会】議員定巣削減自動削減条項「国会は自分の身分に関わることは結論を出さない習性がある」馬場議員の解散発言にも言及【ReHacQ記者会見 12月10日(水)】](/rehacq_fan/ids/mWHOjJvWNKI "wikilink")
+    -   公開日: 2025-12-10
+    -   視聴数: 7,529
+    -   **いいね数: 133**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mWHOjJvWNKI/hqdefault.jpg)](https://www.youtube.com/watch?v=mWHOjJvWNKI)
 1.  [【兵庫県知事選で新事実】フジテレビ番組で暴走コメント…なぜ止めず？アナウンサーの葛藤【高橋弘樹vs西岡孝洋】](/rehacq_fan/ids/5yS43XdsIfI "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 176,713
-    -   **いいね数: 3,037**
+    -   視聴数: 182,241
+    -   **いいね数: 3,101**
     -   出演者: 西岡孝洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5yS43XdsIfI/hqdefault.jpg)](https://www.youtube.com/watch?v=5yS43XdsIfI)
 1.  [【生配信】国民民主党・玉木代表定例会見 12月9日（火）【ReHacQ】](/rehacq_fan/ids/rLyNSWq0S_k "wikilink")
@@ -19,16 +25,10 @@
     - [![](https://img.youtube.com/vi/rLyNSWq0S_k/hqdefault.jpg)](https://www.youtube.com/watch?v=rLyNSWq0S_k)
 1.  [【石丸伸二vsNewsPicks元CEO】神議論！日本は革命期へ…経済再生の狼煙とは？【ReHacQ高橋弘樹・坂本大典】](/rehacq_fan/ids/CmTOcYCF5sA "wikilink")
     -   公開日: 2025-12-08
-    -   視聴数: 163,045
-    -   **いいね数: 5,830**
+    -   視聴数: 164,453
+    -   **いいね数: 5,860**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/CmTOcYCF5sA/hqdefault.jpg)](https://www.youtube.com/watch?v=CmTOcYCF5sA)
-1.  [【高橋弘樹vs哲学史】"正義”とは何か？カント VS ケアの倫理　哲学で読み解く意思決定【ReHacQ教養】](/rehacq_fan/ids/GprKr9vJKDs "wikilink")
-    -   公開日: 2025-12-08
-    -   視聴数: 22,165
-    -   **いいね数: 332**
-    -   出演者: 斎藤哲也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/GprKr9vJKDs/hqdefault.jpg)](https://www.youtube.com/watch?v=GprKr9vJKDs)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,23 +58,23 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 23, 視聴数: 1,891,155, いいね数: 29,235
+-   動画数: 24, 視聴数: 1,905,637, いいね数: 29,436
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 10,370,223, いいね数: 156,806
+-   動画数: 79, 視聴数: 10,426,387, いいね数: 157,365
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,776,793, いいね数: 333,348
+-   動画数: 102, 視聴数: 22,780,564, いいね数: 333,357
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,977,174, いいね数: 267,381
+-   動画数: 87, 視聴数: 15,977,326, いいね数: 267,382
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,472,041, いいね数: 261,119
+-   動画数: 65, 視聴数: 14,472,221, いいね数: 261,121
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,606,700, いいね数: 304,062
+-   動画数: 78, 視聴数: 16,610,752, いいね数: 304,062
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -110,27 +110,27 @@
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,243,771, いいね数: 379,857
+-   動画数: 38, 視聴数: 22,244,317, いいね数: 379,855
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,627,081, いいね数: 341,761
+-   動画数: 72, 視聴数: 22,627,453, いいね数: 341,763
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,709,289, いいね数: 221,176
+-   動画数: 50, 視聴数: 14,709,404, いいね数: 221,175
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,085,037, いいね数: 326,773
+-   動画数: 43, 視聴数: 20,086,807, いいね数: 326,783
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,878,277, いいね数: 290,996
+-   動画数: 44, 視聴数: 15,882,554, いいね数: 290,999
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,597,374, いいね数: 141,756
+-   動画数: 31, 視聴数: 10,597,684, いいね数: 141,757
 
 #### [2024年05月](videos/202405 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,954,312, いいね数: 141,245
 
 ---
-2025-12-10 20:00
+2025-12-10 21:00
