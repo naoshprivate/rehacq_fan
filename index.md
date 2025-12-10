@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【中国人vs中国人】激論！維新の会・石平vs吉永藍…中国の影は迫っているのか！？【ReHacQ須賀川拓】](/rehacq_fan/ids/VROdpKBCufQ "wikilink")
+    -   公開日: 2025-12-10
+    -   視聴数: 6,644
+    -   **いいね数: 162**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/VROdpKBCufQ/hqdefault.jpg)](https://www.youtube.com/watch?v=VROdpKBCufQ)
 1.  [【高橋弘樹vs辞め社民党】副代表なぜ離党？「こういう歴史を…」心中激白【ReHacQvs新垣邦男】](/rehacq_fan/ids/5DZiHMPLgos "wikilink")
     -   公開日: 2025-12-10
-    -   視聴数: 4,747
-    -   **いいね数: 80**
+    -   視聴数: 7,306
+    -   **いいね数: 153**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5DZiHMPLgos/hqdefault.jpg)](https://www.youtube.com/watch?v=5DZiHMPLgos)
 1.  [【生配信・日本維新の会】議員定巣削減自動削減条項「国会は自分の身分に関わることは結論を出さない習性がある」馬場議員の解散発言にも言及【ReHacQ記者会見 12月10日(水)】](/rehacq_fan/ids/mWHOjJvWNKI "wikilink")
     -   公開日: 2025-12-10
-    -   視聴数: 7,529
-    -   **いいね数: 133**
+    -   視聴数: 8,174
+    -   **いいね数: 141**
     -   出演者: 
     - [![](https://img.youtube.com/vi/mWHOjJvWNKI/hqdefault.jpg)](https://www.youtube.com/watch?v=mWHOjJvWNKI)
 1.  [【兵庫県知事選で新事実】フジテレビ番組で暴走コメント…なぜ止めず？アナウンサーの葛藤【高橋弘樹vs西岡孝洋】](/rehacq_fan/ids/5yS43XdsIfI "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 182,241
-    -   **いいね数: 3,101**
+    -   視聴数: 187,590
+    -   **いいね数: 3,189**
     -   出演者: 西岡孝洋, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/5yS43XdsIfI/hqdefault.jpg)](https://www.youtube.com/watch?v=5yS43XdsIfI)
 1.  [【生配信】国民民主党・玉木代表定例会見 12月9日（火）【ReHacQ】](/rehacq_fan/ids/rLyNSWq0S_k "wikilink")
     -   公開日: 2025-12-09
-    -   視聴数: 11,537
-    -   **いいね数: 145**
+    -   視聴数: 11,760
+    -   **いいね数: 146**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
     - [![](https://img.youtube.com/vi/rLyNSWq0S_k/hqdefault.jpg)](https://www.youtube.com/watch?v=rLyNSWq0S_k)
-1.  [【石丸伸二vsNewsPicks元CEO】神議論！日本は革命期へ…経済再生の狼煙とは？【ReHacQ高橋弘樹・坂本大典】](/rehacq_fan/ids/CmTOcYCF5sA "wikilink")
-    -   公開日: 2025-12-08
-    -   視聴数: 164,453
-    -   **いいね数: 5,860**
-    -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/CmTOcYCF5sA/hqdefault.jpg)](https://www.youtube.com/watch?v=CmTOcYCF5sA)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,15 +58,15 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 24, 視聴数: 1,905,637, いいね数: 29,436
+-   動画数: 25, 視聴数: 1,924,684, いいね数: 29,811
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 10,426,387, いいね数: 157,365
+-   動画数: 79, 視聴数: 10,426,402, いいね数: 157,365
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,780,564, いいね数: 333,357
+-   動画数: 102, 視聴数: 22,782,822, いいね数: 333,374
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -74,15 +74,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,472,221, いいね数: 261,121
+-   動画数: 65, 視聴数: 14,472,245, いいね数: 261,121
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,939,415, いいね数: 362,366
+-   動画数: 76, 視聴数: 20,942,152, いいね数: 362,367
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,610,752, いいね数: 304,062
+-   動画数: 78, 視聴数: 16,613,685, いいね数: 304,097
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -130,15 +130,15 @@
 
 #### [2024年06月](videos/202406 "wikilink")
 
--   動画数: 31, 視聴数: 10,597,684, いいね数: 141,757
+-   動画数: 31, 視聴数: 10,598,282, いいね数: 141,764
 
 #### [2024年05月](videos/202405 "wikilink")
 
--   動画数: 29, 視聴数: 6,710,360, いいね数: 83,260
+-   動画数: 29, 視聴数: 6,711,541, いいね数: 83,261
 
 #### [2024年04月](videos/202404 "wikilink")
 
--   動画数: 34, 視聴数: 9,514,197, いいね数: 99,460
+-   動画数: 34, 視聴数: 9,515,077, いいね数: 99,463
 
 #### [2024年03月](videos/202403 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,954,312, いいね数: 141,245
 
 ---
-2025-12-10 21:00
+2025-12-10 22:00
