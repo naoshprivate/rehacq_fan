@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsダウンタウン番組P】激論！どうなるメディアの未来？ダウンタウンプラス疑惑の真相とは？【ReHacQ】](https://www.youtube.com/watch?v=rPc3nSRxwKQ)
 [![](https://img.youtube.com/vi/rPc3nSRxwKQ/sddefault.jpg)](https://www.youtube.com/watch?v=rPc3nSRxwKQ)
 -   公開日: 2025-12-11
--   視聴数: 4,652
--   **いいね数: 117**
+-   視聴数: 7,677
+-   **いいね数: 199**
 -   出演者: 
