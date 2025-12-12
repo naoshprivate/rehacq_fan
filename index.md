@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【激白！元自衛官のホンネ】人生が突然“ゼロ”…いったいなぜ？自衛官セカンドキャリアは“イバラの道”【ReHacQ須賀川拓】](/rehacq_fan/ids/rj0SD_Umxcc "wikilink")
+    -   公開日: 2025-12-12
+    -   視聴数: 3,395
+    -   **いいね数: 125**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/rj0SD_Umxcc/hqdefault.jpg)](https://www.youtube.com/watch?v=rj0SD_Umxcc)
 1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 12月12日（金）【ReHacQ】](/rehacq_fan/ids/rZbVfEl384I "wikilink")
     -   公開日: 2025-12-12
-    -   視聴数: 1,397
-    -   **いいね数: 80**
+    -   視聴数: 3,421
+    -   **いいね数: 138**
     -   出演者: 
     - [![](https://img.youtube.com/vi/rZbVfEl384I/hqdefault.jpg)](https://www.youtube.com/watch?v=rZbVfEl384I)
 1.  [【生配信】立憲民主党・野田佳彦代表 記者会見12月12日（金）【ReHacQ】](/rehacq_fan/ids/kP44YIoAiHA "wikilink")
     -   公開日: 2025-12-12
-    -   視聴数: 4,297
-    -   **いいね数: 20**
+    -   視聴数: 7,389
+    -   **いいね数: 32**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kP44YIoAiHA/hqdefault.jpg)](https://www.youtube.com/watch?v=kP44YIoAiHA)
 1.  [【高橋弘樹vsダウンタウン番組P】激論！どうなるメディアの未来？ダウンタウンプラス疑惑の真相とは？【ReHacQ】](/rehacq_fan/ids/rPc3nSRxwKQ "wikilink")
     -   公開日: 2025-12-11
-    -   視聴数: 56,380
-    -   **いいね数: 670**
+    -   視聴数: 72,525
+    -   **いいね数: 798**
     -   出演者: 
     - [![](https://img.youtube.com/vi/rPc3nSRxwKQ/hqdefault.jpg)](https://www.youtube.com/watch?v=rPc3nSRxwKQ)
 1.  [【人手不足ニッポン】AIロボットは自動車産業の再来となるか？日本の現在地とは？【成田修造&河原塚健人&松嶋達也】](/rehacq_fan/ids/5MCCOV_hEFU "wikilink")
     -   公開日: 2025-12-11
-    -   視聴数: 11,464
-    -   **いいね数: 185**
+    -   視聴数: 14,632
+    -   **いいね数: 235**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5MCCOV_hEFU/hqdefault.jpg)](https://www.youtube.com/watch?v=5MCCOV_hEFU)
-1.  [【中国人vs中国人】激論！維新の会・石平vs吉永藍…中国の影は迫っているのか！？【ReHacQ須賀川拓】](/rehacq_fan/ids/VROdpKBCufQ "wikilink")
-    -   公開日: 2025-12-10
-    -   視聴数: 76,198
-    -   **いいね数: 793**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/VROdpKBCufQ/hqdefault.jpg)](https://www.youtube.com/watch?v=VROdpKBCufQ)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,11 +58,11 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 29, 視聴数: 2,278,850, いいね数: 33,785
+-   動画数: 30, 視聴数: 2,317,537, いいね数: 34,287
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 10,479,677, いいね数: 158,006
+-   動画数: 79, 視聴数: 10,481,577, いいね数: 158,027
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -70,11 +70,11 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 15,998,565, いいね数: 267,566
+-   動画数: 87, 視聴数: 15,999,871, いいね数: 267,588
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,483,442, いいね数: 261,176
+-   動画数: 65, 視聴数: 14,493,624, いいね数: 261,206
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -82,7 +82,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,634,963, いいね数: 304,310
+-   動画数: 78, 視聴数: 16,635,505, いいね数: 304,311
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -122,7 +122,7 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,089,351, いいね数: 326,793
+-   動画数: 43, 視聴数: 20,093,939, いいね数: 326,833
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,956,673, いいね数: 141,247
 
 ---
-2025-12-12 13:00
+2025-12-12 20:00
