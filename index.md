@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【生配信】公明党・斉藤鉄夫代表 記者会見 12月12日（金）【ReHacQ】](/rehacq_fan/ids/rZbVfEl384I "wikilink")
+    -   公開日: 2025-12-12
+    -   視聴数: 729
+    -   **いいね数: 48**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/rZbVfEl384I/hqdefault.jpg)](https://www.youtube.com/watch?v=rZbVfEl384I)
+1.  [【生配信】立憲民主党・野田佳彦代表 記者会見12月12日（金）【ReHacQ】](/rehacq_fan/ids/kP44YIoAiHA "wikilink")
+    -   公開日: 2025-12-12
+    -   視聴数: 2,658
+    -   **いいね数: 15**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/kP44YIoAiHA/hqdefault.jpg)](https://www.youtube.com/watch?v=kP44YIoAiHA)
 1.  [【高橋弘樹vsダウンタウン番組P】激論！どうなるメディアの未来？ダウンタウンプラス疑惑の真相とは？【ReHacQ】](/rehacq_fan/ids/rPc3nSRxwKQ "wikilink")
     -   公開日: 2025-12-11
-    -   視聴数: 34,968
-    -   **いいね数: 447**
+    -   視聴数: 53,607
+    -   **いいね数: 645**
     -   出演者: 
     - [![](https://img.youtube.com/vi/rPc3nSRxwKQ/hqdefault.jpg)](https://www.youtube.com/watch?v=rPc3nSRxwKQ)
 1.  [【人手不足ニッポン】AIロボットは自動車産業の再来となるか？日本の現在地とは？【成田修造&河原塚健人&松嶋達也】](/rehacq_fan/ids/5MCCOV_hEFU "wikilink")
     -   公開日: 2025-12-11
-    -   視聴数: 8,749
-    -   **いいね数: 144**
+    -   視聴数: 11,056
+    -   **いいね数: 182**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5MCCOV_hEFU/hqdefault.jpg)](https://www.youtube.com/watch?v=5MCCOV_hEFU)
 1.  [【中国人vs中国人】激論！維新の会・石平vs吉永藍…中国の影は迫っているのか！？【ReHacQ須賀川拓】](/rehacq_fan/ids/VROdpKBCufQ "wikilink")
     -   公開日: 2025-12-10
-    -   視聴数: 74,143
-    -   **いいね数: 764**
+    -   視聴数: 75,911
+    -   **いいね数: 792**
     -   出演者: 
     - [![](https://img.youtube.com/vi/VROdpKBCufQ/hqdefault.jpg)](https://www.youtube.com/watch?v=VROdpKBCufQ)
-1.  [【高橋弘樹vs辞め社民党】副代表なぜ離党？「こういう歴史を…」心中激白【ReHacQvs新垣邦男】](/rehacq_fan/ids/5DZiHMPLgos "wikilink")
-    -   公開日: 2025-12-10
-    -   視聴数: 58,770
-    -   **いいね数: 552**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/5DZiHMPLgos/hqdefault.jpg)](https://www.youtube.com/watch?v=5DZiHMPLgos)
-1.  [【生配信・日本維新の会】議員定巣削減自動削減条項「国会は自分の身分に関わることは結論を出さない習性がある」馬場議員の解散発言にも言及【ReHacQ記者会見 12月10日(水)】](/rehacq_fan/ids/mWHOjJvWNKI "wikilink")
-    -   公開日: 2025-12-10
-    -   視聴数: 11,922
-    -   **いいね数: 171**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/mWHOjJvWNKI/hqdefault.jpg)](https://www.youtube.com/watch?v=mWHOjJvWNKI)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -58,7 +58,7 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 27, 視聴数: 2,236,555, いいね数: 33,211
+-   動画数: 29, 視聴数: 2,271,397, いいね数: 33,686
 
 #### [2025年11月](videos/202511 "wikilink")
 
@@ -66,7 +66,7 @@
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 22,879,278, いいね数: 334,093
+-   動画数: 102, 視聴数: 22,879,444, いいね数: 334,095
 
 #### [2025年09月](videos/202509 "wikilink")
 
@@ -74,15 +74,15 @@
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,481,798, いいね数: 261,174
+-   動画数: 65, 視聴数: 14,483,303, いいね数: 261,179
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 20,950,024, いいね数: 362,442
+-   動画数: 76, 視聴数: 20,959,473, いいね数: 362,540
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,633,101, いいね数: 304,281
+-   動画数: 78, 視聴数: 16,634,520, いいね数: 304,306
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -114,11 +114,11 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,630,019, いいね数: 341,782
+-   動画数: 72, 視聴数: 22,630,668, いいね数: 341,783
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,709,621, いいね数: 221,178
+-   動画数: 50, 視聴数: 14,713,445, いいね数: 221,180
 
 #### [2024年08月](videos/202408 "wikilink")
 
@@ -193,4 +193,4 @@
 -   動画数: 14, 視聴数: 7,956,673, いいね数: 141,247
 
 ---
-2025-12-12 07:00
+2025-12-12 12:00
