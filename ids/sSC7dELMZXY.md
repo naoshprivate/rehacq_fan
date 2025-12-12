@@ -1,6 +1,6 @@
 ### [【石丸伸二vs秘境の院長】千葉の未来は明るい？医院が目指す「断らない医療」とは【プリティ長嶋】](https://www.youtube.com/watch?v=sSC7dELMZXY)
 [![](https://img.youtube.com/vi/sSC7dELMZXY/sddefault.jpg)](https://www.youtube.com/watch?v=sSC7dELMZXY)
 -   公開日: 2024-12-01
--   視聴数: 178,044
--   **いいね数: 5,647**
+-   視聴数: 178,079
+-   **いいね数: 5,648**
 -   出演者: プリティ長嶋, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
