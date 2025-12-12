@@ -36,7 +36,7 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,774 (10)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,775 (10)
 1. [石丸伸二](/rehacq_fan/people/石丸伸二): 12,772 (135)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 8,479 (10)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,587 (134)
@@ -60,10 +60,10 @@
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 728,671 (10)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 591,506 (135)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 728,957 (10)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 591,539 (135)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 559,351 (134)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 508,375 (220)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 508,395 (220)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 495,047 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 462,387 (19)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 445,080 (10)
@@ -71,12 +71,12 @@
 1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 402,770 (13)
 1. [テスタ](/rehacq_fan/people/テスタ): 402,435 (12)
 1. [ふゆこ](/rehacq_fan/people/ふゆこ): 398,679 (10)
-1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 397,313 (41)
-1. [後藤達也](/rehacq_fan/people/後藤達也): 383,083 (149)
+1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 397,314 (41)
+1. [後藤達也](/rehacq_fan/people/後藤達也): 383,095 (149)
 1. [安野貴博](/rehacq_fan/people/安野貴博): 379,514 (16)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 378,699 (19)
 1. [川上量生](/rehacq_fan/people/川上量生): 338,076 (31)
-1. [スーツ](/rehacq_fan/people/スーツ): 313,309 (19)
+1. [スーツ](/rehacq_fan/people/スーツ): 313,315 (19)
 1. [馬場伸幸](/rehacq_fan/people/馬場伸幸): 308,506 (10)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 300,879 (676)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 300,913 (676)
 1. [内田稔](/rehacq_fan/people/内田稔): 296,916 (10)
