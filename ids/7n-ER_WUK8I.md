@@ -3,4 +3,4 @@
 -   公開日: 2025-05-24
 -   視聴数: 369,409
 -   **いいね数: 3,191**
--   出演者: 西田二郎, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+-   出演者: [西田二郎](/rehacq_fan/people/西田二郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")

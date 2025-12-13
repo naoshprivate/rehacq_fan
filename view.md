@@ -237,8 +237,8 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
-    -   視聴数: 1,320,964
-    -   **いいね数: 15,109**
+    -   視聴数: 1,330,471
+    -   **いいね数: 15,175**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs立憲民主党②】小西洋之が激怒…一体なぜ？【中谷一馬vs高橋弘樹vs西田亮介】](/rehacq_fan/ids/jfuZDsUN4JY "wikilink")
     -   公開日: 2024-10-13
@@ -297,7 +297,7 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvs自民党税調会長】緊急参戦！宮沢洋一がすべて告白！103万の壁…決着の裏側【ReHacQ西田亮介&高橋弘樹】](/rehacq_fan/ids/mf37-gaqcFE "wikilink")
     -   公開日: 2025-04-06
-    -   視聴数: 1,141,576
+    -   視聴数: 1,141,745
     -   **いいね数: 21,385**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 宮沢洋一, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【石丸伸二vsひろゆきvs辞めTBS】ガチで大混乱！トランプ再選でメキシコ国境で移民パニック【ReHacQ高橋弘樹】](/rehacq_fan/ids/xVW1qk9pj9s "wikilink")
@@ -475,6 +475,11 @@
     -   視聴数: 949,978
     -   **いいね数: 15,169**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 門隆志
+1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
+    -   公開日: 2025-09-30
+    -   視聴数: 937,197
+    -   **いいね数: 9,127**
+    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔vs東浩紀】絶望感の正体は？日本の闇【ガチすぎ本音トーク】](/rehacq_fan/ids/B7bchnNcYhI "wikilink")
     -   公開日: 2023-10-07
     -   視聴数: 929,509
@@ -495,8 +500,3 @@
     -   視聴数: 922,258
     -   **いいね数: 18,147**
     -   出演者: 福永活也, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs近藤大介】中国人と日本人は似てると思うと失敗する？習近平はどこへ向かうのか？【ReHacQ中国経済SP】](/rehacq_fan/ids/MBD3k2kLnD8 "wikilink")
-    -   公開日: 2025-09-30
-    -   視聴数: 921,773
-    -   **いいね数: 9,025**
-    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
