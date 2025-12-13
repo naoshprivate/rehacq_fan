@@ -152,8 +152,8 @@
     -   出演者: 熊高昌三, [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
-    -   視聴数: 2,278,345
-    -   **いいね数: 23,422**
+    -   視聴数: 2,282,955
+    -   **いいね数: 23,457**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】ちょっとだけ大切なお知らせ…兵庫県知事選に関して【神戸新聞さん…ランチしましょう】](/rehacq_fan/ids/0P-1c-mn2mc "wikilink")
     -   公開日: 2024-12-08
@@ -375,16 +375,16 @@
     -   視聴数: 773,724
     -   **いいね数: 16,405**
     -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [立花孝志](/rehacq_fan/people/立花孝志 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
+1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
+    -   公開日: 2024-03-02
+    -   視聴数: 1,450,872
+    -   **いいね数: 16,276**
+    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔、唖然】欲望地獄と資本主義、生きる道は？【エンタメ系IT起業家の激白】](/rehacq_fan/ids/4t0yL-uIfUA "wikilink")
     -   公開日: 2023-03-26
     -   視聴数: 843,031
     -   **いいね数: 16,270**
     -   出演者: 小野龍光, [成田悠輔](/rehacq_fan/people/成田悠輔 "wikilink")
-1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
-    -   公開日: 2024-03-02
-    -   視聴数: 1,448,435
-    -   **いいね数: 16,258**
-    -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【中田敦彦vs高橋弘樹】衝撃告白！兵庫県知事選&自民党総裁選…大物出演の裏側とは？【ReHacQ &YouTube大学コラボ】](/rehacq_fan/ids/ZnXwCAVJ7Gs "wikilink")
     -   公開日: 2024-12-28
     -   視聴数: 859,542

@@ -47,8 +47,8 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [河村たかし](/rehacq_fan/people/河村たかし "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【成田悠輔が推薦の天才】相対性理論！６歳にわかるように説明してみよう！【ReHacQvsUCバークレー】](/rehacq_fan/ids/hio2XdBPW5Y "wikilink")
     -   公開日: 2024-02-24
-    -   視聴数: 2,278,345
-    -   **いいね数: 23,422**
+    -   視聴数: 2,282,955
+    -   **いいね数: 23,457**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【斎藤元彦vs高橋弘樹】再選から一夜...兵庫県これからどうなる？【ReHacQ緊急生配信】](/rehacq_fan/ids/H_e67-Dxr8o "wikilink")
     -   公開日: 2024-11-18
@@ -182,8 +182,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink")
 1.  [【成田悠輔が推薦の天才】シン量子力学！6歳にわかるように説明してみよう！【ReHacQvs野村泰紀】](/rehacq_fan/ids/DEG9OZoYzIU "wikilink")
     -   公開日: 2024-03-02
-    -   視聴数: 1,448,435
-    -   **いいね数: 16,258**
+    -   視聴数: 1,450,872
+    -   **いいね数: 16,276**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs鈴木おさむ】SMAP生んだ天才・謎のP！初めて明かされる仕事術【リスクマネジメントの鬼】](/rehacq_fan/ids/7PgJY5fY5NY "wikilink")
     -   公開日: 2024-04-26
@@ -227,13 +227,13 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [安野貴博](/rehacq_fan/people/安野貴博 "wikilink"), [岩田明子](/rehacq_fan/people/岩田明子 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [菅野志桜里](/rehacq_fan/people/菅野志桜里 "wikilink")
 1.  [【成田悠輔も推薦の天才】時間が戻らないのは「統計」に過ぎない！物理学と時間の深淵に迫る！【野村泰紀vs高橋弘樹】](/rehacq_fan/ids/If8msXol9zo "wikilink")
     -   公開日: 2024-07-27
-    -   視聴数: 1,350,688
-    -   **いいね数: 13,771**
+    -   視聴数: 1,356,631
+    -   **いいね数: 13,807**
     -   出演者: [野村泰紀](/rehacq_fan/people/野村泰紀 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【成田悠輔が推薦】宇宙と超弦理論！６歳にわかるように説明してみよう！【マルチバース】](/rehacq_fan/ids/4yiyaq0q6xQ "wikilink")
     -   公開日: 2024-03-09
-    -   視聴数: 1,331,982
-    -   **いいね数: 14,498**
+    -   視聴数: 1,334,662
+    -   **いいね数: 14,517**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
