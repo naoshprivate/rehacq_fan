@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/T_e8jcwTWMQ/sddefault.jpg)](https://www.youtube.com/watch?v=T_e8jcwTWMQ)
 -   公開日: 2024-12-17
 -   視聴数: 80,844
--   **いいね数: 1,176**
+-   **いいね数: 1,174**
 -   出演者: [クックジュリアン聖也](/rehacq_fan/people/クックジュリアン聖也 "wikilink"), [成田修造](/rehacq_fan/people/成田修造 "wikilink"), [登坂淳一](/rehacq_fan/people/登坂淳一 "wikilink")
