@@ -1,6 +1,6 @@
 ### [【ひろゆきvs睡眠】日本人に警鐘！睡眠不足の原因は…【ReHacQvs櫻井武】](https://www.youtube.com/watch?v=zRpW5kKnLOY)
 [![](https://img.youtube.com/vi/zRpW5kKnLOY/sddefault.jpg)](https://www.youtube.com/watch?v=zRpW5kKnLOY)
 -   公開日: 2025-12-14
--   視聴数: 73,511
--   **いいね数: 1,118**
+-   視聴数: 75,221
+-   **いいね数: 1,127**
 -   出演者: 

@@ -711,62 +711,62 @@
     -   出演者: 吉見俊哉, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【中国大使館元外交官が緊急解説】トランプ関税145％...！米中貿易戦争の行方は？習近平何考えてる？【ReHacQ経済・森本智子】](/rehacq_fan/ids/sorUSlXYB2Y "wikilink")
     -   公開日: 2025-04-18
-    -   視聴数: 57,656
+    -   視聴数: 57,704
     -   **いいね数: 519**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), 町田穂高
 1.  [【緊急配信】トランプ日米関税交渉出席...トランプの思考ガチ解読！安倍外交のキーマンが秘話激白【高橋弘樹vs河井克行vs細川昌彦】](/rehacq_fan/ids/iTdntttk5Uk "wikilink")
     -   公開日: 2025-04-16
-    -   視聴数: 173,186
+    -   視聴数: 173,191
     -   **いいね数: 1,743**
     -   出演者: [河井克行](/rehacq_fan/people/河井克行 "wikilink"), 細川昌彦, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【トランプ関税＆株価】激動の米国株日本株…激動マーケットの展望とは？【野沢春日vsReHacQ】](/rehacq_fan/ids/Z1pei6JbgD8 "wikilink")
     -   公開日: 2025-04-15
-    -   視聴数: 47,269
+    -   視聴数: 47,270
     -   **いいね数: 419**
     -   出演者: [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), [野沢春日](/rehacq_fan/people/野沢春日 "wikilink")
 1.  [【トランプ混乱経済】日本人、もう家を買えない...住宅ローン&不動産価格は？不動産アニキ緊急出演！これからの資産の作り方とは【須黒清華vsReHacQ】](/rehacq_fan/ids/Ikbj4G7pObU "wikilink")
     -   公開日: 2025-04-14
-    -   視聴数: 91,604
+    -   視聴数: 91,611
     -   **いいね数: 821**
     -   出演者: 塩澤崇, 小林大祐, [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [【衝撃の最終兵器】「政治と金」問題に激震…岸田総理は1.8億円！玉木雄一郎代表は…？政治家のお金の流れ全部サクッと検索！衝撃ツールとは!?【自民党&国民民主党&立憲民主党&維新…ReHacQ】](/rehacq_fan/ids/3Hfpr-_7Ykg "wikilink")
     -   公開日: 2025-04-13
-    -   視聴数: 2,672,439
-    -   **いいね数: 40,075**
+    -   視聴数: 2,673,742
+    -   **いいね数: 40,068**
     -   出演者: [西田尚史](/rehacq_fan/people/西田尚史 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【トランプ関税交渉どうなる？】国内株、物価高…いま日本がとるべき対応は？【野沢春日vsReHacQ】](/rehacq_fan/ids/yPvqvpvKOS0 "wikilink")
     -   公開日: 2025-04-12
-    -   視聴数: 61,661
+    -   視聴数: 61,664
     -   **いいね数: 585**
     -   出演者: [熊野英生](/rehacq_fan/people/熊野英生 "wikilink"), [野沢春日](/rehacq_fan/people/野沢春日 "wikilink")
 1.  [【高橋弘樹vs天才読書家】国語でなぜ森鴎外と芥川龍之介読む？心震える名文とは【三宅香帆inReHacQ】](/rehacq_fan/ids/XMCys46muUI "wikilink")
     -   公開日: 2025-04-12
-    -   視聴数: 166,836
-    -   **いいね数: 2,791**
+    -   視聴数: 168,291
+    -   **いいね数: 2,805**
     -   出演者: [三宅香帆](/rehacq_fan/people/三宅香帆 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【トランプ関税の落し穴】日経平均は戻る？米国トリプル安の衝撃【ReHacQ高橋弘樹vs大和証券・末廣徹】](/rehacq_fan/ids/fmbiFd9DKU8 "wikilink")
     -   公開日: 2025-04-11
-    -   視聴数: 372,277
-    -   **いいね数: 3,265**
+    -   視聴数: 372,283
+    -   **いいね数: 3,264**
     -   出演者: [末廣徹](/rehacq_fan/people/末廣徹 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【トランプ急転】関税90日停止...本丸は為替？株価とNISAは？急転世界経済...米中貿易戦争どうなる【唐鎌大輔vs須黒清華】](/rehacq_fan/ids/MMwMk6u7rFE "wikilink")
     -   公開日: 2025-04-10
-    -   視聴数: 197,344
-    -   **いいね数: 1,826**
+    -   視聴数: 197,347
+    -   **いいね数: 1,825**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 1,291,823
-    -   **いいね数: 31,025**
+    -   視聴数: 1,294,759
+    -   **いいね数: 31,031**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【トランプ関税】中国に計104%も…今後の中国リスクとは？【ReHacQ経済】](/rehacq_fan/ids/U4ArlC5drBE "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 288,353
+    -   視聴数: 288,421
     -   **いいね数: 1,933**
     -   出演者: [須黒清華](/rehacq_fan/people/須黒清華 "wikilink"), [高口康太](/rehacq_fan/people/高口康太 "wikilink")
 1.  [【日経平均急落】トランプ関税と世界同時株安...日本経済の最新見通しは？NISAどうする？【ReHacQエコノミスト緊急生配信】](/rehacq_fan/ids/A4ZYHr8VBKg "wikilink")
     -   公開日: 2025-04-07
-    -   視聴数: 255,003
+    -   視聴数: 255,125
     -   **いいね数: 2,809**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [須黒清華](/rehacq_fan/people/須黒清華 "wikilink")
 1.  [【高橋弘樹vs天才読書家】教養としての文学！本読むため会社辞めた訳！AKB48と万葉集…永井荷風と谷崎潤一郎【三宅香帆inReHacQ】](/rehacq_fan/ids/ZARl6uTUSX0 "wikilink")
@@ -2385,8 +2385,8 @@
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [門間一夫](/rehacq_fan/people/門間一夫 "wikilink")
 1.  [【高橋弘樹vs斎藤祐馬】起業3年目で崩壊の危機？生き残りをかけて高橋がついに動きだす](/rehacq_fan/ids/L8aOfMiWyvE "wikilink")
     -   公開日: 2025-07-28
-    -   視聴数: 139,710
-    -   **いいね数: 1,724**
+    -   視聴数: 139,765
+    -   **いいね数: 1,726**
     -   出演者: [斎藤祐馬](/rehacq_fan/people/斎藤祐馬 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【後藤達也vs川邊健太郎】サービスが変わる？AI時代の生存戦略【ReHacQ高橋弘樹】](/rehacq_fan/ids/0hjm24AnY8U "wikilink")
     -   公開日: 2025-07-24
@@ -3025,8 +3025,8 @@
     -   出演者: [宇根尚秀](/rehacq_fan/people/宇根尚秀 "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink")
 1.  [【元日銀→CEO】ビッグデータで物価を爆速解析！投資にも役立つ経済予測の最前線【後藤達也】](/rehacq_fan/ids/b2jjmE3K9hk "wikilink")
     -   公開日: 2023-04-14
-    -   視聴数: 123,594
-    -   **いいね数: 2,177**
+    -   視聴数: 123,618
+    -   **いいね数: 2,176**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [辻中仁士](/rehacq_fan/people/辻中仁士 "wikilink")
 1.  [【後藤達也vs日銀】円安、金融緩和…日銀はどんな仕事してる？【門間一夫&窪園博俊】](/rehacq_fan/ids/qVW3NqkLeSI "wikilink")
     -   公開日: 2023-03-31
@@ -5398,7 +5398,7 @@
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【けえ 島育ちvs高橋弘樹】なぜ？佐渡島ブーム到来のワケ【謎の町 両津とは？】](/rehacq_fan/ids/el7pU-wbUuM "wikilink")
     -   公開日: 2024-09-26
-    -   視聴数: 58,032
+    -   視聴数: 58,048
     -   **いいね数: 1,067**
     -   出演者: けえ, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【SUSURUおすすめ】日本のラーメンBest3とは！？【ビジネスパーソンのための趣味入門】](/rehacq_fan/ids/DUn_XNMd4Bc "wikilink")
@@ -5413,8 +5413,8 @@
     -   出演者: SUSURU, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東大vsReHacQ】受験のコツをまったり雑談【試験本当にだるい！だから…】](/rehacq_fan/ids/ssNzFS0AiTM "wikilink")
     -   公開日: 2024-02-12
-    -   視聴数: 147,309
-    -   **いいね数: 2,418**
+    -   視聴数: 149,106
+    -   **いいね数: 2,464**
     -   出演者: 河野玄斗
 1.  [【東大理ⅢvsReHacQ】河野玄斗と「勉強って楽しいよね」と雑談【弁護士・医師・会計士…全部合格】](/rehacq_fan/ids/XY7gWqzenxk "wikilink")
     -   公開日: 2024-02-09
@@ -5878,22 +5878,22 @@
 # プレイリスト (5): ハイパーハードボイルド議員立法
 1.  [【小泉進次郎vs高橋弘樹】規制ぶっ壊す！日本の隠れ大問題...進次郎熱弁「官公需」問題とは？自民はしがらみ断ち改革できる？【ReHacQvs自民党ハードボイルド議員】](/rehacq_fan/ids/92AneLWhbCA "wikilink")
     -   公開日: 2025-05-21
-    -   視聴数: 316,274
-    -   **いいね数: 4,200**
+    -   視聴数: 316,304
+    -   **いいね数: 4,198**
     -   出演者: 上月良祐, [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【小泉進次郎vs高橋弘樹】緊急参戦！話さねばならない事がある…生物部の本気【ReHacQ】](/rehacq_fan/ids/CxCW7stKT8 "wikilink")
     -   公開日: 2025-05-17
-    -   視聴数: 354,229
+    -   視聴数: 354,272
     -   **いいね数: 4,926**
     -   出演者: [小泉進次郎](/rehacq_fan/people/小泉進次郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主党が激論】中年を国が見捨てた？氷河期世代は一生悲惨なのか？【ReHacQvs伊藤孝恵vs工藤啓vs高橋弘樹】](/rehacq_fan/ids/WhAJQa1xNow "wikilink")
     -   公開日: 2025-02-10
-    -   視聴数: 216,155
+    -   視聴数: 216,166
     -   **いいね数: 3,177**
     -   出演者: [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【国民民主が激怒】日本の危機！氷河期世代対策が日本再生の肝！2025年、中年立法目指す？【伊藤孝恵vs高橋弘樹vs工藤啓ReHacQ】](/rehacq_fan/ids/HQgNpXwglmA "wikilink")
     -   公開日: 2025-02-03
-    -   視聴数: 273,965
+    -   視聴数: 273,979
     -   **いいね数: 4,295**
     -   出演者: [伊藤孝恵](/rehacq_fan/people/伊藤孝恵 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
@@ -5959,12 +5959,12 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [久保駿貴](/rehacq_fan/people/久保駿貴 "wikilink"), 瀧本博史, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】面接官としての極意…就活生の課題解消【AI面接とは？】](/rehacq_fan/ids/6_uAZJ6b8B4 "wikilink")
     -   公開日: 2024-12-07
-    -   視聴数: 181,836
-    -   **いいね数: 4,165**
+    -   視聴数: 181,975
+    -   **いいね数: 4,168**
     -   出演者: [久保駿貴](/rehacq_fan/people/久保駿貴 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】テレビvs銀行！ポンコツ就活塾【令和の就活とは？】](/rehacq_fan/ids/zIbfrBVqDSY "wikilink")
     -   公開日: 2024-11-30
-    -   視聴数: 297,798
+    -   視聴数: 297,852
     -   **いいね数: 6,575**
     -   出演者: [久保駿貴](/rehacq_fan/people/久保駿貴 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
@@ -5993,23 +5993,23 @@
 # プレイリスト (4): Zストリーム
 1.  [【ReHacQ戦争リアル】第二次世界大戦の記憶AIで残せ！東大生の挑戦【高橋弘樹】](/rehacq_fan/ids/ZMPqAVaMTnE "wikilink")
     -   公開日: 2024-03-31
-    -   視聴数: 29,165
-    -   **いいね数: 647**
+    -   視聴数: 29,168
+    -   **いいね数: 648**
     -   出演者: 庭田杏珠
 1.  [【ReHacQvs東大生】戦争が壊した記憶！甦れ【AIと対話で奇跡の復活】](/rehacq_fan/ids/XBjt-VicRSM "wikilink")
     -   公開日: 2024-03-14
-    -   視聴数: 34,890
+    -   視聴数: 34,899
     -   **いいね数: 735**
     -   出演者: 庭田杏珠
 1.  [【孫正義の後継塾】インドのヤンキー高校へ入学！起業のワケ【慶應大学３年】](/rehacq_fan/ids/QG7ReAw64IM "wikilink")
     -   公開日: 2023-12-05
-    -   視聴数: 123,175
-    -   **いいね数: 2,040**
+    -   視聴数: 123,232
+    -   **いいね数: 2,041**
     -   出演者: [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
 1.  [【孫正義の後継塾】インド人向けメディア売却！Ｚ世代の学生起業家の野望【高橋史好】](/rehacq_fan/ids/1Q7vkYMwAlY "wikilink")
     -   公開日: 2023-12-01
-    -   視聴数: 90,612
-    -   **いいね数: 1,445**
+    -   視聴数: 90,653
+    -   **いいね数: 1,446**
     -   出演者: [高橋史好](/rehacq_fan/people/高橋史好 "wikilink")
 
 # プレイリスト (3): ひろゆきの賠償金支払い旅

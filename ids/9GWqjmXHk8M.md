@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsエリート女性議員】医師・官僚を経てなぜ政治家に？ママさん議員の苦悩激白...【ReHacQvs国光あやの】](https://www.youtube.com/watch?v=9GWqjmXHk8M)
 [![](https://img.youtube.com/vi/9GWqjmXHk8M/sddefault.jpg)](https://www.youtube.com/watch?v=9GWqjmXHk8M)
 -   公開日: 2025-09-11
--   視聴数: 108,891
--   **いいね数: 1,898**
+-   視聴数: 109,013
+-   **いいね数: 1,899**
 -   出演者: [国光あやの](/rehacq_fan/people/国光あやの "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
