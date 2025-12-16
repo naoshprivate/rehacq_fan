@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs毒殺の日本史】衝撃のかぐや姫！藤原仲麻呂の正体は？吉備真備、激怒…【ReHacQ R大学】](https://www.youtube.com/watch?v=VS4g1lSahEo)
 [![](https://img.youtube.com/vi/VS4g1lSahEo/sddefault.jpg)](https://www.youtube.com/watch?v=VS4g1lSahEo)
 -   公開日: 2025-12-13
--   視聴数: 89,387
--   **いいね数: 1,409**
+-   視聴数: 90,124
+-   **いいね数: 1,422**
 -   出演者: 船山信次, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
