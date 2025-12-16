@@ -36,8 +36,8 @@
 
 # 平均いいね数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,775 (10)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 12,775 (135)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 13,776 (10)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 12,778 (135)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 8,480 (10)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 7,588 (134)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 7,560 (32)
@@ -50,7 +50,7 @@
 1. [野村泰紀](/rehacq_fan/people/野村泰紀): 5,618 (23)
 1. [後藤達也](/rehacq_fan/people/後藤達也): 5,368 (149)
 1. [スーツ](/rehacq_fan/people/スーツ): 4,652 (19)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,586 (680)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 4,587 (680)
 1. [内田稔](/rehacq_fan/people/内田稔): 4,449 (10)
 1. [川上量生](/rehacq_fan/people/川上量生): 4,360 (31)
 1. [テスタ](/rehacq_fan/people/テスタ): 4,117 (12)
@@ -60,10 +60,10 @@
 
 # 平均視聴数ランキング
 
-1. [吉村洋文](/rehacq_fan/people/吉村洋文): 729,584 (10)
-1. [石丸伸二](/rehacq_fan/people/石丸伸二): 592,174 (135)
+1. [吉村洋文](/rehacq_fan/people/吉村洋文): 729,808 (10)
+1. [石丸伸二](/rehacq_fan/people/石丸伸二): 592,404 (135)
 1. [西田亮介](/rehacq_fan/people/西田亮介): 559,936 (134)
-1. [ひろゆき](/rehacq_fan/people/ひろゆき): 509,070 (220)
+1. [ひろゆき](/rehacq_fan/people/ひろゆき): 509,087 (220)
 1. [成田悠輔](/rehacq_fan/people/成田悠輔): 495,230 (32)
 1. [東出昌大](/rehacq_fan/people/東出昌大): 464,723 (19)
 1. [音喜多駿](/rehacq_fan/people/音喜多駿): 445,818 (10)
@@ -71,12 +71,12 @@
 1. [テスタ](/rehacq_fan/people/テスタ): 403,117 (12)
 1. [宇佐美典也](/rehacq_fan/people/宇佐美典也): 402,909 (13)
 1. [ふゆこ](/rehacq_fan/people/ふゆこ): 400,514 (10)
-1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 397,724 (41)
-1. [後藤達也](/rehacq_fan/people/後藤達也): 383,622 (149)
+1. [玉木雄一郎](/rehacq_fan/people/玉木雄一郎): 397,739 (41)
+1. [後藤達也](/rehacq_fan/people/後藤達也): 383,629 (149)
 1. [安野貴博](/rehacq_fan/people/安野貴博): 379,965 (16)
 1. [箕輪厚介](/rehacq_fan/people/箕輪厚介): 379,290 (19)
 1. [川上量生](/rehacq_fan/people/川上量生): 338,246 (31)
-1. [スーツ](/rehacq_fan/people/スーツ): 313,922 (19)
+1. [スーツ](/rehacq_fan/people/スーツ): 313,930 (19)
 1. [馬場伸幸](/rehacq_fan/people/馬場伸幸): 309,004 (10)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 301,527 (680)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 301,600 (680)
 1. [内田稔](/rehacq_fan/people/内田稔): 297,366 (10)
