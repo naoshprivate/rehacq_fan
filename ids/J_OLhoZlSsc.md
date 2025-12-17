@@ -1,6 +1,6 @@
 ### [【激論！西田亮介の正体】日本大学教授が集結…普段何してる？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=J_OLhoZlSsc)
 [![](https://img.youtube.com/vi/J_OLhoZlSsc/sddefault.jpg)](https://www.youtube.com/watch?v=J_OLhoZlSsc)
 -   公開日: 2025-12-17
--   視聴数: 33
--   **いいね数: 28**
+-   視聴数: 9,826
+-   **いいね数: 290**
 -   出演者: 
