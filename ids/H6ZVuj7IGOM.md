@@ -1,6 +1,6 @@
 ### [【豊臣兄弟！】ブラック企業織田家…謎に包まれた豊臣秀吉の出世術とは？【ReHacQ高橋弘樹vs呉座勇一】](https://www.youtube.com/watch?v=H6ZVuj7IGOM)
 [![](https://img.youtube.com/vi/H6ZVuj7IGOM/sddefault.jpg)](https://www.youtube.com/watch?v=H6ZVuj7IGOM)
 -   公開日: 2025-12-18
--   視聴数: 5,647
--   **いいね数: 221**
+-   視聴数: 10,691
+-   **いいね数: 312**
 -   出演者: 
