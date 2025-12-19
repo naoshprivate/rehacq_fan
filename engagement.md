@@ -78,5 +78,5 @@
 1. [川上量生](/rehacq_fan/people/川上量生): 338,352 (31)
 1. [スーツ](/rehacq_fan/people/スーツ): 314,434 (19)
 1. [馬場伸幸](/rehacq_fan/people/馬場伸幸): 309,167 (10)
-1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 300,663 (685)
+1. [高橋弘樹](/rehacq_fan/people/高橋弘樹): 300,665 (685)
 1. [内田稔](/rehacq_fan/people/内田稔): 297,411 (10)
