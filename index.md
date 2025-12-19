@@ -1,32 +1,32 @@
 # 最近の動画
 1.  [【ひろゆきvs睡眠不足】人工冬眠で寿命150歳！？睡眠と年齢の関係とは【ReHacQvs櫻井武】](/rehacq_fan/ids/KE_lex9P9DY "wikilink")
     -   公開日: 2025-12-19
-    -   視聴数: 2
-    -   **いいね数: 11**
+    -   視聴数: 3,116
+    -   **いいね数: 97**
     -   出演者: 
     - [![](https://img.youtube.com/vi/KE_lex9P9DY/hqdefault.jpg)](https://www.youtube.com/watch?v=KE_lex9P9DY)
 1.  [Keep the YouTube Algorithm Clean - Step by Step Guide](/rehacq_fan/ids/il7Zwo--sJY "wikilink")
     -   公開日: 2025-12-19
-    -   視聴数: 26
-    -   **いいね数: 1**
+    -   視聴数: 100
+    -   **いいね数: 23**
     -   出演者: 
     - [![](https://img.youtube.com/vi/il7Zwo--sJY/hqdefault.jpg)](https://www.youtube.com/watch?v=il7Zwo--sJY)
 1.  [【日銀・利上げ】植田総裁の決断…中立金利見直しを市場はどう読んだ？【永濱利廣＆原田泰＆森本智子＆ReHacQ】](/rehacq_fan/ids/5VCztzMAgNg "wikilink")
     -   公開日: 2025-12-19
-    -   視聴数: 11,929
-    -   **いいね数: 213**
+    -   視聴数: 17,696
+    -   **いいね数: 241**
     -   出演者: 
     - [![](https://img.youtube.com/vi/5VCztzMAgNg/hqdefault.jpg)](https://www.youtube.com/watch?v=5VCztzMAgNg)
 1.  [View the subsequent content through the homepage link#usa      #shortsvideo    #newyork](/rehacq_fan/ids/8-IsYEt9PCw "wikilink")
     -   公開日: 2025-12-19
-    -   視聴数: 6,049
-    -   **いいね数: 151**
+    -   視聴数: 7,740
+    -   **いいね数: 175**
     -   出演者: 
     - [![](https://img.youtube.com/vi/8-IsYEt9PCw/hqdefault.jpg)](https://www.youtube.com/watch?v=8-IsYEt9PCw)
 1.  [View the subsequent content through the homepage link#usa      #shortsvideo    #newyork](/rehacq_fan/ids/ih1goMtaug8 "wikilink")
     -   公開日: 2025-12-19
-    -   視聴数: 504
-    -   **いいね数: 22**
+    -   視聴数: 610
+    -   **いいね数: 94**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ih1goMtaug8/hqdefault.jpg)](https://www.youtube.com/watch?v=ih1goMtaug8)
 
@@ -64,23 +64,23 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 73, 視聴数: 4,669,593, いいね数: 69,479
+-   動画数: 74, 視聴数: 4,688,485, いいね数: 69,865
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 10,857,624, いいね数: 161,022
+-   動画数: 79, 視聴数: 10,858,230, いいね数: 161,022
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,026,030, いいね数: 335,243
+-   動画数: 102, 視聴数: 23,030,798, いいね数: 335,278
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,156,200, いいね数: 268,450
+-   動画数: 87, 視聴数: 16,157,005, いいね数: 268,452
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,545,208, いいね数: 261,412
+-   動画数: 65, 視聴数: 14,545,346, いいね数: 261,410
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -88,7 +88,7 @@
 
 #### [2025年06月](videos/202506 "wikilink")
 
--   動画数: 78, 視聴数: 16,693,655, いいね数: 304,813
+-   動画数: 78, 視聴数: 16,695,338, いいね数: 304,810
 
 #### [2025年05月](videos/202505 "wikilink")
 
@@ -112,23 +112,23 @@
 
 #### [2024年12月](videos/202412 "wikilink")
 
--   動画数: 60, 視聴数: 18,563,969, いいね数: 309,627
+-   動画数: 60, 視聴数: 18,564,087, いいね数: 309,630
 
 #### [2024年11月](videos/202411 "wikilink")
 
--   動画数: 38, 視聴数: 22,314,507, いいね数: 380,049
+-   動画数: 38, 視聴数: 22,315,400, いいね数: 380,050
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,687,723, いいね数: 342,028
+-   動画数: 72, 視聴数: 22,688,089, いいね数: 342,029
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,757,523, いいね数: 221,446
+-   動画数: 50, 視聴数: 14,757,613, いいね数: 221,447
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,135,844, いいね数: 327,175
+-   動画数: 43, 視聴数: 20,135,871, いいね数: 327,175
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,968,959, いいね数: 141,272
 
 ---
-2025-12-19 21:00
+2025-12-19 22:00
