@@ -1,6 +1,6 @@
 ### [【入試革命】本当に頭のいい子が育つ!? 偏差値より必須の「10 マインド」とは？【河村真木子&孫辰洋&ReHacQ】](https://www.youtube.com/watch?v=vzOSIbfsYaE)
 [![](https://img.youtube.com/vi/vzOSIbfsYaE/sddefault.jpg)](https://www.youtube.com/watch?v=vzOSIbfsYaE)
 -   公開日: 2025-12-16
--   視聴数: 64,811
--   **いいね数: 862**
+-   視聴数: 65,625
+-   **いいね数: 872**
 -   出演者: 孫辰洋, [河村真木子](/rehacq_fan/people/河村真木子 "wikilink")
