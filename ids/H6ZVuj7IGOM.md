@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs呉座勇一】戦国時代のウソ！豊臣秀吉の正体とは？歴史に騙されない方法【ReHacQvs織田信長の真実】](https://www.youtube.com/watch?v=H6ZVuj7IGOM)
 [![](https://img.youtube.com/vi/H6ZVuj7IGOM/sddefault.jpg)](https://www.youtube.com/watch?v=H6ZVuj7IGOM)
 -   公開日: 2025-12-18
--   視聴数: 63,879
--   **いいね数: 1,060**
+-   視聴数: 130,444
+-   **いいね数: 1,969**
 -   出演者: 
