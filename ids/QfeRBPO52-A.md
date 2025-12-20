@@ -1,6 +1,6 @@
 ### [【高橋弘樹vs伊藤忠の超エース】上司は岡藤正広！42歳でイタリアの伊藤忠社長に…なぜ辞めた？【ReHacQ】](https://www.youtube.com/watch?v=QfeRBPO52-A)
 [![](https://img.youtube.com/vi/QfeRBPO52-A/sddefault.jpg)](https://www.youtube.com/watch?v=QfeRBPO52-A)
 -   公開日: 2025-02-22
--   視聴数: 640,301
--   **いいね数: 6,065**
+-   視聴数: 643,785
+-   **いいね数: 6,081**
 -   出演者: 渡邊勝, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
