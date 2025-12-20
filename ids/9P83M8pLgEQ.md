@@ -1,6 +1,6 @@
 ### [【須賀川拓vsネクストユニコーンCEO】核融合は2030年代に実現する？国内初の核融合スタートアップCEOが語る「夢のエネルギー」の未来【スザンヌ】](https://www.youtube.com/watch?v=9P83M8pLgEQ)
 [![](https://img.youtube.com/vi/9P83M8pLgEQ/sddefault.jpg)](https://www.youtube.com/watch?v=9P83M8pLgEQ)
 -   公開日: 2025-09-22
--   視聴数: 76,770
--   **いいね数: 929**
+-   視聴数: 77,086
+-   **いいね数: 932**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 小西哲之, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
