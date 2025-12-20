@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/eq_Er-muZSA/sddefault.jpg)](https://www.youtube.com/watch?v=eq_Er-muZSA)
 -   公開日: 2025-12-20
 -   視聴数: 2
--   **いいね数: 6**
+-   **いいね数: 29**
 -   出演者: 
