@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsホテル経営】海一列目の土地の仕入れ方とは？剛腕ホテル経営者に迫る【スザンヌ】](https://www.youtube.com/watch?v=cArxlcmmv54)
 [![](https://img.youtube.com/vi/cArxlcmmv54/sddefault.jpg)](https://www.youtube.com/watch?v=cArxlcmmv54)
 -   公開日: 2024-12-23
--   視聴数: 48,435
--   **いいね数: 486**
+-   視聴数: 48,499
+-   **いいね数: 487**
 -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
