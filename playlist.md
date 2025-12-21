@@ -131,13 +131,13 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【藤井隆vs高橋弘樹】とにかく褒められたい！芸歴34年の末にたどり着いた仕事を楽しむ秘訣とは？【ReHacQ】](/rehacq_fan/ids/jSDZp7qoW0Q "wikilink")
     -   公開日: 2025-07-17
-    -   視聴数: 199,893
-    -   **いいね数: 4,449**
+    -   視聴数: 200,093
+    -   **いいね数: 4,450**
     -   出演者: 藤井隆, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹 vs AIのプロ】使えなければ時代遅れ!? 生成AI導入で成功の鍵とは？【ReHacQ】](/rehacq_fan/ids/2_1d8DR7m4g "wikilink")
     -   公開日: 2025-07-17
-    -   視聴数: 39,610
-    -   **いいね数: 535**
+    -   視聴数: 39,632
+    -   **いいね数: 537**
     -   出演者: 泉もとき, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【福島みずほvs高橋弘樹】社会民主党にNG無し質問！【ReHacQvs社民党】](/rehacq_fan/ids/lakGjhOBAdw "wikilink")
     -   公開日: 2025-07-16
@@ -1331,112 +1331,112 @@
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【トランプなぜ人気】アメリカの病…アベノミクスのブレーンが激白【浜田宏一vs内田舞】](/rehacq_fan/ids/bxVG9kGWON8 "wikilink")
     -   公開日: 2024-08-13
-    -   視聴数: 95,475
+    -   視聴数: 95,500
     -   **いいね数: 1,405**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), 浜田宏一
 1.  [【新NISAどう守る？】日銀利上げ、株価大暴落…円安は続くのか？【唐鎌大輔vs元WBSキャスター】](/rehacq_fan/ids/y729kavIyK4 "wikilink")
     -   公開日: 2024-08-09
-    -   視聴数: 116,431
+    -   視聴数: 116,441
     -   **いいね数: 1,480**
     -   出演者: [唐鎌大輔](/rehacq_fan/people/唐鎌大輔 "wikilink")
 1.  [【石丸伸二vs後藤達也】なぜ銀行？まさかの就職理由…尊敬！衝撃の有名上司とは？【まさかの大物金融マン】](/rehacq_fan/ids/-67Yfoti-W0 "wikilink")
     -   公開日: 2024-08-07
-    -   視聴数: 1,155,276
-    -   **いいね数: 21,057**
+    -   視聴数: 1,155,653
+    -   **いいね数: 21,054**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
-    -   視聴数: 1,292,508
-    -   **いいね数: 21,448**
+    -   視聴数: 1,295,388
+    -   **いいね数: 21,447**
     -   出演者: [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【キーパーソン激論】日本の生成AIぶっちゃけどうなる？【東大松尾豊vs自民平将明】](/rehacq_fan/ids/7jIePgvGXMs "wikilink")
     -   公開日: 2024-07-22
-    -   視聴数: 110,324
+    -   視聴数: 110,453
     -   **いいね数: 1,505**
     -   出演者: [平将明](/rehacq_fan/people/平将明 "wikilink"), [松尾豊](/rehacq_fan/people/松尾豊 "wikilink"), 渡辺琢也
 1.  [【自民党AI座長vs松尾豊】天才AI研究者がガチ激論！生成AIの未来【平将明vs経産省】](/rehacq_fan/ids/13FyudKBmPQ "wikilink")
     -   公開日: 2024-07-17
-    -   視聴数: 130,898
-    -   **いいね数: 2,395**
+    -   視聴数: 130,924
+    -   **いいね数: 2,396**
     -   出演者: [平将明](/rehacq_fan/people/平将明 "wikilink"), [松尾豊](/rehacq_fan/people/松尾豊 "wikilink"), 渡辺琢也
 1.  [【石丸伸二を挑発】真相暴露！小池百合子の選対メディア責任者「なぜ討論会出なかった？」【蓮舫陣営の説明に反論】](/rehacq_fan/ids/G0sBGfRyWXA "wikilink")
     -   公開日: 2024-07-12
-    -   視聴数: 362,330
+    -   視聴数: 362,336
     -   **いいね数: 3,270**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【日産前社長】ゴーン海外逃亡の舞台裏...従業員12万人・大企業独自の経営術は？【高橋弘樹】](/rehacq_fan/ids/Mbkx01DT6Xc "wikilink")
     -   公開日: 2024-07-08
-    -   視聴数: 118,722
+    -   視聴数: 118,796
     -   **いいね数: 1,395**
     -   出演者: 西川廣人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【アフタートーク】東京都知事選2024！ラストボイス⑤【清水国明】](/rehacq_fan/ids/5HpGgafTymQ "wikilink")
     -   公開日: 2024-07-06
-    -   視聴数: 9,749
+    -   視聴数: 9,750
     -   **いいね数: 57**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [清水国明](/rehacq_fan/people/清水国明 "wikilink")
 1.  [【アフタートーク】東京都知事選2024！ラストボイス④【田母神としお】](/rehacq_fan/ids/of7zsaJSkP8 "wikilink")
     -   公開日: 2024-07-05
-    -   視聴数: 17,330
+    -   視聴数: 17,331
     -   **いいね数: 311**
     -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【アフタートーク】東京都知事選2024！ラストボイス③【ひまそらあかね】](/rehacq_fan/ids/3YEh6SwbEYE "wikilink")
     -   公開日: 2024-07-05
-    -   視聴数: 83,465
-    -   **いいね数: 1,655**
+    -   視聴数: 83,466
+    -   **いいね数: 1,656**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス④【田母神としお】](/rehacq_fan/ids/wappac7MfkQ "wikilink")
     -   公開日: 2024-07-05
-    -   視聴数: 39,803
+    -   視聴数: 39,804
     -   **いいね数: 1,170**
     -   出演者: 田母神としお, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【アフタートーク】東京都知事選2024！ラストボイス②【安野たかひろ】](/rehacq_fan/ids/7NYcEDXYTVo "wikilink")
     -   公開日: 2024-07-05
-    -   視聴数: 21,055
+    -   視聴数: 21,057
     -   **いいね数: 324**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink")
 1.  [【画質修正版】【緊急生配信】東京都知事選2024！ラストボイス②【安野たかひろ】](/rehacq_fan/ids/39a4Z4s-Kd8 "wikilink")
     -   公開日: 2024-07-05
-    -   視聴数: 38,331
+    -   視聴数: 38,333
     -   **いいね数: 635**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス②【安野たかひろ】](/rehacq_fan/ids/7NXiwGwdQNc "wikilink")
     -   公開日: 2024-07-04
-    -   視聴数: 52,013
+    -   視聴数: 52,016
     -   **いいね数: 1,055**
     -   出演者: [奥井奈南](/rehacq_fan/people/奥井奈南 "wikilink"), [安野たかひろ](/rehacq_fan/people/安野たかひろ "wikilink")
 1.  [【石丸市長の後任は？】安芸高田市長選2024【都知事選の判断材料】](/rehacq_fan/ids/eiL_QqjTsVk "wikilink")
     -   公開日: 2024-07-04
-    -   視聴数: 218,811
+    -   視聴数: 218,818
     -   **いいね数: 3,822**
     -   出演者: 
 1.  [【アフタートーク】東京都知事選2024！ラストボイス【石丸伸二】](/rehacq_fan/ids/gEJn9yITdR4 "wikilink")
     -   公開日: 2024-07-04
-    -   視聴数: 191,728
-    -   **いいね数: 7,599**
+    -   視聴数: 191,734
+    -   **いいね数: 7,597**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ラストボイス【石丸伸二】](/rehacq_fan/ids/I8__R-9OwwA "wikilink")
     -   公開日: 2024-07-03
-    -   視聴数: 636,913
-    -   **いいね数: 26,307**
+    -   視聴数: 636,979
+    -   **いいね数: 26,305**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【大学教授vs社会課題】厳罰化はダメ？政治とカネどう解決する？【安田洋祐vs西田亮介】](/rehacq_fan/ids/H6v4OZL_LSs "wikilink")
     -   公開日: 2024-07-03
-    -   視聴数: 101,503
+    -   視聴数: 101,524
     -   **いいね数: 1,242**
     -   出演者: 安田洋祐, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【緊急出演】４年前の…衝撃告白！事件の真相、赤裸々すぎる90分独占インタビュー【ゴーンvs日産】](/rehacq_fan/ids/sG4mJLLLeBE "wikilink")
     -   公開日: 2024-07-01
-    -   視聴数: 218,690
-    -   **いいね数: 2,244**
+    -   視聴数: 218,933
+    -   **いいね数: 2,246**
     -   出演者: 西川廣人, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【経済学vs社会学】東京は異常？中学受験の問題点とは【安田洋祐vs西田亮介】](/rehacq_fan/ids/D3UF1RCvDeQ "wikilink")
     -   公開日: 2024-06-30
-    -   視聴数: 335,287
+    -   視聴数: 335,341
     -   **いいね数: 2,780**
     -   出演者: [西田亮介](/rehacq_fan/people/西田亮介 "wikilink")
 1.  [【緊急生配信】東京都知事選2024！ネット討論会⑤【ReHacQ SP】](/rehacq_fan/ids/4gynzZY7KIU "wikilink")
     -   公開日: 2024-06-29
-    -   視聴数: 109,294
+    -   視聴数: 109,299
     -   **いいね数: 690**
     -   出演者: 
 1.  [【緊急生配信】東京都知事選2024！ネット討論会④【ReHacQ SP】](/rehacq_fan/ids/HWFu6XqYFfY "wikilink")
@@ -1838,12 +1838,12 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [音喜多駿](/rehacq_fan/people/音喜多駿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【生配信】再生の道・石丸代表記者会見 8月27日（水）【ReHacQ】](/rehacq_fan/ids/e8KMybXtRuk "wikilink")
     -   公開日: 2025-08-27
-    -   視聴数: 282,561
-    -   **いいね数: 10,855**
+    -   視聴数: 282,681
+    -   **いいね数: 10,851**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【緊急配信】ガザから生中継...病院が空爆？現地の生活は【須賀川拓&斎藤幸平】](/rehacq_fan/ids/wHVOLsEOj8k "wikilink")
     -   公開日: 2025-08-26
-    -   視聴数: 94,519
+    -   視聴数: 94,546
     -   **いいね数: 2,970**
     -   出演者: イマド・アブ・シャウェイシュ, [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink"), [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 8月26日（火）【ReHacQ】](/rehacq_fan/ids/AFAvB52Bsfk "wikilink")
@@ -4805,8 +4805,8 @@
     -   出演者: [スーツ](/rehacq_fan/people/スーツ "wikilink"), [羽田圭介](/rehacq_fan/people/羽田圭介 "wikilink")
 1.  [【ひろゆきvs能登の職人】復興の現実…行政への想い…ReHacQ旅④【石丸伸二vs後藤達也】](/rehacq_fan/ids/vOWo2VNv1w "wikilink")
     -   公開日: 2025-08-24
-    -   視聴数: 228,551
-    -   **いいね数: 7,527**
+    -   視聴数: 228,723
+    -   **いいね数: 7,531**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【宇内梨沙vsいけちゃん女子旅】鳥取の隠された魅力！石破茂が大好きなラーメンは？【ReHacQ】](/rehacq_fan/ids/phNQGqZQuNE "wikilink")
     -   公開日: 2025-07-20
