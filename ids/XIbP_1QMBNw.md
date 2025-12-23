@@ -1,6 +1,6 @@
 ### [【ReHacQvs都議会】２０２５年振り返り！まったり都議会議員忘年会【高橋弘樹vs西田亮介】](https://www.youtube.com/watch?v=XIbP_1QMBNw)
 [![](https://img.youtube.com/vi/XIbP_1QMBNw/sddefault.jpg)](https://www.youtube.com/watch?v=XIbP_1QMBNw)
 -   公開日: 2025-12-23
--   視聴数: 14,518
--   **いいね数: 414**
+-   視聴数: 21,024
+-   **いいね数: 563**
 -   出演者: 
