@@ -1,6 +1,6 @@
 ### [【石丸伸二vs人生の無駄】なぜネガティブな言葉は信頼されるのか？必要な苦痛とは？【鈴木祐vsReHacQ】](https://www.youtube.com/watch?v=LJzJnsYNu84)
 [![](https://img.youtube.com/vi/LJzJnsYNu84/sddefault.jpg)](https://www.youtube.com/watch?v=LJzJnsYNu84)
 -   公開日: 2025-11-23
--   視聴数: 150,100
--   **いいね数: 5,892**
+-   視聴数: 151,182
+-   **いいね数: 5,904**
 -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), 鈴木祐
