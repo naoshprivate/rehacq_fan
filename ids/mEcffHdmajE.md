@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/mEcffHdmajE/sddefault.jpg)](https://www.youtube.com/watch?v=mEcffHdmajE)
 -   公開日: 2025-06-05
 -   視聴数: 18,096
--   **いいね数: 154**
+-   **いいね数: 153**
 -   出演者: [前原誠司](/rehacq_fan/people/前原誠司 "wikilink")
