@@ -491,8 +491,8 @@
     -   出演者: [藤野英人](/rehacq_fan/people/藤野英人 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【伝説のエンジニア・中島聡 VS 東大松尾研出身・今井翔太】AIエージェントに世代間格差！？神機能をビジネスで使いこなすには？【小林葵】](/rehacq_fan/ids/CGXmz2krw1k "wikilink")
     -   公開日: 2025-06-03
-    -   視聴数: 208,645
-    -   **いいね数: 2,896**
+    -   視聴数: 208,886
+    -   **いいね数: 2,898**
     -   出演者: [中島聡](/rehacq_fan/people/中島聡 "wikilink"), [今井翔太](/rehacq_fan/people/今井翔太 "wikilink"), [小林葵](/rehacq_fan/people/小林葵 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 6月3日（火）【ReHacQ】](/rehacq_fan/ids/3Owp-3FdMYU "wikilink")
     -   公開日: 2025-06-03
@@ -501,37 +501,37 @@
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【高橋弘樹vs仏教学者】日本人の精神…仏教とは何か？【ReHacQ教養】](/rehacq_fan/ids/AV7O3iuDSCc "wikilink")
     -   公開日: 2025-06-01
-    -   視聴数: 245,247
-    -   **いいね数: 4,000**
+    -   視聴数: 249,633
+    -   **いいね数: 4,044**
     -   出演者: 石井公成, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【超長期国債】日銀・発行計画の見直し浮上…マーケットの反応は？【永濱利廣】](/rehacq_fan/ids/aAjHat0wnaU "wikilink")
     -   公開日: 2025-05-30
-    -   視聴数: 52,386
+    -   視聴数: 52,395
     -   **いいね数: 613**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
 1.  [【田原総一朗vs横田一】91歳、田原総一朗が政治の矛盾を暴く！命を賭けた喧嘩とは？【箕輪厚介vsReHacQ高橋弘樹】](/rehacq_fan/ids/ciKmDfRupfg "wikilink")
     -   公開日: 2025-05-28
-    -   視聴数: 340,446
-    -   **いいね数: 4,820**
+    -   視聴数: 341,412
+    -   **いいね数: 4,821**
     -   出演者: [横田一](/rehacq_fan/people/横田一 "wikilink"), [田原総一朗](/rehacq_fan/people/田原総一朗 "wikilink"), [箕輪厚介](/rehacq_fan/people/箕輪厚介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二　緊急生配信】都議選・参院選関係ありません【ReHacQ】](/rehacq_fan/ids/S4cdBdh5v_U "wikilink")
     -   公開日: 2025-05-27
-    -   視聴数: 411,869
-    -   **いいね数: 11,297**
+    -   視聴数: 411,883
+    -   **いいね数: 11,299**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【生配信】国民民主党・玉木代表定例会見 5月27日（火）【ReHacQ】](/rehacq_fan/ids/5L93J7FsnP8 "wikilink")
     -   公開日: 2025-05-27
-    -   視聴数: 93,997
+    -   視聴数: 94,042
     -   **いいね数: 1,508**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink")
 1.  [【ひろゆきvs後藤達也】話したいことがある。【ReHacQ高橋弘樹】](/rehacq_fan/ids/NX5sIbUyGIU "wikilink")
     -   公開日: 2025-05-24
-    -   視聴数: 563,998
+    -   視聴数: 564,347
     -   **いいね数: 7,303**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [後藤達也](/rehacq_fan/people/後藤達也 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【超長期国債の金利上昇】金融市場のさらなる混乱につながるか？【永濱利廣・糸島孝俊】](/rehacq_fan/ids/qSLMIKQjR90 "wikilink")
     -   公開日: 2025-05-23
-    -   視聴数: 65,502
+    -   視聴数: 65,511
     -   **いいね数: 817**
     -   出演者: [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink"), 糸島孝俊
 1.  [【生配信・日本維新の会】日本維新の会・前原誠司共同代表 記者会見【ReHacQ】](/rehacq_fan/ids/yjjlYn1xuEk "wikilink")
@@ -4081,67 +4081,67 @@
 # プレイリスト (77): 新ファンタスティック未来 / フロントライン / ワールドフロントラインレポート
 1.  [【アフリカ事業で日本初の上場を目指す】信用ゼロの国でローン革命！日本人起業家の挑戦【小林嶺司】](/rehacq_fan/ids/9uNgoEYbCPE "wikilink")
     -   公開日: 2025-05-12
-    -   視聴数: 51,411
-    -   **いいね数: 550**
+    -   視聴数: 51,460
+    -   **いいね数: 551**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹×アフリカ金融王】なぜケニアで起業？アフリカ人向けローン事業を起こしたワケ【小林嶺司】](/rehacq_fan/ids/uleL4o4H-Ck "wikilink")
     -   公開日: 2025-05-05
-    -   視聴数: 82,019
+    -   視聴数: 82,054
     -   **いいね数: 927**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs疲れ】休養には７種類ある！？積極的な休み方とは？【ReHacQ】](/rehacq_fan/ids/Sub-7uYqL8Q "wikilink")
     -   公開日: 2025-05-02
-    -   視聴数: 82,489
+    -   視聴数: 82,588
     -   **いいね数: 1,215**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 片野秀樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsナレソメ軍団】恋愛結婚は失敗する？長続きするロジカル婚活のすすめ【スザンヌvsうなぽよvsモテコンサル勝倉vsReHacQ】](/rehacq_fan/ids/4R2Ci-_jQiI "wikilink")
     -   公開日: 2025-04-28
-    -   視聴数: 322,355
+    -   視聴数: 322,692
     -   **いいね数: 4,914**
     -   出演者: うなぽよ, [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs休養】寝る事＝休む事ではない？睡眠以外の方法とは？【ReHacQ】](/rehacq_fan/ids/WRpEgGrAe3M "wikilink")
     -   公開日: 2025-04-26
-    -   視聴数: 348,284
-    -   **いいね数: 3,936**
+    -   視聴数: 348,694
+    -   **いいね数: 3,937**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 片野秀樹, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsナレソメ軍団】騙されるな！結婚できない真の理由とは？衝撃マッチングアプリの闇【スザンヌvsうなぽよvsモテコンサル勝倉vsReHacQ】](/rehacq_fan/ids/FjH7TzdPu80 "wikilink")
     -   公開日: 2025-04-21
-    -   視聴数: 385,188
-    -   **いいね数: 5,489**
+    -   視聴数: 385,646
+    -   **いいね数: 5,492**
     -   出演者: うなぽよ, [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【スザンヌvsバター危機】創業5年で累計1000万食！台湾でも大人気の国産スイーツとは？【ReHacQ平岡晃】](/rehacq_fan/ids/XqcwMu3ZDvE "wikilink")
     -   公開日: 2025-04-07
-    -   視聴数: 24,799
+    -   視聴数: 24,800
     -   **いいね数: 256**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 平岡晃
 1.  [【スザンヌvsJAL機内食】廃棄物が高級スイーツに！酪農救う未来のお菓子とは？【ReHacQ】](/rehacq_fan/ids/cVovJsJKSE0 "wikilink")
     -   公開日: 2025-03-31
-    -   視聴数: 28,963
-    -   **いいね数: 332**
+    -   視聴数: 28,971
+    -   **いいね数: 331**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 平岡晃
 1.  [【高橋弘樹vs溝口勇児】『令和の虎』を超えろ！暴走族総長の家に生まれ…目指す革命とは【ReHacQスザンヌ】](/rehacq_fan/ids/THdPL6PEUYk "wikilink")
     -   公開日: 2025-03-28
-    -   視聴数: 396,035
-    -   **いいね数: 4,871**
+    -   視聴数: 399,243
+    -   **いいね数: 4,890**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 溝口勇児, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【堀江貴文&青汁王子なぜ激怒？】鬼才の連続起業家・溝口勇児が初参戦！本田圭佑とガチ揉め…なぜ？不条理壊すため人生賭けるわけ【ReHacQ高橋弘樹】](/rehacq_fan/ids/DWTdhZL_DJY "wikilink")
     -   公開日: 2025-03-24
-    -   視聴数: 295,472
-    -   **いいね数: 2,992**
+    -   視聴数: 296,479
+    -   **いいね数: 3,004**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), 溝口勇児, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【朝倉未来をスカウトした男】弁護士から不動産へ…なぜ？【ReHacQスザンヌ】](/rehacq_fan/ids/9BwQ2ejb-Kg "wikilink")
     -   公開日: 2024-12-30
-    -   視聴数: 87,750
-    -   **いいね数: 605**
+    -   視聴数: 87,840
+    -   **いいね数: 607**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vsホテル経営】海一列目の土地の仕入れ方とは？剛腕ホテル経営者に迫る【スザンヌ】](/rehacq_fan/ids/cArxlcmmv54 "wikilink")
     -   公開日: 2024-12-23
-    -   視聴数: 48,499
-    -   **いいね数: 487**
+    -   視聴数: 48,566
+    -   **いいね数: 489**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs慶應4年起業家】大逆転！パリコレを狙うお洒落だるま屋の挑戦！【スザンヌ大感激】](/rehacq_fan/ids/v8Pp-5BRgLs "wikilink")
     -   公開日: 2024-12-16
-    -   視聴数: 44,074
+    -   視聴数: 44,138
     -   **いいね数: 580**
     -   出演者: [スザンヌ](/rehacq_fan/people/スザンヌ "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [髙橋史好](/rehacq_fan/people/髙橋史好 "wikilink")
 1.  [【高橋弘樹vsスザンヌ】急成長！伝統だるま×「かわいい」…インバウンド狙え【スザンヌ衝撃】](/rehacq_fan/ids/Jz3p4CJ_jM "wikilink")
@@ -5408,7 +5408,7 @@
     -   出演者: 
 1.  [【SUSURUvs高橋弘樹】ラーメンは健康食？ビジネスパーソンのためのラーメン講座【二郎大好き】](/rehacq_fan/ids/iW-xlAE6quM "wikilink")
     -   公開日: 2024-03-16
-    -   視聴数: 94,978
+    -   視聴数: 94,980
     -   **いいね数: 1,251**
     -   出演者: SUSURU, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【東大vsReHacQ】受験のコツをまったり雑談【試験本当にだるい！だから…】](/rehacq_fan/ids/ssNzFS0AiTM "wikilink")
@@ -5809,13 +5809,13 @@
     -   出演者: たつみコータロー, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ】深夜の釣具店勤務・稲垣ひでや…激白【なんで立候補したんですか？】](/rehacq_fan/ids/gD0RkPRF5Eo "wikilink")
     -   公開日: 2023-04-02
-    -   視聴数: 22,329
+    -   視聴数: 22,330
     -   **いいね数: 527**
     -   出演者: 稲垣ひでや, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ】元ニコ生主！政治家女子48党の薬剤師・さとうさやか…激白【なんで立候補したんですか？】](/rehacq_fan/ids/fR_OYX3s2a8 "wikilink")
     -   公開日: 2023-04-02
-    -   視聴数: 78,857
-    -   **いいね数: 1,362**
+    -   視聴数: 78,863
+    -   **いいね数: 1,363**
     -   出演者: さとうさやか, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ】ヒョウ柄大好き法学者・谷口真由美…激白【なんで立候補したんですか？】](/rehacq_fan/ids/Nkus0A5CNwk "wikilink")
     -   公開日: 2023-04-02
@@ -5829,7 +5829,7 @@
     -   出演者: 吉野敏明, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQ】筋トレ好き大阪府知事・吉村洋文…激白【なんで立候補したんですか？】](/rehacq_fan/ids/034PTMH22AE "wikilink")
     -   公開日: 2023-04-02
-    -   視聴数: 204,476
+    -   視聴数: 204,508
     -   **いいね数: 3,695**
     -   出演者: [吉村洋文](/rehacq_fan/people/吉村洋文 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
@@ -6015,7 +6015,7 @@
 # プレイリスト (3): ひろゆきの賠償金支払い旅
 1.  [【賠償金支払い旅11】ひろゆき遂に最後の福岡高裁へ…驚愕のわけ【ReHacQ】](/rehacq_fan/ids/CSN2MQ_ZHUY "wikilink")
     -   公開日: 2025-08-07
-    -   視聴数: 138,021
+    -   視聴数: 138,165
     -   **いいね数: 1,888**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink")
 1.  [【賠償金支払い旅⑩】ひろゆき感動！石丸伸二激推し！広島職人の味【ReHacQ】](/rehacq_fan/ids/cNONDXA1V18 "wikilink")
