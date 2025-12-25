@@ -1,6 +1,6 @@
 ### [【緊急生配信】小川晶前前橋市長に聞く、なぜ立候補？【ReHacQ高橋弘樹】](https://www.youtube.com/watch?v=wRVIeiL8T5I)
 [![](https://img.youtube.com/vi/wRVIeiL8T5I/sddefault.jpg)](https://www.youtube.com/watch?v=wRVIeiL8T5I)
 -   公開日: 2025-12-24
--   視聴数: 172,385
--   **いいね数: 2,266**
+-   視聴数: 177,561
+-   **いいね数: 2,305**
 -   出演者: 
