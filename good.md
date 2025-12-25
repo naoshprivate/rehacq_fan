@@ -67,8 +67,8 @@
     -   出演者: 大澤芳清, [斎藤元彦](/rehacq_fan/people/斎藤元彦 "wikilink"), 木島洋嗣, 清水貴之, 福本繁幸, 稲村和美, [立花孝志](/rehacq_fan/people/立花孝志 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 1,298,540
-    -   **いいね数: 31,029**
+    -   視聴数: 1,302,602
+    -   **いいね数: 31,035**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【高橋弘樹vs高市早苗】高市早苗が描く“強い日本”構想　減税・国防・外国人政策の行方は？【ReHacQ総裁選SP】](/rehacq_fan/ids/gvhsrihOCrc "wikilink")
     -   公開日: 2025-09-26

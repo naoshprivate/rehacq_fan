@@ -90,16 +90,16 @@
     -   視聴数: 2,061,079
     -   **いいね数: 23,216**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), デヴィ夫人
+1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
+    -   公開日: 2025-10-09
+    -   視聴数: 1,907,318
+    -   **いいね数: 13,028**
+    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【西田亮介vs米山隆一】SNSと政治についてガチ討論！デマや誹謗中傷など課題山積...これからどうなる？【ReHacQ高橋弘樹】](/rehacq_fan/ids/B5-KBz_t3wU "wikilink")
     -   公開日: 2025-04-29
     -   視聴数: 1,882,125
     -   **いいね数: 25,891**
     -   出演者: [米山隆一](/rehacq_fan/people/米山隆一 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-1.  [【高橋弘樹vs近藤大介②】激動する中国政治_習近平の権力構造と地政学リスクとは？【ReHacQ中国経済SP】](/rehacq_fan/ids/ubUYvwixxCg "wikilink")
-    -   公開日: 2025-10-09
-    -   視聴数: 1,879,484
-    -   **いいね数: 12,873**
-    -   出演者: 近藤大介, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【安芸高田市長vs不信任案提出の議員】石丸伸二の野望とは？【本音トーク】](/rehacq_fan/ids/TkJRmw7WPeI "wikilink")
     -   公開日: 2023-10-10
     -   視聴数: 1,830,604
@@ -247,8 +247,8 @@
     -   出演者: [小西洋之](/rehacq_fan/people/小西洋之 "wikilink"), [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs石丸伸二】久しぶりに話し合いましょう…トランプ関税、同時株安、都政について【ReHacQ緊急党首対談】](/rehacq_fan/ids/nhJYpgzPBJU "wikilink")
     -   公開日: 2025-04-09
-    -   視聴数: 1,298,540
-    -   **いいね数: 31,029**
+    -   視聴数: 1,302,602
+    -   **いいね数: 31,035**
     -   出演者: [玉木雄一郎](/rehacq_fan/people/玉木雄一郎 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vs後藤達也】為替は日銀構文を読め！トランプと株式市場【元NY専門家が予測】](/rehacq_fan/ids/7_sdf9uZUiU "wikilink")
     -   公開日: 2024-07-31
