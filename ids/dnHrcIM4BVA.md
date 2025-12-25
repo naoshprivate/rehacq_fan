@@ -1,6 +1,6 @@
 ### [【群馬県知事が激白】前橋市長の辞職について【ひろゆきvsReHacQ高橋弘樹vs横田一】](https://www.youtube.com/watch?v=dnHrcIM4BVA)
 [![](https://img.youtube.com/vi/dnHrcIM4BVA/sddefault.jpg)](https://www.youtube.com/watch?v=dnHrcIM4BVA)
 -   公開日: 2025-12-24
--   視聴数: 123,499
--   **いいね数: 1,820**
+-   視聴数: 130,454
+-   **いいね数: 1,924**
 -   出演者: 
