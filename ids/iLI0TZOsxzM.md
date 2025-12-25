@@ -1,6 +1,6 @@
 ### [【爆破テロ危機vs音楽】東欧で命かける日本人指揮者とは？【神谷明采vs ReHacQ須賀川拓vs柳澤寿男】](https://www.youtube.com/watch?v=iLI0TZOsxzM)
 [![](https://img.youtube.com/vi/iLI0TZOsxzM/sddefault.jpg)](https://www.youtube.com/watch?v=iLI0TZOsxzM)
 -   公開日: 2025-12-25
--   視聴数: 7,023
--   **いいね数: 90**
+-   視聴数: 9,081
+-   **いいね数: 115**
 -   出演者: 
