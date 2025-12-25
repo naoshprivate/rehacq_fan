@@ -237,8 +237,8 @@
     -   出演者: カルロス・ゴーン, [須賀川拓](/rehacq_fan/people/須賀川拓 "wikilink")
 1.  [【緊急生配信】兵庫維新の会を除名・離党した３県議が緊急出演【増山・岸口・白井県議vs高橋弘樹】](/rehacq_fan/ids/Oje8CA9ZhU "wikilink")
     -   公開日: 2025-03-10
-    -   視聴数: 492,919
-    -   **いいね数: 20,423**
+    -   視聴数: 492,992
+    -   **いいね数: 20,419**
     -   出演者: [増山誠](/rehacq_fan/people/増山誠 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【玉木雄一郎vs高橋弘樹】国民民主党にNG無し質問！朝まで生たまき【西田亮介】](/rehacq_fan/ids/CxDT2FaGi8o "wikilink")
     -   公開日: 2025-07-09
