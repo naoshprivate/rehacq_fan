@@ -3,4 +3,4 @@
 -   公開日: 2025-12-23
 -   視聴数: 172,643
 -   **いいね数: 2,447**
--   出演者: 
+-   出演者: 上田令子, 天沼ひろし, [川松真一朗](/rehacq_fan/people/川松真一朗 "wikilink"), 望月まさのり, [西田亮介](/rehacq_fan/people/西田亮介 "wikilink"), [関口健太郎](/rehacq_fan/people/関口健太郎 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
