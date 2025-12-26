@@ -1,34 +1,34 @@
 # 最近の動画
-1.  [【生配信】日本維新の会・ 藤田共同代表記者会見 12月26日（金）【ReHacQ】](/rehacq_fan/ids/3Os641CChbQ "wikilink")
+1.  [【ReHacQ生配信】宮崎岳志群馬県議会議員に聞く【高橋弘樹】](/rehacq_fan/ids/_dge6QdVTM "wikilink")
     -   公開日: 2025-12-26
-    -   視聴数: 644
-    -   **いいね数: 9**
+    -   視聴数: 18,398
+    -   **いいね数: 303**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/__dge6QdVTM/hqdefault.jpg)](https://www.youtube.com/watch?v=__dge6QdVTM)
+1.  [【生配信・日本維新の会】特例法延長の条件は「改革姿勢」　補助金・特別措置を総点検へ【ReHacQ記者会見 12月26日（金）】](/rehacq_fan/ids/3Os641CChbQ "wikilink")
+    -   公開日: 2025-12-26
+    -   視聴数: 8,202
+    -   **いいね数: 115**
     -   出演者: 
     - [![](https://img.youtube.com/vi/3Os641CChbQ/hqdefault.jpg)](https://www.youtube.com/watch?v=3Os641CChbQ)
 1.  [【爆破テロ危機vs音楽】東欧で命かける日本人指揮者とは？【神谷明采vs ReHacQ須賀川拓vs柳澤寿男】](/rehacq_fan/ids/iLI0TZOsxzM "wikilink")
     -   公開日: 2025-12-25
-    -   視聴数: 11,709
-    -   **いいね数: 146**
+    -   視聴数: 13,921
+    -   **いいね数: 168**
     -   出演者: 
     - [![](https://img.youtube.com/vi/iLI0TZOsxzM/hqdefault.jpg)](https://www.youtube.com/watch?v=iLI0TZOsxzM)
 1.  [【呉座勇一vs高橋弘樹】秀吉は光秀なぜ打てた？衝撃のラッキーパンチ！歴史の罠【 ReHacQ戦国時代】](/rehacq_fan/ids/QkOnCrQTkE0 "wikilink")
     -   公開日: 2025-12-25
-    -   視聴数: 193,866
-    -   **いいね数: 2,629**
+    -   視聴数: 241,694
+    -   **いいね数: 3,188**
     -   出演者: 
     - [![](https://img.youtube.com/vi/QkOnCrQTkE0/hqdefault.jpg)](https://www.youtube.com/watch?v=QkOnCrQTkE0)
-1.  [【生配信】日本維新の会・ 藤田共同代表記者会見 12月25日（木）【ReHacQ】](/rehacq_fan/ids/eYJ54r7fhls "wikilink")
+1.  [【生配信・日本維新の会】藤田文武共同代表、官邸筋の核発言報道に違和感【ReHacQ記者会見 12月25日（木）】](/rehacq_fan/ids/eYJ54r7fhls "wikilink")
     -   公開日: 2025-12-25
-    -   視聴数: 7,802
-    -   **いいね数: 104**
+    -   視聴数: 8,231
+    -   **いいね数: 105**
     -   出演者: 
     - [![](https://img.youtube.com/vi/eYJ54r7fhls/hqdefault.jpg)](https://www.youtube.com/watch?v=eYJ54r7fhls)
-1.  [【自民vs維新vs国民vs公明】本音激白！2025年大忘年会「高市政権は...」激論！【ReHacQ高橋弘樹】](/rehacq_fan/ids/doGpvZITQ7w "wikilink")
-    -   公開日: 2025-12-24
-    -   視聴数: 176,435
-    -   **いいね数: 2,146**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/doGpvZITQ7w/hqdefault.jpg)](https://www.youtube.com/watch?v=doGpvZITQ7w)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,23 +64,23 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 65, 視聴数: 7,737,728, いいね数: 109,364
+-   動画数: 66, 視聴数: 7,870,333, いいね数: 110,929
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,050,874, いいね数: 162,786
+-   動画数: 79, 視聴数: 11,052,327, いいね数: 162,803
 
 #### [2025年10月](videos/202510 "wikilink")
 
--   動画数: 102, 視聴数: 23,189,515, いいね数: 336,395
+-   動画数: 102, 視聴数: 23,189,748, いいね数: 336,400
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,254,392, いいね数: 269,045
+-   動画数: 87, 視聴数: 16,254,413, いいね数: 269,044
 
 #### [2025年08月](videos/202508 "wikilink")
 
--   動画数: 65, 視聴数: 14,617,914, いいね数: 261,863
+-   動画数: 65, 視聴数: 14,624,414, いいね数: 261,864
 
 #### [2025年07月](videos/202507 "wikilink")
 
@@ -128,11 +128,11 @@
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,160,663, いいね数: 327,323
+-   動画数: 43, 視聴数: 20,161,724, いいね数: 327,327
 
 #### [2024年07月](videos/202407 "wikilink")
 
--   動画数: 44, 視聴数: 15,926,204, いいね数: 291,093
+-   動画数: 44, 視聴数: 15,929,882, いいね数: 291,089
 
 #### [2024年06月](videos/202406 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,982,233, いいね数: 141,280
 
 ---
-2025-12-26 13:00
+2025-12-26 20:00
