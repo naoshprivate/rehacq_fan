@@ -1,6 +1,6 @@
 ### [【兵庫県知事選…重要人物が参戦】森けんと市議が全て告白【ReHacQ】](https://www.youtube.com/watch?v=yFtpS4iZXlg)
 [![](https://img.youtube.com/vi/yFtpS4iZXlg/sddefault.jpg)](https://www.youtube.com/watch?v=yFtpS4iZXlg)
 -   公開日: 2024-12-08
--   視聴数: 912,293
--   **いいね数: 12,372**
+-   視聴数: 912,309
+-   **いいね数: 12,371**
 -   出演者: 
