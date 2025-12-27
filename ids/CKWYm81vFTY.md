@@ -1,6 +1,6 @@
 ### [【高橋弘樹vsウソの歴史】徳川家康うんこ漏らし事件...正しい歴史の見方とは？【山本浩司vsReHacQ】](https://www.youtube.com/watch?v=CKWYm81vFTY)
 [![](https://img.youtube.com/vi/CKWYm81vFTY/sddefault.jpg)](https://www.youtube.com/watch?v=CKWYm81vFTY)
 -   公開日: 2025-11-09
--   視聴数: 147,355
--   **いいね数: 1,617**
+-   視聴数: 158,209
+-   **いいね数: 1,700**
 -   出演者: 山本浩司, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
