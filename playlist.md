@@ -3062,8 +3062,8 @@
     -   出演者: 生井秀一, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【木原誠二が激白】自民党どうする？政策激論90分【ReHacQ高橋弘樹】](/rehacq_fan/ids/u_maBSrao10 "wikilink")
     -   公開日: 2025-07-01
-    -   視聴数: 113,466
-    -   **いいね数: 1,098**
+    -   視聴数: 113,502
+    -   **いいね数: 1,097**
     -   出演者: 木原誠二, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs辞め花王】大企業を辞め...北関東の校長に！メリットのシェアV字回復...セブン部長を出待ち営業【ReHacQ】](/rehacq_fan/ids/xDmYqCMz9ck "wikilink")
     -   公開日: 2025-06-27
@@ -3604,18 +3604,18 @@
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [斎藤幸平](/rehacq_fan/people/斎藤幸平 "wikilink")
 1.  [【ひろゆきvs猪瀬直樹】緊急提言！ひろゆき、政治家になれ【ReHacQ高橋弘樹】](/rehacq_fan/ids/lkiKj7DN8fA "wikilink")
     -   公開日: 2025-06-15
-    -   視聴数: 216,278
+    -   視聴数: 216,296
     -   **いいね数: 2,969**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink")
 1.  [【ひろゆきvs猪瀬直樹】国民民主党&自民に激怒…なぜ？医療費5兆円削減…本気で激論【ReHacQ高橋弘樹】](/rehacq_fan/ids/ipRCGWpuf60 "wikilink")
     -   公開日: 2025-06-08
-    -   視聴数: 313,428
+    -   視聴数: 313,460
     -   **いいね数: 3,624**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [猪瀬直樹](/rehacq_fan/people/猪瀬直樹 "wikilink")
 1.  [【ひろゆきvsM-1王者】発言しにくい社会どう生きる？愛され幸せになるには【ウエストランド井口】](/rehacq_fan/ids/5muMuRJ1fQw "wikilink")
     -   公開日: 2025-05-29
-    -   視聴数: 341,814
-    -   **いいね数: 4,887**
+    -   視聴数: 342,266
+    -   **いいね数: 4,891**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), 井口浩之
 1.  [【ひろゆきvs河野太郎】国民民主に立憲...相次ぐ減税策に自民は？負担どう減らす？参院選どう戦う？元大臣ガチ回答！危機の時代の政治とは【ReHacQvs西田亮介】](/rehacq_fan/ids/0mb2Xz8HhfQ "wikilink")
     -   公開日: 2025-05-11
@@ -5584,120 +5584,120 @@
     -   出演者: 宮島勇也, 田中一弘, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ひろゆきvsAI失業の危機】米国は大惨事！なぜ日本はAI利用９%？【ReHacQ】](/rehacq_fan/ids/bgEcNoD_ZIk "wikilink")
     -   公開日: 2025-05-21
-    -   視聴数: 399,279
-    -   **いいね数: 4,279**
+    -   視聴数: 400,634
+    -   **いいね数: 4,294**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ハーバード大学准教授の子育て】母の怒り！キャリアと子育て諦めないためには？ボストン大学助教授が激論【塩田佳代子VS内田舞vs藤井サチReHacQ】](/rehacq_fan/ids/oyMrAAxdbRo "wikilink")
     -   公開日: 2025-03-24
-    -   視聴数: 36,888
+    -   視聴数: 36,894
     -   **いいね数: 853**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【藤井サチvs内田舞】 母こそキャリアを諦めるな！ハーバード大学&ボストン大学…バリキャリが激論【塩田佳代子vsReHacQ】](/rehacq_fan/ids/LRNxgJFWSro "wikilink")
     -   公開日: 2025-03-17
-    -   視聴数: 61,979
+    -   視聴数: 61,998
     -   **いいね数: 1,526**
     -   出演者: [内田舞](/rehacq_fan/people/内田舞 "wikilink"), [塩田佳代子](/rehacq_fan/people/塩田佳代子 "wikilink"), [藤井サチ](/rehacq_fan/people/藤井サチ "wikilink")
 1.  [【ReHacQvsエンジニア人材】AI時代をどう乗り切る？テック人材革命【高橋弘樹】](/rehacq_fan/ids/ybefk4SCsj8 "wikilink")
     -   公開日: 2024-12-28
-    -   視聴数: 63,440
+    -   視聴数: 63,467
     -   **いいね数: 723**
     -   出演者: おざけん, 森島肇, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), 齋藤滉生
 1.  [【石丸伸二vs三菱UFJ銀行の元上司】どんな部下だった？型破りだった？銀行員時代【高橋弘樹vs内田稔】](/rehacq_fan/ids/-GqBTGclvu0 "wikilink")
     -   公開日: 2024-09-23
-    -   視聴数: 796,713
-    -   **いいね数: 13,342**
+    -   視聴数: 797,290
+    -   **いいね数: 13,345**
     -   出演者: [内田稔](/rehacq_fan/people/内田稔 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹②】不安が大切！会社辞めて成功する人、しない人【辞めテレ東対決】](/rehacq_fan/ids/DQGX7PKstUA "wikilink")
     -   公開日: 2024-09-17
-    -   視聴数: 441,218
-    -   **いいね数: 6,555**
+    -   視聴数: 442,858
+    -   **いいね数: 6,574**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【高橋弘樹vs奥井奈々】不器用なひとのための存在感出し方入門【ReHacQvs News Picks】](/rehacq_fan/ids/AiDP1HilWGA "wikilink")
     -   公開日: 2024-09-14
-    -   視聴数: 63,911
+    -   視聴数: 63,955
     -   **いいね数: 770**
     -   出演者: [奥井奈々](/rehacq_fan/people/奥井奈々 "wikilink")
 1.  [【佐久間宣行vs高橋弘樹】テレ東なぜ辞めた？必見すぎる退職の作法【ReHacQキャリア塾】](/rehacq_fan/ids/PcMXSTSfqto "wikilink")
     -   公開日: 2024-09-10
-    -   視聴数: 1,348,626
-    -   **いいね数: 15,286**
+    -   視聴数: 1,355,024
+    -   **いいね数: 15,326**
     -   出演者: 佐久間宣行, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【ReHacQキャリア塾】組織から個人の時代へ…キャリア成功の鉄則【池澤あやかvs田中研之輔】](/rehacq_fan/ids/JVvhJ7HQn3g "wikilink")
     -   公開日: 2024-05-14
-    -   視聴数: 25,186
+    -   視聴数: 25,197
     -   **いいね数: 282**
     -   出演者: 池澤あやか, 田中研之
 1.  [【ReHacQキャリア塾】終身雇用崩壊後も生き残るシン・キャリア戦略【池澤あやかvs田中研之輔】](/rehacq_fan/ids/98tCQmtrdh4 "wikilink")
     -   公開日: 2024-05-06
-    -   視聴数: 47,971
+    -   視聴数: 47,980
     -   **いいね数: 460**
     -   出演者: 池澤あやか, 田中研之
 1.  [【坂井風太】「生存者バイアス問題」と若手の不本意離職を防ぐには【ReHacQキャリア塾】](/rehacq_fan/ids/K1cs_1ChP70 "wikilink")
     -   公開日: 2024-01-17
-    -   視聴数: 516,450
-    -   **いいね数: 8,394**
+    -   視聴数: 517,414
+    -   **いいね数: 8,410**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【南場智子も出資】最近の若者はすぐ辞めるは本当？世代別で見る3年で早期離職するワケ【坂井風太】](/rehacq_fan/ids/J_O4KqDAgX4 "wikilink")
     -   公開日: 2024-01-09
-    -   視聴数: 326,734
-    -   **いいね数: 4,283**
+    -   視聴数: 327,052
+    -   **いいね数: 4,287**
     -   出演者: [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (11): アップスキReング/地HacQ
 1.  [【高橋弘樹vs地方創生】好立地なのになぜ？衰退する静岡・復活の秘策は…？【地HacQ】](/rehacq_fan/ids/1ONnQjI2X5A "wikilink")
     -   公開日: 2025-06-17
-    -   視聴数: 67,221
+    -   視聴数: 67,277
     -   **いいね数: 839**
     -   出演者: 松永康太, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vsナレソメ勝倉】激論！シン結婚相談所vs政治家…なぜ結婚が減った？【ReHacQ】](/rehacq_fan/ids/3T6rJSWoRHg "wikilink")
     -   公開日: 2025-06-03
-    -   視聴数: 415,420
-    -   **いいね数: 10,871**
+    -   視聴数: 415,723
+    -   **いいね数: 10,873**
     -   出演者: [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink")
 1.  [【石丸伸二vsナレソメ勝倉】ガチ激論！なぜ少子化？婚活事業者vs政治家の本音トーク【ReHacQ高橋弘樹】](/rehacq_fan/ids/V_M7qZbW3hI "wikilink")
     -   公開日: 2025-05-31
-    -   視聴数: 506,724
+    -   視聴数: 507,031
     -   **いいね数: 11,289**
     -   出演者: [勝倉千尋](/rehacq_fan/people/勝倉千尋 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs高橋弘樹】史上最強の大激論！北関東が日本再生の鍵…なぜ？【ReHacQ】](/rehacq_fan/ids/Lcj1tooXlSk "wikilink")
     -   公開日: 2025-02-18
-    -   視聴数: 957,542
-    -   **いいね数: 17,045**
+    -   視聴数: 958,819
+    -   **いいね数: 17,050**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【石丸伸二vs地域創生のプロ】東京の真似NG！地方ビジネス成功の最適解とは？【高橋弘樹&アルファドライブ&黒岩里奈】](/rehacq_fan/ids/X9ZyXV0SYL0 "wikilink")
     -   公開日: 2025-01-20
-    -   視聴数: 255,325
-    -   **いいね数: 5,241**
+    -   視聴数: 255,463
+    -   **いいね数: 5,242**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [麻生要一](/rehacq_fan/people/麻生要一 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
 1.  [【石丸伸二vs元リクルート新規事業トップ】ビジネスで地方創生！銀行員が涙...新規事業に必要なマインドとは？【高橋弘樹&黒岩里奈&麻生要一】](/rehacq_fan/ids/ApzZR2MLV7A "wikilink")
     -   公開日: 2025-01-08
-    -   視聴数: 287,256
-    -   **いいね数: 5,801**
+    -   視聴数: 287,398
+    -   **いいね数: 5,802**
     -   出演者: [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink"), [麻生要一](/rehacq_fan/people/麻生要一 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
 1.  [【石丸伸二vs文藝春秋のエース】元NewsPicsのCEOと激論！地方反撃の狼煙【高橋弘樹&黒岩里奈&坂本大典】](/rehacq_fan/ids/Yw6IksKyRKE "wikilink")
     -   公開日: 2024-10-04
-    -   視聴数: 267,730
-    -   **いいね数: 6,756**
+    -   視聴数: 267,921
+    -   **いいね数: 6,757**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
 1.  [【石丸伸二vs安野貴博の妻】NewsPicks元CEO！地方創生で新挑戦…大複業時代とは？【坂本大典vs高橋弘樹vs黒岩里奈】](/rehacq_fan/ids/ZLQ7blf0D0Q "wikilink")
     -   公開日: 2024-09-27
-    -   視聴数: 562,693
+    -   視聴数: 563,138
     -   **いいね数: 11,475**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), [石丸伸二](/rehacq_fan/people/石丸伸二 "wikilink"), [黒岩里奈](/rehacq_fan/people/黒岩里奈 "wikilink")
 1.  [【脱東京】副業で年収1,000万!?【地方創生の未来】](/rehacq_fan/ids/alXZs8Cssyg "wikilink")
     -   公開日: 2023-12-30
-    -   視聴数: 62,018
+    -   視聴数: 62,022
     -   **いいね数: 674**
     -   出演者: [坂本大典](/rehacq_fan/people/坂本大典 "wikilink"), 永岡里菜, [青木源太](/rehacq_fan/people/青木源太 "wikilink")
 1.  [【時価総額1000億円CEO】ビジネスパーソン必見！時間最短で成果を最大化の法則とは【木下勝寿】](/rehacq_fan/ids/SNnv-SIfKvQ "wikilink")
     -   公開日: 2023-12-20
-    -   視聴数: 48,742
-    -   **いいね数: 684**
+    -   視聴数: 48,805
+    -   **いいね数: 686**
     -   出演者: [木下勝寿](/rehacq_fan/people/木下勝寿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 1.  [【年商100億円CEO】ドン底から13倍のV字回復！チーム組織最大化の法則とは【木下勝寿】](/rehacq_fan/ids/wLraKCoPkpc "wikilink")
     -   公開日: 2023-12-13
-    -   視聴数: 54,826
-    -   **いいね数: 750**
+    -   視聴数: 54,871
+    -   **いいね数: 751**
     -   出演者: [木下勝寿](/rehacq_fan/people/木下勝寿 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
 
 # プレイリスト (8): ReHacQ歴史塾 / もう１度受けたい授業/社会人のための"死"入門
