@@ -1,34 +1,34 @@
 # 最近の動画
+1.  [【ReHacQ生配信】まったり忘年会…落選議員が語る自民党高市政権とは…【ReHacQあつまれ！落選の森】](/rehacq_fan/ids/3Hg4lECcDbc "wikilink")
+    -   公開日: 2025-12-27
+    -   視聴数: 12,657
+    -   **いいね数: 361**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/3Hg4lECcDbc/hqdefault.jpg)](https://www.youtube.com/watch?v=3Hg4lECcDbc)
 1.  [【石丸伸二vs新感覚温泉】球場に温泉!?北海道の新名所＆焼肉で街づくり?【ReHacQ旅②】](/rehacq_fan/ids/F0QqaRDxYO0 "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 10,711
-    -   **いいね数: 1,692**
+    -   視聴数: 18,310
+    -   **いいね数: 2,249**
     -   出演者: 
     - [![](https://img.youtube.com/vi/F0QqaRDxYO0/hqdefault.jpg)](https://www.youtube.com/watch?v=F0QqaRDxYO0)
 1.  [【高橋弘樹vs川上量生】大学受験は不要？乱立する大学の役割とは【 ReHacQvs笹川順平vs中村伊知哉】](/rehacq_fan/ids/YHbb-_23uDk "wikilink")
     -   公開日: 2025-12-27
-    -   視聴数: 4,861
-    -   **いいね数: 108**
+    -   視聴数: 6,535
+    -   **いいね数: 122**
     -   出演者: 
     - [![](https://img.youtube.com/vi/YHbb-_23uDk/hqdefault.jpg)](https://www.youtube.com/watch?v=YHbb-_23uDk)
 1.  [【ひろゆきvs山本一太】「知事辞めても良い」なぜ？…投資額100億円！知事の野望とは？【ReHacQ高橋弘樹】](/rehacq_fan/ids/Z-wx3k3CZXs "wikilink")
     -   公開日: 2025-12-26
-    -   視聴数: 71,567
-    -   **いいね数: 1,113**
+    -   視聴数: 73,186
+    -   **いいね数: 1,131**
     -   出演者: [ひろゆき](/rehacq_fan/people/ひろゆき "wikilink"), [山本一太](/rehacq_fan/people/山本一太 "wikilink"), [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Z-wx3k3CZXs/hqdefault.jpg)](https://www.youtube.com/watch?v=Z-wx3k3CZXs)
 1.  [【2026年伸びる企業】テーマ買いは危険？投資の前に見るべきポイントとは？【伊井哲朗&永濱利廣&森本智子&ReHacQ】](/rehacq_fan/ids/vYdgKcJksL0 "wikilink")
     -   公開日: 2025-12-26
-    -   視聴数: 36,713
-    -   **いいね数: 477**
+    -   視聴数: 37,229
+    -   **いいね数: 486**
     -   出演者: 伊井哲朗, [森本智子](/rehacq_fan/people/森本智子 "wikilink"), [永濱利廣](/rehacq_fan/people/永濱利廣 "wikilink")
     - [![](https://img.youtube.com/vi/vYdgKcJksL0/hqdefault.jpg)](https://www.youtube.com/watch?v=vYdgKcJksL0)
-1.  [【ReHacQ生配信】宮崎岳志群馬県議会議員に聞く【高橋弘樹】](/rehacq_fan/ids/_dge6QdVTM "wikilink")
-    -   公開日: 2025-12-26
-    -   視聴数: 51,157
-    -   **いいね数: 642**
-    -   出演者: 宮崎岳志, [高橋弘樹](/rehacq_fan/people/高橋弘樹 "wikilink")
-    - [![](https://img.youtube.com/vi/__dge6QdVTM/hqdefault.jpg)](https://www.youtube.com/watch?v=__dge6QdVTM)
 
 # ReHacQの人気動画
 ## 最近の人気動画
@@ -64,11 +64,11 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 70, 視聴数: 8,324,145, いいね数: 117,241
+-   動画数: 71, 視聴数: 8,351,279, いいね数: 118,231
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 79, 視聴数: 11,090,925, いいね数: 163,006
+-   動画数: 79, 視聴数: 11,094,189, いいね数: 163,018
 
 #### [2025年10月](videos/202510 "wikilink")
 
@@ -76,7 +76,7 @@
 
 #### [2025年09月](videos/202509 "wikilink")
 
--   動画数: 87, 視聴数: 16,263,898, いいね数: 269,097
+-   動画数: 87, 視聴数: 16,265,033, いいね数: 269,094
 
 #### [2025年08月](videos/202508 "wikilink")
 
@@ -84,7 +84,7 @@
 
 #### [2025年07月](videos/202507 "wikilink")
 
--   動画数: 76, 視聴数: 21,130,770, いいね数: 364,038
+-   動画数: 76, 視聴数: 21,130,842, いいね数: 364,036
 
 #### [2025年06月](videos/202506 "wikilink")
 
@@ -120,15 +120,15 @@
 
 #### [2024年10月](videos/202410 "wikilink")
 
--   動画数: 72, 視聴数: 22,727,635, いいね数: 342,104
+-   動画数: 72, 視聴数: 22,733,600, いいね数: 342,114
 
 #### [2024年09月](videos/202409 "wikilink")
 
--   動画数: 50, 視聴数: 14,785,355, いいね数: 221,554
+-   動画数: 50, 視聴数: 14,787,947, いいね数: 221,558
 
 #### [2024年08月](videos/202408 "wikilink")
 
--   動画数: 43, 視聴数: 20,163,498, いいね数: 327,344
+-   動画数: 43, 視聴数: 20,164,042, いいね数: 327,349
 
 #### [2024年07月](videos/202407 "wikilink")
 
@@ -199,4 +199,4 @@
 -   動画数: 14, 視聴数: 7,985,489, いいね数: 141,285
 
 ---
-2025-12-27 21:00
+2025-12-27 22:00
